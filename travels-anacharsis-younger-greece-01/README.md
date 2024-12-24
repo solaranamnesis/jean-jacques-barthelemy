@@ -6,3 +6,5 @@ English - PDF
 Greek - PDF | Biolinum | Atkinson | Cursive | Kerkis | Custom  
 French - Plain Text  
 French - PDF  
+
+[Source PDFs](https://anemi.lib.uoc.gr/metadata/d/c/5/metadata-39-0000279.tkl)
