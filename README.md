@@ -6,7 +6,7 @@ Public Domain Works of Jean-Jacques Barthélemy (1716-1795).
 
 English - Plain Text  
 English - PDF  
-Greek - Plain Text  
+[Greek - Plain Text](travels-anacharsis-younger-greece/full-text-greek.md)  
 Greek - PDF | Biolinum | Atkinson | Cursive | Kerkis | Custom  
 French - Plain Text  
 French - PDF  
