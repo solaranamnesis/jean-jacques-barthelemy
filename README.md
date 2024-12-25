@@ -26,7 +26,7 @@ French - PDF
 
 English - Plain Text  
 English - PDF  
-Greek - Plain Text  
+[Greek - Plain Text](travels-anacharsis-younger-greece-03/full-text-greek.md)  
 Greek - PDF | Biolinum | Atkinson | Cursive | Kerkis | Custom  
 French - Plain Text  
 French - PDF  
