@@ -12,49 +12,17 @@
 
 ---
 
-In the former editions of the Travels of Anacharsis, I have 
-given a critical analysis of the maps which accompany that 
-work, and I have pointed out the authorities by which J was 
-guided in the construction of those maps. 
+# Critical Observations on the Maps of Ancient Greece;
 
-The maps and plans of this new edition are much more 
-perfect than those of the former. All the maps of the different 
-states of Greece have been enlarged or improved, and several/ 
-of them are new ; all the plans have been redrawn, and som^ 
-of them were not in the-former editions. The new General 
-Map of Greece and the Grecian Colonies, especially, has hiken 
-laboured with the greatest care ; and I may say that nothing 
-has been neglected that could conduce to render it as accurate 
-aa possible. Several persons of great ability have made a 
-merit of concurring to render it more perfect. I shall first 
-mention M. Truguet, who has communicated to me in the 
-most liberal manner, all the plans and observations he had 
-taken in the Archipelago and the environs of Constantinople ; 
+## Compiled for the _Travels of Anacharsis the Younger_.
 
-and those parts of my map which are laid down from them 
-are particularly accurate. M. Abancourt has Hkewise very 
-kindly communicated to me every thing which he beheved 
-might be useful to my work, as well maps as manuscripts ; 
-and this assistiince 1 have found a great advantage. M. de 
-Lalande, well known for his profound knowledge in astronomy, 
-has in the most obliging manner communicated to me ail the 
-astronomical observations of M. Beauchamp in the Levant : 
-and MM. Verninac and Descorches, late ambassadors from 
-the French republic to the Porte, have done every thing in 
-their power to procure me useful and circumstantial informa- 
-tion relative to Greece. 
+### By M. Barbié du Bocage.
 
-At the D6p6t de la Guerre, General Ernouf caused to be 
-communicated to me many maps and plans which I found of 
-great utility ; and at the Dep6t de la Marine^ General Rosily 
-granted me access to several port-folios, in which I found plans 
-of various harbours and islands. In the department of Exte- 
-rior Relations several persons furnished me with whatever they 
-*-fudged might be useful to my work ; and in our Geographical 
-Depository of the Interior, I have found several plans from 
-which I have derived advantage. The keepers of the great 
-National Library have, likewise, furnished me witli all the 
-books which I judged necessary to my design. 
+In the former editions of the Travels of Anacharsis, I have given a critical analysis of the maps which accompany that work, and I have pointed out the authorities by which I was guided in the construction of those maps.
+
+The maps and plans of this new edition are much more perfect than those of the former. All the maps of the different states of Greece have been enlarged or improved, and several of them are new; all the plans have been redrawn, and some of them were not in the former editions. The new _General Map of Greece and the Grecian Colonies_, especially, has been laboured with the greatest care; and I may say that nothing has been neglected that could conduce to render it as accurate as possible. Several persons of great ability have made a merit of concurring to render it more perfect. I shall first mention M. Truguet, who has communicated to me in the most liberal manner, all the plans and observations he had taken in the Archipelago and the environs of Constantinople; and those parts of my map which are laid down from them are particularly accurate. M. Abancourt has likewise very kindly communicated to me every thing which he believed might be useful to my work, as well maps as manuscripts; and this assistance I have found a great advantage. M. de Lalande, well known for his profound knowledge in astronomy, has in the most obliging manner communicated to me all the astronomical observations of M. Beauchamp in the Levant: and MM. Verninac and Descorches, late ambassadors from the French republic to the Porte, have done every thing in their power to procure me useful and circumstantial information relative to Greece.
+
+At the _Dépôt de la Guerre_, General Ernouf caused to be communicated to me many maps and plans which I found of great utility; and at the _Dépôt de la Marine_, General Rosily granted me access to several port-folios, in which I found plans of various harbours and islands. In the department of Exterior Relations several persons furnished me with whatever they judged might be useful to my work; and in our Geographical Depository of the Interior, I have found several plans from which I have derived advantage. The keepers of the great National Library have, likewise, furnished me with all the books which I judged necessary to my design.
 
 Yet, as these aids were received successively, and many of 
 them at a time when my work was far advanced, I have not 
