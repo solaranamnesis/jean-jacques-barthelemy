@@ -24,130 +24,35 @@ The maps and plans of this new edition are much more perfect than those of the f
 
 At the _Dépôt de la Guerre_, General Ernouf caused to be communicated to me many maps and plans which I found of great utility; and at the _Dépôt de la Marine_, General Rosily granted me access to several port-folios, in which I found plans of various harbours and islands. In the department of Exterior Relations several persons furnished me with whatever they judged might be useful to my work; and in our Geographical Depository of the Interior, I have found several plans from which I have derived advantage. The keepers of the great National Library have, likewise, furnished me with all the books which I judged necessary to my design.
 
-Yet, as these aids were received successively, and many of 
-them at a time when my work was far advanced, I have not 
-been able to avail myself of tliem with respect to the parts of 
-it which were already begun. Hence it is that all tlie particular 
-maps of the countries of Greece are constructed on the original 
-plan, as are likewise the new maps of yEtoHa and the coasts of 
-Asia Minor. They are, however, corrected and improved, both 
-with respect to historical reference and the configuration of the 
+Yet, as these aids were received successively, and many of them at a time when my work was far advanced, I have not been able to avail myself of them with respect to the parts of it which were already begun. Hence it is that all the particular maps of the countries of Greece are constructed on the original plan, as are likewise the new maps of Ætolia and the coasts of Asia Minor. They are, however, corrected and improved, both with respect to historical reference and the configuration of the coasts; and they are also considerably enlarged, as will be evident on comparing them with those of the former editions. This plan has likewise obliged me to give the old _General Map of Greece and the Grecian Islands_, as affording a faithful copy, and exhibiting the connexion of the particular maps. This map is not superfluous, as it may appear at first view; since, being on the same scale with the new _General Map of Greece and the Grecian Colonies_, it serves to show the great alterations that have been made in the latter.
 
-Coasts ; and they are also considerably enlarged, as will be evi* 
-dent on comparing them with those of the former editions. This 
-plan has likewise obliged me to give the old General Map qf 
-Greece and the Grecian Islands j as affording a faithful copy, and 
-exhibiting the connexion of the particular maps. This map is 
-not superfluous, as it may appear at first view ; since, being on 
-the same scale with the new General Map of Greece and the 
-Grecian Colonies^ it serves to show the great alterations that 
-have been made in the latter. 
+The Critical Observations on the Maps, prefixed to them in the former editions, will consequently still apply to the particular maps, and are even necessary for understanding them. I shall therefore begin by transcribing them here, and afterwards give an account of the alterations I have made, as well in the new General Map as in the particular maps; annexing some circumstantial remarks on the plans. To these observations I shall only add some notes, to elucidate such parts of them, as may require explanation; at the same time making such little alterations in them as circumstances may render necessary.
 
-The Critical Observations on the Maps, prefixed to them in 
-the former editions, will consequently still apply to the particular 
-maps, and are even necessary for understanding them. I shall 
-therefore begin by transcribing them here, and afterwards give 
-an account of the alterations I have made, as well in the new 
-General Map as in the particular maps ; annexing some circum- 
-stantial remarks on the plans. To these observations I shall 
-only add some notes, to elucidate such parts of them, as may 
-require explanation ; at the same time making such little altera^ 
-tions in them as circumstances may render necessary. 
+---
 
+In geography, when a map is copied from another map, the imitation should be candidly avowed; and when it differs essentially from all other maps of the same country, the authorities on which such difference is founded should be assigned. In compliance with this principle, I shall proceed to explain, as succinctly as possible, the guides I have followed, and the reasons by which I have been influenced, in compiling the maps of ancient Greece which accompany the Travels of Anacharsis.
 
-In geography, when a map is copied from another map, the 
-imitation should be candidly avowed ; and when it differs essen- 
-tially from all other maps of the same country, the authorities 
-on which such dirference is founded should be assigned. In 
-compliance with this principle, I shall proceed to explain, as 
-succinctly as possible, the guides I have followed, and the rea- 
-sons by which I have been influenced, in compiling the maps 
-of ancient Greece which accompany the Travels of Ana- 
-charsis. 
+In this examination I shall not include the particular plans, because each of them would furnish matter for one, or even for more than one memoir.* I must however acknowledge, that those of the battles of Salamis and Platæa would have been very imperfect, if the Count de la Luzerne, the present minister for naval affairs, had not been so obliging as to favour me with his advice, and read the ancient authors with my drawings before him. I am likewise indebted to the Count de Choisseul-Gouffier for his generous communications of all the plans and surveys he had taken in the country; and it is certain that the most accurate of my maps are those which are laid down after his plans. They are almost all by M. Foucherot, engineer for bridges and causeways,* who not only put into my hands his drawings and manuscript journals, but has also described to me, as distinctly as possible, the parts of his route where he had not time to take observations, and which were necessary to my design. The geographical collection for foreign affairs, in which the late Count de Vergennes permitted me to make researches, has also furnished me with a number of other plans of ports and islands; and I have found in the library of the king, though not the entire voyage of the Abbé Fourmont, yet at least several fragments of it, of which I have made every possible use.*
 
-tn this examination I shall not include the particular plans, 
-because each of them would furnish matter for one, or even for 
-more than one memoir.* I must however acknowledge, that 
-those of the battles of Salamis and Platsea would have been 
-very imperfect, if the Count de la Luzerne, the present minister 
-for naval affairs, had not been so obliging as to favour me with 
-his advice, 'and read the ancient authors with my drawings 
-before him. I am likewise indebted to the Count de Choisseul- 
-G ouffier for his generous communications of all the plans and 
-surveys he had taken in the country ; and it is certain that the 
-most accurate of my maps are those which are laid down after 
-his plans. They are almost all by M. Foucherot, engineer for 
-bridges and causeways,^ who not only put into my hands his 
-drawings and manuscript journals, but has also described to 
-me, as distinctly as possible, the parts of his route where he had 
-not time to take observations, and which were necessary to my 
-design. The geographical collection for foreign affairs, in 
-which the late Count de Vergennes permitted me to make re- 
-searches, has also furnished me with a number of other plans 
-of ports and islands ; and I have found in the library of the 
-king, though not the entire voyage of the Abb^ Fourmont, yet 
-at least several fragments of it, of which I have made every 
-possible use. I 
+The heirs of the late M. d'Anville* have also communicated to me the notes of that celebrated geographer, to whom the science of geography is so much indebted, and whose very errors are respectable, since they only prove the imperfection of geographical knowledge at the time when he compiled his maps. I have also found in some geographical manuscripts of the late M. Freret, well known for his profound erudition, digested extracts from the Portulans,* which I shall frequently have occasion to cite. It now only remains for me to speak of a work on geography, in modern Greek, by Meletius, archbishop of Athens, and a native of Joannina in Epirus, written about the end of the last century, and printed at Venice in 1728, in one volume folio.* I have made use of it in several instances for the northern parts of Greece; but I could not for the Peloponnesus, because the maps of that peninsula were already engraved before the work fell into my hands. I must likewise add, that, if my maps are less imperfect than those which have preceded them, they are indebted for a part of their merit to the author of the Travels of Anacharsis, who has assisted me in my inquiries, and discussed with me several essential points.
 
-The lieirs of the late M. d'Anville § have also communicated 
+I likewise shall not include in this examination the chart of the Palus Mæotis and Pontus Euxinus, because time and events having furnished us with a considerable accession to our knowledge of those places since it has been completed, it would be necessary to lay it down entirely anew.* I shall therefore confine myself to the General Map of Greece, and the particular maps of each of its provinces.
 
-* I shall DOW subjoin some remarks on them in the sequel of these Obsenrations. 
+*) I shall now subjoin some remarks on them in the sequel of these Observations.
 
-t M. Foucherot is now a member of the National Institute, an honour well merited 
-by his great abilities. 
+*) M. Foucherot is now a member of the National Institute, an honour well merited by his great abilities.
 
-% Since I wrote these first observations^ I have fbund, in the National Library, 
-many other papers of the Abb6 Fourmont, which have enabled me to restore his Journal. 
-What I have extracted from these papers might furnish materials for a tolerable volume 
-in quarto. 
+*) Since I wrote these first observations, I have found, in the National Library, many other papers of the Abbé Fourmont, which have enabled me to restore his Journal. What I have extracted from these papers might furnish materials for a tolerable volume in quarto.
 
-§ I esteem^ and ever shall esteem it, an honour^ to have been the only pupil of 
-M* cl'AnviUe, 
+*) I esteem, and ever shall esteem it, an honour, to have been the only pupil of M. d'Anville.
 
-to me the notes of that celebrated geographer, to whom the 
-science of geography is so much indebted, and whose very 
-errors are respectable, since they only prove the imperfection 
-of geographical knowledge al the time when he compiled his. 
-maps. I have also found in some geographical manuscripts of 
-the late M. Freret, well known for his profound erudition, di- 
-gested extracts from the Portulans,* which 1 shall frequently 
-have occasion to cite. It now only remains for me to speak of 
-a work on geography, in modern Greek, by Meletius, arch- 
-bishop of Athens, and a native of Joannina in F.pirus, written 
-about the end of the last century, and printed at ^'^enice in 
-1728, in one volume folio.-t I have made use of it in several 
-instances for the northern parts of Greece ; but I could not ior 
-the Peloponnesus, because the maps of that peninsula were 
-already engraved before the work fell into my hands. I must 
-likewise add, that, if my maps are less imperfect than those 
-which have preceded them, they are indebted for a part of 
-their merit to the author of the Travels of Anacharsis, who has 
-assisted me in my inquiries, and discussed with me several es- 
-sential points. 
+*) Collections of charts, surveys, and descriptions of different ports, roads, etc.
 
-I likewise shall not include in this examination the chart of 
-the Palus Ma-otis and Pontus Euxinus, because time and events 
-having furnished us with a considerable accession to our know- 
-ledge of those places since it has been completed, it would be 
-necessary to lay it down entirely anew.:^ I shall therefore 
+*) To this treatise on geography must be added that of Demetrius Phillipides, likewise in modern Greek, of which I have given an account in the _Magazin Encyclopédique_, 2d year, vol. 6.
 
-* Collections ofcliarU, surveys, and descrtptioos urditferent porCi, roads, S:c. 
-f To this treatise on geograpliy must be added timt of Demetrius PhillipidH, like- 
-wise ill modem Gieek, of wbich I have given an account in tlie Magasin Enct/clopiiiigue, 
+*) This map has been re-drawn for this new edition; and I shall say a few words in the sequel of these Observations relative to the authorities on which I have relied in its construction.
 
-
-% This map has been re-drswn for this new edition; and I shall aay a few words ii 
-sequel of these Observations relative to ihe authoritiet on which I have relied i 
-construction. 
-
-confine myself to the General Map of Greece, and the particu- 
-lar maps of each of its provinces. 
-
-I have made use of all the astronomical observations that I 
-have been able to procure^ when I have found them accurate ; 
-and, in defect of these, have had recourse to the distances given 
-by the ancients and moderns. But it will be first necessary to 
-give an account of the measures I have employed. 
+I have made use of all the astronomical observations that I have been able to procure, when I have found them accurate; and, in defect of these, have had recourse to the distances given by the ancients and moderns. But it will be first necessary to give an account of the measures I have employed.
 
 In all the maps, I have used, for the comparative scale, after 
 the example of M. d'Anville, the common French leagues of 
@@ -158,28 +63,24 @@ my maps I estimate at 94 toises 5 feet, is deduced from the
 length which M. le Roi assigns to the Grecian foot.* As to 
 the Pythian stadium, it is that which M. d'Anville has before 
 used, and which he fixes at one-tenth part of the Roman mile, 
-or four-fifths of the Olympian stadium.^ I have named it Py- 
-thian,-f • because it appears to me to have been principally in use 
-in the north of Greece ; and because, according to the remark 
-of Spon,^ the stadium which still exists at Delphi is shorter than 
-that of Athens. J By the measures which we have of the latter, 
+or four-fifths of the Olympian stadium.* I have named it Py- 
+thian,* because it appears to me to have been principally in use 
+in the north of Greece; and because, according to the remark 
+of Spon,* the stadium which still exists at Delphi is shorter than 
+that of Athens.* By the measures which we have of the latter, 
 it appears that it was of the length, or nearly so, of the Olym- 
 
+*) And in this new edition the republican myriameters, one of which is somewhat more than two of the old common French leagues --- 2500 toises being 4870 metres, 99 centièmes (or hundredths).
 
-♦ And in this new edition the republican myriameters, one of which is somewhat 
-more than two of the old common French leagues — ^2500 toises being 4870 metres, 99 
-centiemes (or hundredths). 
+*) Le Roi, Ruines de la Grèce, t. 1. p. 32.
 
-» Le Roi, Ruines de la Grdce, t. i. p. 32. *> D'Anville, Trait, des Mes. Itin. 
+*) D'Anville, Trait. des Mes. Itin.
 
-f M. Bonne, in his Remarks on the Maps to the EncychpSdie MSthodigue^ had called 
-it so before. 
+*) M. Bonne, in his Remarks on the Maps to the _Encyclopédie Méthodique_, had called it so before.
 
-c Spon, Voyag. t. ii. p. 38. 
+*) Spon, Voyag. t. 2. p. 38.
 
-X This ii a fact which may be elucidated by M. Fauvel, member of the National In- 
-stitute, residing at Athens ; for he has been at Delphi, as he informs me in a letter dated 
-14th Ventose, year 6. 
+*) This is a fact which may be elucidated by M. Fauvel, member of the National Institute, residing at Athens; for he has been at Delphi, as he informs me in a letter dated 14th Ventose, year 6.
 
 
 pian stadium. It is true that Censorinus/ when comparing the 
@@ -889,7 +790,7 @@ I shall speak presently, would not permit me to admit a greater.
 The first distance is laid down in a right line, within about twelve 
 stadia. 
 
-The bottom of the sea of Crissa is determined — 1. From the 
+The bottom of the sea of Crissa is determined --- 1. From the 
 
 
 
@@ -1648,7 +1549,7 @@ part of which were free. One among others, that of the Mo-
 
 
 
-Illjrricum, Colchiniutn, afterwards called simply Olchiniutn ; — in Italy the cities of Posi- 
+Illjrricum, Colchiniutn, afterwards called simply Olchiniutn ; --- in Italy the cities of Posi- 
 donia, afterwards Peestum ; Diceearchia, afterwards Puteoli ; Anxur, afterwards Terra- 
 eina; Maleventum, afterwards Beneventum; Argyrippa, afterwards Arpi; and the 
 countries of lapygia and Tyrrhenia, afterwards named Apulia and Etruria, &c. &c. 
@@ -2513,8 +2414,8 @@ is not interrupted as it was before. The whole of the island of
 9 ,^chin. contra Ctesiph. p. 447. ' Pausan. lib, 10. c. 38. p, 
 57. p. 893. ' Strab. lib. 9. p, il8. Harpocrat. verb. Ki^l^oi'. 
 
-Scopelos, and a part of that of Halonesus, — and, to the north, 
-a part of the river Haliacmon, — are likewise inserted. 
+Scopelos, and a part of that of Halonesus, --- and, to the north, 
+a part of the river Haliacmon, --- are likewise inserted. 
 
 The map of ^tolia and Acarnania was not in the fonner 
 editions ; but, as I have already said, it was indispensably ne- 
@@ -2970,7 +2871,7 @@ published, I shall refer the reader to the observations with which
 
 
 
-••Note! ManuBCT. "^Pauaan. lib. 4. cap. 24. page 365 el S67. — See above, page I' 
+••Note! ManuBCT. "^Pauaan. lib. 4. cap. 24. page 365 el S67. --- See above, page I' 
 ' Motes Maniuct. * Note Manuacrite de M. de la Nouze. *' Niebuhr, Voyag. e 
 Arabic, t. i. p. 16- ■ Notes Manuacr- " Niebuhr, ibid. p. 17. 
 
@@ -3298,7 +3199,7 @@ following years, according to the observations of M. Tondu, at
 40° 1'. Tarapia is set down in 26° 40' 28", east of the meridian 
 
 " Notes Manuscrite*. 
-32S— 605 et seq. 
+32S--- 605 et seq. 
 
 
 * See above, p. 35- 
@@ -3731,7 +3632,7 @@ ment, or that at the back of the temple. It must, then, be the anterior one, or
 that in front of the temple ; and the bas-relief on it must represent some subject 
 which hra a relation to the birth of Minerva, In fact, if we do not find there the 
 actual birth of Minerva, that is to say, Pallas issuing from the brain of Jupiter 
-completely armed, we at least find what must have followed her birth — the 
+completely armed, we at least find what must have followed her birth --- the 
 presentation which that god made of Minerva, in a decent habit, to the goddesses 
 of Olympus assembled, it is in this manner that Spon and Whelerhave already 
 described this bas-relief;" and though Stuart, in the restoration he has offered, 
@@ -3901,7 +3802,7 @@ No. 11. Is a drachma, worth 18 sous (or 9 pence).
 No. 7. Is an obelus, or the sixth part of a drachma, worth 3 sous (or 3 
 halfpence). 
 
-No. 9. Is a semi-obolus^ worth 1 sou 6 deniers (3 farthings). — For these five 
+No. 9. Is a semi-obolus^ worth 1 sou 6 deniers (3 farthings). --- For these five 
 coins, see Table xiv. Vol. vi. p. 334, et seq. 
 
 
