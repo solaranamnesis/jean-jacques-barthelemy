@@ -54,21 +54,7 @@ I likewise shall not include in this examination the chart of the Palus Mæotis 
 
 I have made use of all the astronomical observations that I have been able to procure, when I have found them accurate; and, in defect of these, have had recourse to the distances given by the ancients and moderns. But it will be first necessary to give an account of the measures I have employed.
 
-In all the maps, I have used, for the comparative scale, after 
-the example of M. d'Anville, the common French leagues of 
-2500 toises,* because they have appeared to me in general to 
-correspond very nearly with the hour's journey employed by 
-travellers in these countries. The Olympian stadium, which in 
-my maps I estimate at 94 toises 5 feet, is deduced from the 
-length which M. le Roi assigns to the Grecian foot.* As to 
-the Pythian stadium, it is that which M. d'Anville has before 
-used, and which he fixes at one-tenth part of the Roman mile, 
-or four-fifths of the Olympian stadium.* I have named it Py- 
-thian,* because it appears to me to have been principally in use 
-in the north of Greece; and because, according to the remark 
-of Spon,* the stadium which still exists at Delphi is shorter than 
-that of Athens.* By the measures which we have of the latter, 
-it appears that it was of the length, or nearly so, of the Olym- 
+In all the maps, I have used, for the comparative scale, after the example of M. d'Anville, the common French leagues of 2500 toises,* because they have appeared to me in general to correspond very nearly with the hour's journey employed by travellers in these countries. The Olympian stadium, which in my maps I estimate at 94 toises 5 feet, is deduced from the length which M. le Roi assigns to the Grecian foot.* As to the Pythian stadium, it is that which M. d'Anville has before used, and which he fixes at one-tenth part of the Roman mile, or four-fifths of the Olympian stadium.* I have named it Pythian,* because it appears to me to have been principally in use in the north of Greece; and because, according to the remark of Spon,* the stadium which still exists at Delphi is shorter than that of Athens.* By the measures which we have of the latter, it appears that it was of the length, or nearly so, of the Olympian stadium. It is true that Censorinus,* when comparing the stadia, which he calls Italian, Olympian, and Pythian, makes the latter consist of 1000 feet; while the first, according to him, only contains 625, and the second 600. But Aulus Gellius, who wrote in Greece, expressly says* that the Olympian was the longest of all the stadia; and besides, M. d'Anville,* and before him Lucas Pœtus, have already remarked that Censorinus here distinguished the Italian from the Olympian stadium, only from not knowing the difference of the feet of which they were composed, and that 625 Roman feet are equal to 600 Grecian Olympian feet. We cannot therefore rely on the measure of the Pythian stadium of Censorinus. Yet, if we take the 1000 feet for the measure of the diaulus, or double stadium, we shall still have, for the length of the Pythian stadium, 500 feet, which are exactly four-fifths of 625 Roman feet. However this may be, the Pythian stadium, being shorter by one-fifth than the Olympian, must be equal to 75 toises 5 feet 2 inches 4 4/5 lines, French measure, or, to avoid fractions, 76 toises (161 yards, 2 feet Eng.) as it has been estimated by M. d'Anville.*
 
 *) And in this new edition the republican myriameters, one of which is somewhat more than two of the old common French leagues --- 2500 toises being 4870 metres, 99 centièmes (or hundredths).
 
@@ -82,105 +68,47 @@ it appears that it was of the length, or nearly so, of the Olym-
 
 *) This is a fact which may be elucidated by M. Fauvel, member of the National Institute, residing at Athens; for he has been at Delphi, as he informs me in a letter dated 14th Ventose, year 6.
 
+I have sometimes made use of a still shorter stadium, or that which M. d'Anville calls the Macedonian, or Egyptian,* and which he estimates, in several places, at from fifty toises to fifty-four, or even more.
 
-pian stadium. It is true that Censorinus/ when comparing the 
-stadia, which he calls Italian, Olympian, and Pythian, makes 
-the latter consist of 1000 feet; while the first, according to 
-him, only contains 69.5, and the second 600. But Aulas Geliius, 
-who wrote in Greece, expressly says^ that the Olympian was 
-tlie longest of all the stadia ; and besides, M. d'Anville,' and 
-before him Lucas Foetus, have already remarked that Cen- 
-sorinus here distinguished the Italian from the Olympian sta- 
-dium, only from not knowing the ditference of the feet of which 
-they were composed, and that 625 Roman feet are equal to O'OO 
-Grecian Olympian feet. We cannot therefore rely on the mea- 
-sure of the Pythian stadium of Censorinus. Yet, if we take the 
-1000 feet for the measure of the diauius, or double stadium, we 
-shall still have, for the length of the Pythian stadium, 500 feet, 
-which are exactly four-fifths of 625 Roman feet. However this 
-may be, the Pythian stadium, being shorter by one-fifth tlmn 
-the Olympian, must be equal to 75 toises 5 feet 2 inches 44 lines, 
-French measure, or, to avoid fractions, 76 toises (l6l yards, 2 
-feet Eng.) as it has been estimated by M. d'Anville.^ 
+The projection of the General Map* is on the hypothesis which considers the earth as a plane; at least the diminution of the degrees of longitude is calculated from the table at the end of the Supplements to the Astronomy of M. de Lalande,* for the difference between this hypothesis and that of the spherical figure of the earth is almost insensible on the scale that I have chosen. The meridians being right lines on my map, their intervals have been ascertained by the tangents of the parallels 36 and 40; and I have always taken the degree of latitude at 57,000 toises, in round numbers, as it has been estimated in the table of M. Schulze,* for the latitude of 39 degrees. It is not necessary to mention that the curvature of the parallels has been determined and laid down on each meridian from the difference of the secant and the radius; but it may be proper to remark, that if the parallels are right lines on the particular maps, it is because it would otherwise have been very difficult to lay down the different bearings of which I shall have occasion to say more presently; and because, besides, the curvature would have been scarcely perceivable. I have likewise not marked the longitude on the particular maps; because having no observation relative to it through the whole extent of country which they represent, it would have been necessary at least to reach Salonichi, from which it must have been computed.
 
-I have sometimes made use of a still shorter stadium, or that 
-which M. d'Anville calls the Macedonian, or Egyptian,*" and 
-which he estimates, in several places, at from fifty toises to fifty- 
-four, or even more. 
+*) Censor. de Die Nat. cap. 13.
 
-The projection of the General Map* is on the hypothesis 
-which considers the earth as a plane ; at least the diminution of 
+*) Aull. Gell. Noct. Att. lib. 1. cap. 1.
 
+*) D'Anville, Trait. des Mes. Itin. p. 14 et 70.
 
+*) Id. ibid. p. 71.
 
-" Censor, de Die Nal. cap. l.t. ' Aull. Gell. Noct. Alt. lib. 1, cap. 1. 
+*) Id. Eclaircis. Géorg. sur l'Anc. Gaule, p. 162; Trait. des Mes. Itin. p. 93.
 
-f lyAoviUe, Trail, des Mes. Itin. p. 14 et 70. « Id. ibid. p. 71. 
+*) That of _Greece and the Grecian Islands_; for I shall speak of the projection of the new _General Map of Greece and the Grecian Colonies_ in the continuation of these Observations.
 
-'• Id, Eclaircis. Georg. sur I'Anc. Gaule, p. 162; Trait, dee Mes. Itin. p. 93. 
-• That of Greece and the Grecian Is/andi ; for I ahall speak of the projection of ihe 
-new General Map of Greece and the Grecian Colonies in the continuation of these Obser* 
+The General Map,* on the contrary, is supported by several observations of longitude and latitude. The position of Constantinople, formerly Byzantium, is taken from the _Connoissance de Temps_ for the year 1788; and the latitude and longitude of Salonichi, formerly Therma, at the bottom of the Thermaic Gulf; of Smyrna, on the coast of Asia; and of Candia and Canea, in the island of Crete, have been observed by Father Feuillée. M. de Chazelles has given us the latitude of Rhodes, and other navigators have furnished me with that of several of the islands of the Archipelago.*
 
-the degrees of longitude is calculated from the table at the end 
-of the Supplements to the Astronomy of M. de Lalande ;' for 
-the difference between tliis hypothesis and that of the spherical 
-figure of the earth is almost insensible on the scale that I have 
-chosen. The meridians being right lines on my map, their 
-intervals have been ascertained by the tangents of the parallels 
-3G and 40 ; and I have always taken the degree of latitude at 
-57,000 toises, in round numbers, as it has been estimated io the 
-table of M. Schulze," for the latitude of 39 degrees. It is not 
-necessary to mention that the curvature of the parallels has been 
-determined and laid down on each meridian from the difference 
-of the secant and the radius ; but it may be proper to remark, 
-that if the parallels are right lines on the particular maps, it is 
-because it would otherwise have been very difficult to lay down 
-the different bearings of which I shall have occasion to say more 
-presently ; and because, besides, the curvature would have been 
-scarcely perceivable. I have likewise not marked the longitude 
-on the particular maps ; because having no observation relative 
-to it through the whole extent of country which they represent, 
-it would have been necessary at least to reach Salonichi, from 
-which it must have been computed. 
+*) De Lalande, Astronom. t. 4. p. 770.
 
-The General Map,* on the contrary, is supported by several 
-observations of longitude and latitude. The position of Con- 
-stantinople, formerly Byzantium, is taken from the Connoismnce 
-de Temps for the year 1788 ; and the latitude and longitude of 
-Salonichi, formerly Therma, at the bottom of the Thermaic 
-Gulf; of Smyrna, on the coast of Asia ; and of Candia and 
-Canea, in the island of Crete, have been observed by Father 
+*) Id. ibid. p. 777.
 
-' De Lalande, Astronotn. t. iv. p. 770, 
-' Of Greece and the Grecian Itiaudi, 
+*) Of _Greece and the Grecian Islands_.
 
-■ Id. ibid. p. 777. 
+I have not been able to make use of the observation of Father Feuillée at Milo, because it appears to me erroneous. M. d'Anville had before judged it to be so, since the longitude which he assigns to that island in his maps differs by about twenty minutes from that of Father Feuillée. The longitude of Melos in my map is almost the same with that in which it is laid down by M. d'Anville.*
 
-Feuillde. M. de Chazelles has given us the latitude of Rhodes, 
-and other navigators have furnished me with that of several of 
-the islands of the Archipelago.* 
-
-I have not been able to make use of the observation of 
-Father FeuilMe at Milo, because it appears to me erroneous. 
-M. d'Anville had before judged it to be so, since the longitude 
-which he assigns to that island in his maps differs by about 
-twenty minutes from that of Father Feuill^e. The longitude of 
-Melos in my map is almost the same with that in which it 
-is laid down by M. d'Auville.-j- 
-
-The particular maps have for their basis ; 1 . The observations 
+The particular maps have for their basis; 1. The observations 
 of latitude taken by Vernon at Athens, Negropont, or Chalcis, 
-in Euba^a, and at Sparta. 2. Two observations of latitude which 
+in Eubœa, and at Sparta. 2. Two observations of latitude which 
 I found in the papers of M. Freret. They were taken by M. de 
 Chazelles, one in the port of the island of Zante, or Zacynthus, 
-and the other to the south of Cape Matapan, or TjEiiarum, di- 
+and the other to the south of Cape Matapan, or Tænarum, di- 
 rectly west of the most southern point of the island of Cythera. 
-3. The latitude of Volo, formerly Pagasa?, at the bottom of the 
+3. The latitude of Volo, formerly Pagasæ, at the bottom of the 
 Pagastic Gulf, in Thessaly, given by Dapper, though I know 
-not whence he obtained it 4. That of Corfu, from the tables 
-of Riccioli and Pimentel, 5. That of Durazzo, or Epidamnus, 
+not whence he obtained it. 4. That of Corfu, from the tables 
+of Riccioli and Pimentel. 5. That of Durazzo, or Epidamnus, 
 
-* I ought to have m use of the latitudes of the islands of SapienzH, Cerigotto, 
+
+
+*) I ought to have m use of the latitudes of the islands of SapienzH, Cerigotto, 
 and Ovo, or that of Cape Si. Angelo, and even of those of Samoa, Nicaria, and the isle 
 of Fourni, as given in the Travels of Niebuhr into Arabia anij, the neighbouring coun- 
 tries (Amsterdam, 1774. in 4to, first volume): hut I was then little acquainted with 
