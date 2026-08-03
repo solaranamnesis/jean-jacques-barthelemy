@@ -94,176 +94,72 @@ The General Map,* on the contrary, is supported by several observations of longi
 
 I have not been able to make use of the observation of Father Feuillée at Milo, because it appears to me erroneous. M. d'Anville had before judged it to be so, since the longitude which he assigns to that island in his maps differs by about twenty minutes from that of Father Feuillée. The longitude of Melos in my map is almost the same with that in which it is laid down by M. d'Anville.*
 
-The particular maps have for their basis; 1. The observations 
-of latitude taken by Vernon at Athens, Negropont, or Chalcis, 
-in Eubœa, and at Sparta. 2. Two observations of latitude which 
-I found in the papers of M. Freret. They were taken by M. de 
-Chazelles, one in the port of the island of Zante, or Zacynthus, 
-and the other to the south of Cape Matapan, or Tænarum, di- 
-rectly west of the most southern point of the island of Cythera. 
-3. The latitude of Volo, formerly Pagasæ, at the bottom of the 
-Pagastic Gulf, in Thessaly, given by Dapper, though I know 
-not whence he obtained it. 4. That of Corfu, from the tables 
-of Riccioli and Pimentel. 5. That of Durazzo, or Epidamnus, 
+The particular maps have for their basis; 1. The observations of latitude taken by Vernon at Athens, Negropont, or Chalcis, in Eubœa, and at Sparta. 2. Two observations of latitude which I found in the papers of M. Freret. They were taken by M. de Chazelles, one in the port of the island of Zante, or Zacynthus, and the other to the south of Cape Matapan, or Tænarum, directly west of the most southern point of the island of Cythera. 3. The latitude of Volo, formerly Pagasæ, at the bottom of the Pagastic Gulf, in Thessaly, given by Dapper, though I know not whence he obtained it. 4. That of Corfu, from the tables of Riccioli and Pimentel. 5. That of Durazzo, or Epidamnus, in Illyricum, according to the table of Philip Lansberge. And, 6. The latitude and longitude of Salonichi, to which I have had recourse to determine the longitude of all Greece in the General Map.
 
+*) I ought to have made use of the latitudes of the islands of Sapienza, Cerigotto, and Ovo, or that of Cape St. Angelo, and even of those of Samos, Nicaria, and the isle of Fourni, as given in the Travels of Niebuhr into Arabia and the neighbouring countries (Amsterdam, 1774, in 4to, first volume); but I was then little acquainted with those excellent Travels. I was, besides, not very well provided with books, and it will doubtless be perceived that I am not much better furnished with them at present.
 
+*) The longitude of Milo given by Father Feuillée is certainly erroneous, but the latitude is very accurate; and if I was not able to make use of it in my first General Map, it was because, in giving the distance suitable to the space comprised between Attica and Melos, I had placed Athens too much to the north; as will be seen in the continuation of these Observations.
 
-*) I ought to have m use of the latitudes of the islands of SapienzH, Cerigotto, 
-and Ovo, or that of Cape Si. Angelo, and even of those of Samoa, Nicaria, and the isle 
-of Fourni, as given in the Travels of Niebuhr into Arabia anij, the neighbouring coun- 
-tries (Amsterdam, 1774. in 4to, first volume): hut I was then little acquainted with 
-those excellent Travels. I was, besides, not very well provided with books, and it will 
-doubtless be perceived that I am not much better furnished with them at present. 
+The latitude of Athens, from which I have taken my departure for all my particular maps, according to the observations of Vernon,* is 38° 5′. M. d'Anville mentions another observation, which places that city in 38° 4′ only;* but as I have not found it among his papers, I have followed that of Vernon.*
 
-f The longitude of Milo given by Father Feuillee is certainly erroneous, but the 
-latitude is very accurate ; and if I was not able lo make use of It in my first General 
-Map, it was because, in giving the distance suitable lo the space comprised between 
-Attica and Melos, I had placed Athens loo much to the north ; as will be seen in the 
-coatinuation of these Observations. 
+I have adjusted to the position of Athens the plan of the bay and isle of Coulouri, which was taken by M. Foucherot in 1781, and which I have accurately copied in my plan of the battle of Salamis. I have also adjusted to the same position a manuscript map of the Gulf of Engia, taken by the Marquis De Chabert, in 1776.* This map has likewise given me the figure of all the islands of the Saronic Sea, the point of Cape Scyllæum, and even the position of the Acro-corinthus. The bearing of the promontory of Sunium from the summit of the mountain in Ægina, does not, indeed, accord with that given by Wheler;* but the position of the Acro-corinthus is also in this map more southerly than that of Athens, by about four thousand one hundred and fifty toises, or a little more than four minutes of latitude, precisely as I found it in 1782. I have ascertained this position entirely from comparing and combining the bearings given by Wheler of Athens and Mount Hymettus, from the Acro-corinthus,* and of the Acro-corinthus from Mount Hymettus;* for I then had not seen the map of M. de Chabert. The latitude of Corinth therefore cannot be, as the observation of Vernon makes it, 38° 14′;* but must be about 38° 1′ 30′′, as it is laid down in my maps.*
 
-in lUyricum, according to the table of Philip Lansberge. And, 
-6. The latitude and longitude of Salonichi, to which 1 have had 
-recourse to determine the longitude of all Greece in the General 
-Map. 
+*) Journal de Vernon, à la suite de la Reponse de Spon à la Critique de Guillet, page 302.
 
-The latitude of Athens, from which I have taken my depar- 
-ture for all my particular maps, according to the observations 
-of Vernon,^ is 38° 5\ M. d'Anville mentions another obser- 
-vation, which places that city in 38° 4' only f but as I have not 
-found it among his papers, I have followed that of Vernon.* 
+*) D'Anville, Anal. des Côtes de la Grèce.
 
-I have adjusted to the position of Athens the plan of the bay 
-and isle of Coulouri, which was taken by M. Foucherot in 1781, 
-and which I have accurately copied in my plan of the battle of 
-Salamis. 1 have also adjusted to the same position a manuscript 
-map of the Gulf of Engia, taken by the Marquis De Chabert, 
-in 1776.-f This map has likewise given me the figure of all the 
-islands of the Saronic Sea, the point of Cape Scyllseum, and 
-even the position of the Acro-corinthus. The bearing of the 
-promontory of Sunium from the summit of the mountain in 
-iEgina, does not, indeed, accord with that given by Wheler ;" 
-but the position of the Acro-corinthus is also in this map more 
-southerly than that of Athens, by about four thousand one 
-hundred and fifty toises, or a little more than four minutes of 
-latitude, precisely as I found it in 1782. I have ascertained 
-this position entirely from comparing and combining the bear- 
-ings given by Wheler of Athens and Mount Hymettus, from the 
+*) This observation of Vernon is inaccurate; Athens is somewhat more to the south, being situate in 37° 58′ 1′′; as will be seen hereafter.
 
-1 Journal de Vernon, ^ la suite dg la Reponse de Spon k la Criti<}ue de Guillet, pagt 
-S02. " D'Anville, Anal, des Cdtes de la Gr^e. 
+*) I shall again have occasion to speak of this map in the continuation of these observations.
 
-* This observation of Vernon is inaccurate ; Athens is somewhat more to the south, 
-being situate in 37^ 58' 1 '^ ; as will be seen hereafter. 
+*) Wheler's Journey, book 6. p. 449.
 
-f I shall again have occasion to speak of this map in the continuation of these obser* 
-vations. 
+The situation of Corinth thus determined, I have adjusted to its position a map of the Isthmus, taken geometrically by the Venetians in 1697, of which an engraving has been given by Bellin, in his Description of the Gulf of Venice and the Morea.* This map, which is constructed with great care, has enabled me to assign with sufficient accuracy the situation of the promontory Olmiæ, though it is not found in it. Wheler has observed that this promontory bears north-north-east of the Acro-corinthus;* and Livy says that a temple of Juno Acræa, built on this promontory, was only about seven Roman miles distant from Corinth.*
 
-^ Wheler's Joumey^ book vi. p. 449. 
+Between Corinth and Argos, the ancients, according to Strabo, reckoned two hundred stadia;* and, at present, about eight or nine hours are required to go, by the shortest road,* from Corinth to Napoli di Romania, or Nauplia, which is but a little farther than Argos. In my maps, the distance between Corinth and Argos, in a right line, is one hundred and eighty Olympian stadia, and about seven hours and one third, of twenty-five hundred toises each, between Corinth and Nauplia.
 
-Acro-corinthus,° and of the Acro-corinthus from Mount Hy- 
-mettus ;P for I then had not seen the map of M. de Chabert. 
-The latitude of Corinth therefore cannot be, as the observation 
-of Vemqp makes it, 38° 14' ; ^ but must be about 38° 1' 3CK, as 
-it is laid down in my maps.* 
+Argos has always been placed in the maps almost due south of Corinth; but the situation of the southern coast of Argolis, and in particular the position of the isle of Hydrœa, has obliged me to lay it down much more to the west. The citadel of Argos, Nauplia, or Napoli, and Tiryns, at present Old Napoli, are laid down from observations, taken on the spot by M. Foucherot, from two different stations; first, on coming out of a defile near Mycenæ, and afterwards from the city of Argos itself. From the latter station M. Foucherot has also observed the bearing of that part of the coast of Laconia which advances most to the east. All these observations have been taken according to the north indicated by the compass; but I have rectified them to the true meridian, by allowing for the variation of the needle 13° 15′ towards the west, which was found to be its variation in these countries, by M. de Chabert, in 1776.
 
-The situation of Corinth thus determined, I have adjusted to 
-its position a map of the Isthmus, taken geometrically by the 
-Venetians in 1697, of which an engraving has been given by 
-Bellin, in his Description of the Gulf of Venice and the Morea/ 
-This map, which is constructed with great care, has enabled me 
-to assign with sufficient accuracy the situation of the promon- 
-tory Olmife, though it is not found in it. Wheler has observed 
-that this promontory bears north-north-east of the Acro-corin- 
-thus ;* and Livy says that a temple of Juno Acraea, built on this 
-promontory, was only about seven Roman miles distant from 
-Corinth.* 
+*) Wheler's Journey, book 6. p. 443.
 
-Between Corinth and Argos, the ancients, according to 
-Strabo, reckoned two hundred stadia;^ and, at present, about 
-eight or nine hours are required to go, by the shortest road,* 
-from Corinth to Napoli di Romania, or Nauplia, which is but 
-a little farther than Argos. In my maps, the distance between 
-Corinth and Argos, in a right line, is one hundred and eight)^ 
-Olympian stadia, and about seven hours and one third, of twenty- 
-five hundred toises each, between Corinth and Nauplia. 
+*) Id. ibid. p. 410.
 
-Argos has always been placed in the maps almost due south 
+*) Journal de Vernon, p. 302.
 
-® Wheler 8 Journey, book vi. p. 443. p Id. ibid. p. 410. *» Journal de Vernon, 
-p. 802. 
+*) The city of Corinth is really situate in 37° 54′ and some seconds, as will be seen hereafter.
 
-* The city of Corinth is really situate in 37^ 54' and some seconds, as will be seen 
-hereafter. 
+*) Bellin, Descript. du Golfe de Ven. pl. 48. p. 230.
 
-' Bellin, Descript. du Golfe de Ven. pi. xlviii. p. 230. * Wheler's Journey, book 
-vi. p. 448. » Lir. lib 32. c. 23. » Strab. lib. 8. p. 377. * Pocock, t. iii. p. J 75. 
-Foucheroty Voyag. Manuscr. 
+*) Wheler's Journey, book 6. p. 443.
 
-of Corinth ; but the situation of the southern coast of Argolis, 
-and in particular the position of the isle of Hydroea, has obliged 
-me to lay it down much more to the west. The citadel of Argos, 
-Nauplia, or Napoli, and Tiryns, at present Old Napoli^ are laid 
-down from observations, taken on the spot by M. Foucherot, 
-from two different stations ; first, on coming out of a defile near 
-Mycenae, and afterwards from the city of Argos itself. Froni 
-the latter station M. Foucherot has also observed the bearing of 
-that part of the coast of Laconia which advances most to the 
-east. All these observations have been taken according to the 
-north indicated by the compass ; but 1 have rectified them to 
-the true meridian, by allowing for the variation of the needle 
-13° 15' towards the west, which was found to be its variation in 
-these countries, by M. de Chabert, in 1776. 
+*) Liv. lib. 32. c. 23.
 
-To the position of Nauplia, or Napoli, 1 have adjusted two 
-manuscript charts taken in 1735, by the late M. Verguin, en- 
-gineer in the naval service. They have furnished me with the 
-coast and islands of Argolis, from the confines of Laconia to 
-Cape Acra. I shall say nothing of the merit of these charts, 
-but content myself with referring to M. d'Anville,y who did not 
-make use of them till he had ascertained their accuracy.* Some 
-observations that have been taken of the bearings of the neigh- 
-bouring places from Cape Acra, and the islands Tiparenus and 
-Aristera, now the isles of Especi and Especi-Poulo, have given 
-me the position of Mount Buporthmos, and the islands Ape- 
-ropia and Hydrsea. These observations, which I have found 
-among the papers of M. Freret, have appeared to me to be by 
+*) Strab. lib. 8. p. 377.
 
-y D'Anville, Anal, des C6te8 de la Gr^ce. 
+*) Pocock, t. 3. p. 175. Foucherot, Voyag. Manuscr.
 
-* Yet they make the coast of Argolis, from Nauplia» or Napoli, to the island Tipa- 
-renusy now TEspeci, a little too long, as has been observed by M. de Chabert. 
+To the position of Nauplia, or Napoli, I have adjusted two manuscript charts taken in 1735, by the late M. Verguin, engineer in the naval service. They have furnished me with the coast and islands of Argolis, from the confines of Laconia to Cape Acra. I shall say nothing of the merit of these charts, but content myself with referring to M. d'Anville,* who did not make use of them till he had ascertained their accuracy.* Some observations that have been taken of the bearings of the neighbouring places from Cape Acra, and the islands Tiparenus and Aristera, now the isles of Especi and Especi-Poulo, have given me the position of Mount Buporthmos, and the islands Aperopia and Hydræa. These observations, which I have found among the papers of M. Freret, have appeared to me to be by M. Verguin,* which has induced me to make use of them with confidence. The figure of these islands, and that of the coast opposite to Scyllæum, are taken from another manuscript chart, drawn by the pilot Vidal, in 1735, which I have compared with that of this same coast, given by Desmouceaux.*
 
-M. Verguin,* which has induced me to make use of them with 
-confidence. The figure of these islands, and that of the coast 
-opposite to Scyllaeum, are taken from another manuscript chart, 
-drawn by the pilot Vidal, in 173.1, which I have compared with 
-that of this same coast, given by Desmouceaux.' 
+*) D'Anville, Anal. des Côtes de la Grèce.
 
-The situation of Hermione, now Castri, is likewise ascer- 
-tained by its distance from Troezen, or Damala. M. Fourmont 
-says,' that he employed four or five hours in going from one of 
-these places to the other. That of the island Hydriea is also 
-given by the observation of Tournefort,*" of its bearing from his 
-station in the island of Zia, formerly Ceos ; and the latter is 
-laid down from its distance from the promontory of Sunium, 
-and from the bearings observed by Wheler from that promon- 
-tory,'^ which extend to Anti-Milo. 
+*) Yet they make the coast of Argolis, from Nauplia, or Napoli, to the island Tiparenus, now l'Especi, a little too long, as has been observed by M. de Chabert.
+
+The situation of Hermione, now Castri, is likewise ascertained by its distance from Trœzen, or Damala. M. Fourmont says,* that he employed four or five hours in going from one of these places to the other. That of the island Hydræa is also given by the observation of Tournefort,* of its bearing from his station in the island of Zia, formerly Ceos; and the latter is laid down from its distance from the promontory of Sunium, and from the bearings observed by Wheler from that promontory,* which extend to Anti-Milo.
 
 Leaving Argos, Pliny has enabled me to determine the 
 breadth of Peloponnesus. He says that the distance from Ar- 
-gos to Olympia, crossing Arcadia, is sixty-eight Roman miles.'' 
-I have taken these in a right line ; because, after having consi- 
+gos to Olympia, crossing Arcadia, is sixty-eight Roman miles.* 
+I have taken these in a right line; because, after having consi- 
 dered the road which passes through Megalopolis, I have found 
 that it does not depart much from a right line, and yet gives a 
-considerably greater distance. In fact, the table of Peutinger' 
-gives twelve miles from Olympia to Meliena?, twenty two from 
-Melaenpe to Megalopolis, and twenty from Megalopolis (o Te- 
-gea. From Tegea to Argos the distance is wanting ; but this is 
-easily supplied from modern travellers. M. Foucherot' reckons 
+considerably greater distance. In fact, the table of Peutinger* 
+gives twelve miles from Olympia to Melænæ, twenty two from 
+Melænæ to Megalopolis, and twenty from Megalopolis to Te- 
+gea. From Tegea to Argos the distance is wanting; but this is 
+easily supplied from modern travellers. M. Foucherot* reckons 
 
+*) They, in fact, are so, as I have ascertained since I wrote the above.
 
-
-* They, in fact, are bo, as I have ascertained since I wrote the above. 
 
 * Estrait du Voyage de Desmouceaux It la suite du Voyage e Corn, le Bruyn, t. v. 
 p. 466. ' Fourmont, Voyag. Manuacr. de I'Argolide. ^ Tourner. Voyag. 1. 1. 
