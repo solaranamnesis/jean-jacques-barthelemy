@@ -146,155 +146,71 @@ To the position of Nauplia, or Napoli, I have adjusted two manuscript charts tak
 
 The situation of Hermione, now Castri, is likewise ascertained by its distance from Trœzen, or Damala. M. Fourmont says,* that he employed four or five hours in going from one of these places to the other. That of the island Hydræa is also given by the observation of Tournefort,* of its bearing from his station in the island of Zia, formerly Ceos; and the latter is laid down from its distance from the promontory of Sunium, and from the bearings observed by Wheler from that promontory,* which extend to Anti-Milo.
 
-Leaving Argos, Pliny has enabled me to determine the 
-breadth of Peloponnesus. He says that the distance from Ar- 
-gos to Olympia, crossing Arcadia, is sixty-eight Roman miles.* 
-I have taken these in a right line; because, after having consi- 
-dered the road which passes through Megalopolis, I have found 
-that it does not depart much from a right line, and yet gives a 
-considerably greater distance. In fact, the table of Peutinger* 
-gives twelve miles from Olympia to Melænæ, twenty two from 
-Melænæ to Megalopolis, and twenty from Megalopolis to Te- 
-gea. From Tegea to Argos the distance is wanting; but this is 
-easily supplied from modern travellers. M. Foucherot* reckons 
+Leaving Argos, Pliny has enabled me to determine the breadth of Peloponnesus. He says that the distance from Argos to Olympia, crossing Arcadia, is sixty-eight Roman miles.* I have taken these in a right line; because, after having considered the road which passes through Megalopolis, I have found that it does not depart much from a right line, and yet gives a considerably greater distance. In fact, the table of Peutinger* gives twelve miles from Olympia to Melænæ, twenty two from Melænæ to Megalopolis, and twenty from Megalopolis to Tegea. From Tegea to Argos the distance is wanting; but this is easily supplied from modern travellers. M. Foucherot* reckons ten hours journey between Napoli di Romania and Tripolizza; and we shall be convinced that the latter town is near the place where Tegea stood, if with the Abbé Fourmont, we find the site of Tegea in Palæo-Tripolizza, or old Tripolizza. We may therefore reckon eighty-seven or eighty-eight Roman miles from Olympia to Argos, or Nauplia, passing through Megalopolis; and thus the reduction of the distance to sixty-eight in a right line will still be very great.
 
 *) They, in fact, are so, as I have ascertained since I wrote the above.
 
+*) Extrait du Voyage de Desmouceaux à la suite du Voyage de Corn. le Bruyn, t. 5. p. 466.
 
-* Estrait du Voyage de Desmouceaux It la suite du Voyage e Corn, le Bruyn, t. v. 
-p. 466. ' Fourmont, Voyag. Manuacr. de I'Argolide. ^ Tourner. Voyag. 1. 1. 
-p. 5+1. ' Wheler'a Journey, book vi. p. 449. " Plin. lib. *. c. 6. t, i. p. 196. 
-■ Feuting, Tab. aegai. 7, edit. Sclieyb. Vindob. 1 753, in fol. ' Foucherol, Voyag. 
-Muiucr. 
+*) Fourmont, Voyag. Manuscr. de l'Argolide.
 
-ten hours journey between Napoli di Romania and Tripolizza; 
-and we shall be convinced that the latter town is near the place 
-where Tegea stood, if with the Abb6 Fourmont, we find the 
-site of Tegea in Palaeo-Tripolizza, or old Tripolizza, We may 
-therefore reckon eighty-seven or eight-eight Roman miles 
-from Olympia to Argos, or Nauplia, passing through Megalo- 
-polis ; and thus the reduction of the distance to sixty-eight in 
-a right line will still be verj^ great, 
+*) Tournef. Voyag. t. 1. p. 341.
 
-Tripolizza is at present the capital of the Morea, ojr Pelo- 
-ponnesus, and the residence of a pasha^ or mouhasil, who is 
-governor of the whole country. It is a modern town ; butLeon- 
-dari is not the ancient Megalopolis, as has been hitherto sup- 
-posed, on the authority of M. de Fourmont.^ Leondari is built 
-on the declivity of Mount Taygetus, and Megalopolis was situ- 
-ate in the plain beyond the Alpheus. I am, therefore, inclined 
-to believe that the cite of the latter city is at the place called 
-Sinano, which M. Fourmont has taken, without sufficient proof, 
-for the ancient Mantinea ;*" and within the extensive circuit of 
-which he says there are many ruins.* Leondari is probably the 
-ancient Leuctra mentioned in Xenophon,^ which shut in one of 
-the entrances of Laconia. Olympia subsists in a small place 
-now called Miraca. Mr. Chandler and M. Foucherot^ found 
-there but few ruins ; but M. Fauvel, who accompanied M. 
-Foucherot, has been more successful in a second journey, which 
-he made in 1787, by order of the Count de Choisseul-Gouffier. 
-He then discovered the hipodrome, the stadium, the theatre, 
-and the temple of Juj)iter ; so that we shall soon be in pos- 
+*) Wheler's Journey, book 6. p. 449.
 
-s Founnont, Lett. Maniucr. k la Bibl. du Roi. ^ Id. ibid. * Mem. d TAcad. 
+*) Plin. lib. 4. c. 6. t. 1. p. 196.
 
-des Bell. Lettr. t. vii. p. 356. ^ Xenoph. Hist. Greee. lib. 6. p. 607. ' Chandler's 
+*) Peuting, Tab. segm. 7, edit. Scheyb. Vindob. 1753, in fol.
 
-Travels in Greece, c. Ixxvi. p. 294. Foucherot, Voyag. Manuscr. 
+*) Foucherot, Voyag. Manuscr.
 
+Tripolizza is at present the capital of the Morea, or Peloponnesus, and the residence of a pasha, or mouhasil, who is governor of the whole country. It is a modern town; but Leondari is not the ancient Megalopolis, as has been hitherto supposed, on the authority of M. de Fourmont.* Leondari is built on the declivity of Mount Taygetus, and Megalopolis was situate in the plain beyond the Alpheus. I am, therefore, inclined to believe that the cite of the latter city is at the place called Sinano, which M. Fourmont has taken, without sufficient proof, for the ancient Mantinea;* and within the extensive circuit of which he says there are many ruins.* Leondari is probably the ancient Leuctra mentioned in Xenophon,* which shut in one of the entrances of Laconia. Olympia subsists in a small place now called Miraca. Mr. Chandler and M. Foucherot* found there but few ruins; but M. Fauvel, who accompanied M. Foucherot, has been more successful in a second journey, which he made in 1787, by order of the Count de Choisseul-Gouffier. He then discovered the hipodrome, the stadium, the theatre, and the temple of Jupiter; so that we shall soon be in possession of the exact dimensions of all these relics of antiquity.*
 
-session of the exact dimensions of all these relics of anti- 
-quity.* 
+*) Fourmont, Lett. Manuscr. à la Bibl. du Roi.
 
-To place Olympia in my maps, its distance from Argos, 
-however, was not sufficient; it was necessarj' also to obtain its 
-latitude. This has been deduced from that of Zante or Zacyn- 
-thus, in the island of the same ... ne ; observed, as I have 
-already said, by M. de Chazelles : which observation, taken 
-in the harbour, directly to the east of the castle,™ fixes the 
-latitude of Zante at 37" 4()' 32'.t 
+*) Id. ibid.
 
-The road of Zante, from the city to Cape Basilico, the east- 
-ern extremity of the island, has been laid down from a plan 
-taken by M. Verguin : and able navigators, according to Belin," 
-when sailing between this cape and that of Tornese, anciently 
-Chelonites, on the continent, have observed Ihe former to bear 
-south-west, and the latter north-east. The distance between 
-these two capes is given differently by different travellers ; but 
-I have made it, with Texeira, exactly ten Italian miles." 
+*) Mem. d. l'Acad. des Bell. Lettr. t. 7. p. 356.
 
-From Cape Chelonites, Strabo says that two hundred and 
-eighty stadia were reckoned to the mouth of the Alpheus p Thi' 
-Portulans, from several bearings, give reason to conclude, on the 
-whole, that the direction was south-east by south : and I have 
-tlierefore placed the mouth of the A Ipheus in this direction from 
-Cape Chelonites. I have not, however, in my maps, allowed 
-more than two hundred and twenty-five Olynlpian stadia for the 
+*) Xenoph. Hist. Græe. lib. 6. p. 607.
 
-fact, taken' the dimensions oF 
-any communication relative to 
+*) Chandler's Travels in Greece, c. 76. p. 294.
 
-* M. Fauvel, member of the National Institute, I; 
-all these monuments, but he hag not yet transmitted 
-Olympia. 
+*) Foucherot, Voyag. Manuscr.
 
-■" Note Manuscr. de M. Freret. 
+To place Olympia in my maps, its distance from Argos, however, was not sufficient; it was necessary also to obtain its latitude. This has been deduced from that of Zante or Zacynthus, in the island of the same name; observed, as I have already said, by M. de Chazelles: which observation, taken in the harbour, directly to the east of the castle,* fixes the latitude of Zante at 37° 46′ 32′′.*
 
-f 1 have, hoirever, from comparing difTerent observations and distances, placed thii 
-city about 4 minutes more to the north, in my new General Map, 
+The road of Zante, from the city to Cape Basilico, the eastern extremity of the island, has been laid down from a plan taken by M. Verguin: and able navigators, according to Belin,* when sailing between this cape and that of Tornese, anciently Chelonites, on the continent, have observed the former to bear south-west, and the latter north-east. The distance between these two capes is given differently by different travellers; but I have made it, with Texeira, exactly ten Italian miles.*
 
-" Bellin, Dcscript. du Goife de Ven. " TereirB, Viage, p. 208: en Ainb^res, 
+From Cape Chelonites, Strabo says that two hundred and eighty stadia were reckoned to the mouth of the Alpheus.* The Portulans, from several bearings, give reason to conclude, on the whole, that the direction was south-east by south: and I have therefore placed the mouth of the Alpheus in this direction from Cape Chelonites. I have not, however, in my maps, allowed more than two hundred and twenty-five Olympian stadia for the distance between these two points; because the coast, in this space, makes great bays, and a great projection; and because, besides, Mr. Chandler and M. Foucherot, who made the journey by land from Pyrgo, near the mouth of the Alpheus, to Chiarenza, anciently Cyllene, not far from Cape Chelonites, give reason to believe that they did not employ more than nine hours in going from one of these places to the other.*
 
-1610, inbvo. r Strab, lib. viii. p. 3*3. 
+*) M. Fauvel, member of the National Institute, has, in fact, taken the dimensions of all these monuments, but he has not yet transmitted to me any communication relative to Olympia.
 
-distance between these two points ; because the coast, in this 
-space, makes great bays, and a great projection ; and because, 
-besides, Mr. Chandler and M. Foucherot, who made the jour- 
-ney by land from Pyrgo, near the mouth of the Alpheus, to 
-Chiarenza, anciently Cyllene, not far from Cape Chelonite^, 
-give reason to believe that they did not employ more than nine 
-hours in going from one of these places to the other.** 
+*) Note Manuscr. de M. Freret.
 
-From the mouth of the Alpheus to Olympia I have followed 
-a small drawing which M. Foucherot drew for me of his route ; 
-and which agrees with Pausanias, who reckons a hundred and 
-twenty stadia from Olympia to Letrini/ . The latter place was 
-at the mouth of the Alpheus ; we must therefore correct 
-Strabo, who makes the distance between the mouth of that 
-river and Olympia but eighty stadia.* 
+*) I have, however, from comparing different observations and distances, placed this city about 4 minutes more to the north, in my new General Map.
 
-The greater part of the Portulans, Levanto,* and many maps, 
-agree in making Prodrano, anciently the island Prote, on the 
-coast of Messenia, bear south-south-east of Cape Basilico,inthe 
-isle of Zante ; and also of Cape Chelonites. It is precisely in this 
-direction, with respect to the former of these capes, that I have 
-placed that Island in my maps : but for the distance I have 
-followed in preference the Portulan of Romagna, because that 
-alone can be made to agree with the distances taken by land ; 
-those given by the others being either too great or too little. 
+*) Bellin, Descript. du Golfe de Ven.
 
-From Prote to Pylos in Messenia, at present old Navarins, 
-or Zonchio, three Portulans give for the distance ten miles. 
-These miles are Greek miles, and are consequently reduced in 
-my maps to six Italian miles and two-thirds. The direction is 
-east-south-east. 
+*) Texeira, Viage, p. 208: en Amberes, 1610, in 8vo.
 
-n Chandler's Travels in Greece, c. 73. p. 284. Foucherot, Voyag. Manus. «• Pau- 
+*) Strab. lib. 8. p. 343.
 
-san. lib. 6. cap. 22. p. 510. * Strab. lib. 8. p. 343. * Levanto, Specchio del Mare, 
-p. 106. 
+From the mouth of the Alpheus to Olympia I have followed a small drawing which M. Foucherot drew for me of his route; and which agrees with Pausanias, who reckons a hundred and twenty stadia from Olympia to Letrini.* The latter place was at the mouth of the Alpheus; we must therefore correct Strabo, who makes the distance between the mouth of that river and Olympia but eighty stadia.*
 
+The greater part of the Portulans, Levanto,* and many maps, agree in making Prodrano, anciently the island Prote, on the coast of Messenia, bear south-south-east of Cape Basilico, in the isle of Zante; and also of Cape Chelonites. It is precisely in this direction, with respect to the former of these capes, that I have placed that Island in my maps: but for the distance I have followed in preference the Portulan of Romagna, because that alone can be made to agree with the distances taken by land; those given by the others being either too great or too little.
 
-To the position of Pylos I have afterwards adjusted two ma- 
-nuscript maps by M. Verguin, of which M. d'Anville has also 
-made use." I could not follow more accurate guides than these 
-maps : they have conducted me to Cape Gallo, anciently the 
-promontory of Acritas, at the entrance of the Gulf of Messenia. 
-Thence it was easy for me to ascend to Corone, now Coron^ 
-That city was somewhat more than a hundred and sixty stadia 
-from the promontory of Acritas, according to Pausanias ;** and 
-travellers'' reckon by land from Modon, anciently Mothone, to 
-Coron, six hours journey, or eighteen Italian miles. 
+From Prote to Pylos in Messenia, at present old Navarins, or Zonchio, three Portulans give for the distance ten miles. These miles are Greek miles, and are consequently reduced in my maps to six Italian miles and two-thirds. The direction is east-south-east.
+
+*) Chandler's Travels in Greece, c. 73. p. 284. Foucherot, Voyag. Manus.
+
+*) Pausan. lib. 6. cap. 22. p. 510.
+
+*) Strab. lib. 8. p. 343.
+
+*) Levanto, Specchio del Mare, p. 106.
+
+To the position of Pylos I have afterwards adjusted two manuscript maps by M. Verguin, of which M. d'Anville has also made use.* I could not follow more accurate guides than these maps: they have conducted me to Cape Gallo, anciently the promontory of Acritas, at the entrance of the Gulf of Messenia. Thence it was easy for me to ascend to Corone, now Coron. That city was somewhat more than a hundred and sixty stadia from the promontory of Acritas, according to Pausanias;* and travellers* reckon by land from Modon, anciently Mothone, to Coron, six hours journey, or eighteen Italian miles.
 
 From Coron navigators, according to Bellin,' have observed 
 Cape Gros, anciently Thyrides, in Laconia, to bear south-east 
