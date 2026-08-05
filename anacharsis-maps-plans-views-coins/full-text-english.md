@@ -212,33 +212,25 @@ From Prote to Pylos in Messenia, at present old Navarins, or Zonchio, three Port
 
 To the position of Pylos I have afterwards adjusted two manuscript maps by M. Verguin, of which M. d'Anville has also made use.* I could not follow more accurate guides than these maps: they have conducted me to Cape Gallo, anciently the promontory of Acritas, at the entrance of the Gulf of Messenia. Thence it was easy for me to ascend to Corone, now Coron. That city was somewhat more than a hundred and sixty stadia from the promontory of Acritas, according to Pausanias;* and travellers* reckon by land from Modon, anciently Mothone, to Coron, six hours journey, or eighteen Italian miles.
 
-From Coron navigators, according to Bellin,' have observed 
-Cape Gros, anciently Thyrides, in Laconia, to bear south-east 
-and five degrees to the south. The variation appears to me 
-corrected in this bearing. This cape is not far from Tienarum, 
-now Cape Metapan. Pausanias reckons only seventy stadia be- 
-tween them ;» and Beliin says, that Metapan is distant from Cape 
-Gallo, or the promontory of Acritas, thirty miles, or ten marine 
-leagues, to the east-south-east.*' This distance, which is the 
-breadth of the entrance of the Gulf of Messenia, is much 
-greater, according to the Portulans. Pliny, however, makes it 
-less;'^ on which account I have adhered to the measure given 
-by Beilin, and employed it in a right line in my maps. 
+From Coron navigators, according to Bellin,* have observed Cape Gros, anciently Thyrides, in Laconia, to bear south-east and five degrees to the south. The variation appears to me corrected in this bearing. This cape is not far from Tænarum, now Cape Metapan. Pausanias reckons only seventy stadia between them;* and Bellin says, that Metapan is distant from Cape Gallo, or the promontory of Acritas, thirty miles, or ten marine leagues, to the east-south-east.* This distance, which is the breadth of the entrance of the Gulf of Messenia, is much greater, according to the Portulans. Pliny, however, makes it less;* on which account I have adhered to the measure given by Bellin, and employed it in a right line in my maps.
 
-From Taenarum it was not difficult for me to gain the pro- 
+From Tænarum it was not difficult for me to gain the pro- 
 
-■> D'Anville, Anal, des Cfitcs de la Grece, p. 20. 
+*) D'Anville, Anal. des Côtes de la Grèce, p. 20.
 
-• Pausan, lib. 4. cap. 34. p. 365 et 367. 
+*) Pausan. lib. 4. cap. 34. p. 365 et 367.
 
-* Notwithstanding these measures iif Pausanias, It U certain that Coron is only lixty- 
-Rre or seventy stadia from Cape Gallo, and it is at that distance that I have placed it 
-in ray new Getieral Map of Greece and the Grecian Colonies. 
+*) Notwithstanding these measures of Pausanias, it is certain that Coron is only sixty-five or seventy stadia from Cape Gallo, and it is at that distance that I have placed it in my new _General Map of Greece and the Grecian Colonies_.
 
-t Brcydenbach, Peregr. Terr. Sanct. p. 31 : Mogunt. i486, in fol. Pellegrin, Voyag. 
-dela Morce, p. 7, Foucherot, Voyag. Manuscr. ' Beilin, Descript. du Golfe de Ven. 
-p. 202. • Pausan, lib. 3. cap. 25. p, 276. " Beilin. ibid. p. 200. ' Plin, lib. 
-4. cap. 5. t. i. p. 193. 
+*) Breydenbach, Peregr. Terr. Sanct. p. 31: Mogunt. 1486, in fol. Pellegrin, Voyag. de la Morée, p. 7, Foucherot, Voyag. Manuscr.
+
+*) Bellin, Descript. du Golfe de Ven. p. 202.
+
+*) Pausan. lib. 3. cap. 25. p. 276.
+
+*) Bellin. ibid. p. 200.
+
+*) Plin. lib. 4. cap. 5. t. 1. p. 193.
 
 montory of Malea. M. Verguin, from the latter cape, had 
 taken the bearing of the former, from two different stations ; 
