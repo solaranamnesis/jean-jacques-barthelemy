@@ -4,7 +4,7 @@ English - Plain Text
 English - PDF  
 [Greek - Plain Text](full-text-greek.md)  
 Greek - PDF | Biolinum | Atkinson | Cursive | Kerkis | Custom  
-French - Plain Text  
+[French - Plain Text](full-text-french.md)  
 French - PDF  
 
-[Source PDFs](https://anemi.lib.uoc.gr/metadata/d/c/5/metadata-39-0000279.tkl)
+[Greek Source PDFs](https://anemi.lib.uoc.gr/metadata/d/c/5/metadata-39-0000279.tkl)
