@@ -214,7 +214,7 @@ To the position of Pylos I have afterwards adjusted two manuscript maps by M. Ve
 
 From Coron navigators, according to Bellin,* have observed Cape Gros, anciently Thyrides, in Laconia, to bear south-east and five degrees to the south. The variation appears to me corrected in this bearing. This cape is not far from Tænarum, now Cape Metapan. Pausanias reckons only seventy stadia between them;* and Bellin says, that Metapan is distant from Cape Gallo, or the promontory of Acritas, thirty miles, or ten marine leagues, to the east-south-east.* This distance, which is the breadth of the entrance of the Gulf of Messenia, is much greater, according to the Portulans. Pliny, however, makes it less;* on which account I have adhered to the measure given by Bellin, and employed it in a right line in my maps.
 
-From Tænarum it was not difficult for me to gain the pro- 
+From Tænarum it was not difficult for me to gain the promontory of Malea. M. Verguin, from the latter cape, had taken the bearing of the former, from two different stations; and thus determined the position of the promontory of Tænarum with respect to that of Malea. By taking the opposite directions, I have ascertained the position of Malea from Tænarum. All the environs of the former cape are laid down from a manuscript chart of the same M. Verguin, which has given me the coast from the promontory of Malea, now Cape St. Angelo, to the isle of Cervi, inclusively; as also the northern coast of the island of Cerigo, or Cythera. To this chart is added another of the anchoring place of St. Nicholas, anciently the Phœnician port, in the same island of Cythera. The remainder of the island is taken from Coronelli,* whose description has been compared with other materials. The isle of Cervi was formerly only a peninsula, the most southerly point of which was called Onugnathos, or the jaw-bone of the ass.
 
 *) D'Anville, Anal. des Côtes de la Grèce, p. 20.
 
@@ -232,127 +232,60 @@ From Tænarum it was not difficult for me to gain the pro-
 
 *) Plin. lib. 4. cap. 5. t. 1. p. 193.
 
-montory of Malea. M. Verguin, from the latter cape, had 
-taken the bearing of the former, from two different stations ; 
-and thus determined the position of the promontory of Ta'narum 
-withrespecttothat of Malea. Bytakingthe opposite directions, 
-I have ascertained the position of Malea from T^narum. All 
-the environs of the former cape are laid down from a manuscript 
-chart of the same M. Verguin, which has given me the coast 
-from the promontory of Malea, now Cape St. Angelo, to the 
-isle of Cervi, inclusively ; as also the northern coast of the island 
-of Cerigo, or Cythera. To this chart is added another of the 
-anchoring place of St. Nicholas, anciently the Phcenician port, 
-in the same island of Cythera. The remainder of the island is 
-taken from Coronelli,"' whose description has been compared 
-with other materials. The isle of Cervi was formerly only 
-a peninsula, the most southerly point of which was called Onu- 
-gnathos, or the jaw-bone of the ass. 
+In the interior part of Peloponnesus, Lacedæmon, or Sparta, is laid down from its distance from Megalopolis Pausanias says that from Sparta to Olympia the distance is six hundred and sixty stadia;* and Livy informs us that the road passed through Megalopolis. We have seen that the table of Peutinger reckons in two distances, thirty-four Roman miles from Olympia to Megalopolis. These thirty-four miles make two hundred and seventy-two Olympian stadia; which, subducted from six hundred and sixty, leave three hundred and eighty-eight stadia for the distance from Megalopolis to Sparta. The distance in my maps, in a right line, is three hundred and thirty stadia; and Sparta is placed in the latitude of 37° 10′ N. according to the observation of Vernon.* *
 
-In the interior part of Peloponnesus, Lacedairmon, or Sparta, 
-islaid down from its distance from Megalopolis Pausanias says 
-that from Sparta to Olympia the distance is six hundred and 
-sixty stadia ;' and Livy informs us that the road passed through 
-Megalopolis. We have seen that the table of Peutinger reckons 
-in two distances, thirty-four Roman miles from Olympia to Me- 
-galopolis. These thirty-four miles make two hundred and 
-seventy-two Olympian sUidiii ; which, subducted from six hun- 
-dred and sixty, leave three hundred and eight^'-eight stadia for 
-the distance from Megalopolis to Sparta. The distance in my 
-maps, in a right line, is three hundred and thirty stadia ; and 
-Sparta is placed in the latitude of 37° 10' N. according to the 
-observation of Vernon.^* 
+*) Coronelli, Descript. de la Morée, p. 82: Paris, 1687, in fol.
 
+*) Pausan. lib. 6. cap. 16. p. 492.
 
-•> Coronelli, Descripl de la Moree, p. 83 : Parb, 1687, in fol. ' Pauaan. lib. 6. 
+*) Liv. lib. 45. cap. 28.
 
-cap. 16. p. t92. ' Liv, lib. 45. cap. 28. t Journal de Vernon, p. 302. 
+*) Journal de Vernon, p. 302.
 
-* In my new General Map, Sparta it placed in only 37° 3' latitude. 
+*) In my new General Map, Sparta it placed in only 37° 3′ latitude.
 
-It has not been the same with Coron ; I have not been able 
-to place tliis city in the latitude observed by Vernon.''* The 
-soutliern part of Peloponnesus, however, as 1 have already said, 
-rests on an observation of latitude made at sea by M. de Cha- 
-zelles, to the south of CapeTa^narum or Matapan, and directly 
-west of the most southern point of tlie island of Cy tliera.' This 
-observation ascertains the latitude of the extreme point of 
-Cerigo to be 36° 10' N.f 
+It has not been the same with Coron; I have not been able to place this city in the latitude observed by Vernon.* * The southern part of Peloponnesus, however, as I have already said, rests on an observation of latitude made at sea by M. de Chazelles, to the south of Cape Tænarum or Matapan, and directly west of the most southern point of the island of Cythera.* This observation ascertains the latitude of the extreme point of Cerigo to be 36° 10′ N.*
 
-In the northern part of Peloponnesus, the situation of Dyme 
-in Achaia is determined by its distance from Olympia. From 
-Olympia to Elis there were two roads : one through the plain, 
-three hundred stadia in length ;'' and the other, which was the 
-shortest, over the mountain. By the latter it was reckoned 
-twelve miles, or ninety-six stadia, from Olympia to Pylos near 
-EUs,' and seventy or eighty stadia from Pylos to Elis itself ;" in 
-the whole, a hundred and sixty-six, or a hundred and seventy- 
-six stadia from Olympia to Elis. From the latter citv, proceed- 
-ing into Achaia, Pausanias reckons a hundred and fifty-seven 
-stadia" to the passage of the river Larissus ; and he adds"* that, 
-from this river to Dyme, it is about four hundred stadia. All 
+In the northern part of Peloponnesus, the situation of Dyme in Achaia is determined by its distance from Olympia. From Olympia to Elis there were two roads: one through the plain, three hundred stadia in length;* and the other, which was the shortest, over the mountain. By the latter it was reckoned twelve miles, or ninety-six stadia, from Olympia to Pylos near Elis,* and seventy or eighty stadia from Pylos to Elis itself;* in the whole, a hundred and sixty-six, or a hundred and seventy-six stadia from Olympia to Elis. From the latter city, proceeding into Achaia, Pausanias reckons a hundred and fifty-seven stadia* to the passage of the river Larissus; and he adds* that, from this river to Dyme, it is about four hundred stadia. All these distances appear to me accurate, except the last, which cannot be made to agree with the measures taken at sea. Paulmier has, indeed, perceived that there must be an error in this number;* but he has not corrected it. I would propose to substitute in the Greek the numeral letter which denotes forty for that which signifies four hundred; and we shall then have three hundred and sixty-three, or three hundred and seventy-three, stadia for the distance from Olympia to Dyme. My maps give more than three hundred and twenty in a right line.
 
-'■ Journal de Vernon, p, 902. 
+*) Journal de Vernon, p. 902.
 
-* This latitude is, in fact, erroneous, as arc all those given by Vernon. The latitude 
-of Coron, as determined by M. de Chabert, is 36' 47' 26", and it is according to this 
-observation, nearly, that I have placed it in my maps. 
+*) This latitude is, in fact, erroneous, as are all those given by Vernon. The latitude of Coron, as determined by M. de Chabert, is 36° 47′ 26′′, and it is according to this observation, nearly, that I have placed it in my maps.
 
-* Note Manuscr. de M. Freret. 
+*) Note Manuscr. de M. Freret.
 
-f This observation having been taken at sea, is erroneous. M. de Chabert has ob- 
-tierved, that the island of Cerigo, as well as ibe southern parts of Peloponnesus, are 
-situate much more to the south ; but 1 had only this determination to guide me in the 
-construction of my first maps, 
+*) This observation having been taken at sea, is erroneous. M. de Chabert has observed, that the island of Cerigo, as well as the southern parts of Peloponnesus, are situate much more to the south; but I had only this determination to guide me in the construction of my first maps.
 
-k Strah.lib.8. p. 367- Pauaan. lib. 6. cap. 22. p. 510. ' Pljn.lib.4. cap.S. t.i. 
+*) Strab. lib. 8. p. 367. Pausan. lib. 6. cap. 22. p. 510.
 
-p. 193. "< Diod. Sic. lib. 14. p, 246. Pausan. lib. 6. p. 509. ■> Pausan. ibid. e. 
-26. p. 520. '■ Pausan. lib. 7. cap. 17. p. 564. 
-D 2 
+*) Plin. lib. 4. cap. 5. t. 1. p. 193.
 
-these distances appear to me accurate, except the last, ivhich 
-cannot be made to agree with the measures taken at sea, Paul- 
-mier has, indeed, perceived that there must be an error in this 
-number ; ^ but he has not corrected it, I would propose to subi- 
-stitute in the Greek the numeral letter which denotes forty for 
-that which signifies four hundred ; and we shall then have three 
-hundred and sixty-three, or three hundred and seventy-three, 
-stadia for the distance from Olympia to Dyme. My maps give 
-more than three hundred and twenty in a right line. 
+*) Diod. Sic. lib. 14. p. 248. Pausan. lib. 6. p. 509.
 
-I could not place Djrme at a greater distance from Olympia : 
-Dyme was only sixty stadia from the promontory of Araxus, 
-according to Strabo "* and the Venetian Portulan reckons only 
-eighteen miles in a right line from this cape to Chelonites, the 
-situation of which has already been determined. 
+*) Pausan. ibid. c. 26. p. 520.
 
-M. Verguin has taken the plan of an anchoring place situated 
-to the east of the promontory of Araxus, now Cape Papa, which 
-extends to Dyme. From this anchoring place the town of Pa- 
-tras, anciently Patrae, has been observed, according to Bellin^*" 
-to bear east by north. The variation appears to me to have 
-been corrected in this observation. But the distance from 
-Dyme to Patrae, according to several ancient authors, is a hun-^ 
-dred and twenty stadia : * from the promontory of Araxus to 
-Patrae, therefore, the distance was a hundred and eighty stadia. 
-In my maps it is a hundred and sixty-four, or a hundred and 
-sixty-five, in a right line* 
+*) Pausan. lib. 7. cap. 17. p. 564.
 
-The situation of Patrae is also determined by its distance 
+I could not place Dyme at a greater distance from Olympia: Dyme was only sixty stadia from the promontory of Araxus, according to Strabo* and the Venetian Portulan reckons only eighteen miles in a right line from this cape to Chelonites, the situation of which has already been determined.
+
+M. Verguin has taken the plan of an anchoring place situated to the east of the promontory of Araxus, now Cape Papa, which extends to Dyme. From this anchoring place the town of Patras, anciently Patræ, has been observed, according to Bellin,* to bear east by north. The variation appears to me to have been corrected in this observation. But the distance from Dyme to Patræ, according to several ancient authors, is a hundred and twenty stadia:* from the promontory of Araxus to Patræ, therefore, the distance was a hundred and eighty stadia. In my maps it is a hundred and sixty-four, or a hundred and sixty-five, in a right line.
+
+The situation of Patræ is also determined by its distance 
 from the isthmus of Corinth. This distance is seven hundred 
 
+*) Palmer. Exercit. p. 412.
 
-p Paliper. Exercit. p. 412.  Strab. lib. 8. p. S37- ' BelUn, Descript^ du 
+*) Strab. lib. 8. p. 337.
 
-Golfe de Ven. p. 186. *• Apollodor. io Steph. Fragm. voc Av^??. Strab. ibid, p^ S8CU 
-Pausan. lib. 7. cap. 18. p. 567, 568. Peuting^ Tab. 6egm^7^ 
+*) Bellin, Descript. du Golfe de Ven. p. 186.
 
-and twenty stadia, according to Agathemerus ;' and there is no 
-reason to suspect an error, since PHny estimated it at the same. 
+*) Apollodor. in Steph. Fragm. voc. Δύμη. Strab. ibid. p. 386. Pausan. lib. 7. cap. 18. p. 567, 568. Peuting. Tab. segm. 7.
+
+and twenty stadia, according to Agathemerus;* and there is no 
+reason to suspect an error, since Pliny estimated it at the same. 
 The latter says, that the length of the gulf of Corinth, or of the 
-sea of Crissa, to the isthmus, is eighty-five miles ;" and he adds, 
-that from the promontory of Rhium it is five miles to Patrae ;* 
+sea of Crissa, to the isthmus, is eighty-five miles;* and he adds, 
+that from the promontory of Rhium it is five miles to Patræ;* 
 in the whole, ninety miles, which make exactly seven hundred 
 and twenty stadia. This measure also agrees very well with 
 some particular distances on the coast of Achaia, given by 
