@@ -270,8 +270,7 @@ I could not place Dyme at a greater distance from Olympia: Dyme was only sixty s
 
 M. Verguin has taken the plan of an anchoring place situated to the east of the promontory of Araxus, now Cape Papa, which extends to Dyme. From this anchoring place the town of Patras, anciently Patræ, has been observed, according to Bellin,* to bear east by north. The variation appears to me to have been corrected in this observation. But the distance from Dyme to Patræ, according to several ancient authors, is a hundred and twenty stadia:* from the promontory of Araxus to Patræ, therefore, the distance was a hundred and eighty stadia. In my maps it is a hundred and sixty-four, or a hundred and sixty-five, in a right line.
 
-The situation of Patræ is also determined by its distance 
-from the isthmus of Corinth. This distance is seven hundred 
+The situation of Patræ is also determined by its distance from the isthmus of Corinth. This distance is seven hundred and twenty stadia, according to Agathemerus;* and there is no reason to suspect an error, since Pliny estimated it at the same. The latter says, that the length of the gulf of Corinth, or of the sea of Crissa, to the isthmus, is eighty-five miles;* and he adds, that from the promontory of Rhium it is five miles to Patræ;* in the whole, ninety miles, which make exactly seven hundred and twenty stadia. This measure also agrees very well with some particular distances on the coast of Achaia, given by Pausanias and the Peutinger table.* In my maps, the distance in a right line between the part of the isthmus on the sea of Crissa where a wall terminates, and the position of Patræ, is six hundred and sixty-five stadia. It may perhaps be thought that I have not made a sufficient allowance in reducing the itinerary measure to a right line; but it is to be observed that the coast is almost straight, and makes no other elbow than that of the cape of Sicyon. This cape has been observed by Wheler* to bear north-west by north of the Acro-corinthus; and the Greek and Venetian Portulans place Patræ in the direction of west by south, and even west-south-west, from that cape.*
 
 *) Palmer. Exercit. p. 412.
 
@@ -281,228 +280,129 @@ from the isthmus of Corinth. This distance is seven hundred
 
 *) Apollodor. in Steph. Fragm. voc. Δύμη. Strab. ibid. p. 386. Pausan. lib. 7. cap. 18. p. 567, 568. Peuting. Tab. segm. 7.
 
-and twenty stadia, according to Agathemerus;* and there is no 
-reason to suspect an error, since Pliny estimated it at the same. 
-The latter says, that the length of the gulf of Corinth, or of the 
-sea of Crissa, to the isthmus, is eighty-five miles;* and he adds, 
-that from the promontory of Rhium it is five miles to Patræ;* 
-in the whole, ninety miles, which make exactly seven hundred 
-and twenty stadia. This measure also agrees very well with 
-some particular distances on the coast of Achaia, given by 
-Pausanias and the Peutinger table.*' In ray maps, the distance 
-in a right Une between the part of the isthmus on the sea of 
-Crissa where a wall terminates, and the position of Patrse, is six 
-hundred and sixty-five stadia. It may perhaps be thought that 
-I have not made a sufficient allowance in reducing the itinerary 
-measure to a right line ; but it is to be observed that the coast 
-is almost straight, and makes no other elbow than that of the 
-cape of Sicyon. This cape has been observed by Wheler' to 
-bear north-west by north of the Acro-curinthus ; and the Greek 
-and Venetian Portulans place Patrse in the direction of west 
-by south, and even west-south-west, from that cape.* 
+In front of Patræ is the island of Cefalonia, anciently Cephallenia, which, according to Strabo,* is only eighty stadia distant from the promontory of Chelonites, in Peloponnesus, and sixty from the island of Zacynthus. The figure of it is taken from a Venetian chart, the same that M. d'Anville has made use of.* This chart, which appears to me to have been drawn with care, has also furnished me with a part of the island of Ithaca, now Teaki; and the ports situated in the north of the latter island are laid down from a plan taken by M. Verguin.
 
-In front of Patrae is the island of Cefalonia, anciently Ce- 
-phallenia, which, according to Strabo,' is only eighty stadia 
-distant from the promontory of Chelonites, in Peloponnesus, 
-and sixty from the island of Zacynthus. The figure of it is 
+*) Agathem. lib. 1. cap. 4. p. 10. ap. Geograph. Min. Græc. t. 2.
 
+*) Plin. lib. 4. c. 4. t. 1. p. 192.
 
-' Agathem. lib- 1- cap. 4. p. 10. ap. Geograph. Min. GrEec. t. ii. " Plin. lib. ♦. c. ♦■ 
-t. i. p. 199. * Id. ibid, cap, 5. p. 193. i Paiuan. lib. 7- paasim. Peuting. Tab. segm. 7. 
-• Wheler'i Journey, b. 6. p. *42. 
+*) Id. ibid. cap. 5. p. 193.
 
-• In my new General Map (if Greece and the Grecian Colonies this coast takes a di- 
-rection a little dilFerent, and the epace is more contracted. I am supported in this alte* 
-ration by tlie positions of Corinth and Patre, the former of which is situate more to the 
-souih than I had placed it by about seven rainutej, and the latter more to the north by 
-about three ; as I shall have occasion to notice again in the continuation of those Obser- 
-tationi. ■ Strab. lib. 10. p. 456 et 458. 
+*) Pausan. lib. 7. passim. Peuting. Tab. segm. 7.
 
-taken from a Venetian charts the same that M. d*Anville has 
-made use of.^ This chart, which appears to me to have been 
-drawn with care, has also furnished me with a part of the 
-island of Ithaca, now Teaki ; and the ports situated in the north 
-of the latter island are laid down from a plan taken by M. 
-Verguin* 
+*) Wheler's Journey, b. 6. p. 442.
 
-From Cephallenia Strabo again reckons fifty stadia to Leu- 
-cadia.^ But this distance is erroneous ; for navigators estimate 
-it at no less than three marine leagues, or nine Italian miles f 
-at which distance I have placed these two islands in my map, 
-following the bearing which the Venetian Portulan has given 
-between the most northern Cape of Cefalonia and the most 
-southern of Leucadia. The latter island is now called St. 
-Maura, and was long only a peninsula : it is laid down from a 
-map of Coronelli's, of. which M. d*Anville has also made use.^ 
-The coast of the opposite continent, towards Alyzia, as well as 
-the islands between that and Leucadia, are taken from a plan 
-by M. Verguin. 
+*) In my new _General Map of Greece and the Grecian Colonies_ this coast takes a di- 
+rection a little different, and the space is more contracted. I am supported in this alte- 
+ration by the positions of Corinth and Patræ, the former of which is situate more to the 
+south than I had placed it by about seven minutes, and the latter more to the north by 
+about three; as I shall have occasion to notice again in the continuation of these Obser- 
+vations.
 
-The town Leucas was not situate in the same place as that 
-of St* Maura is at present. The rtiins of it are still to be seen at 
-some distance on the sea-shore, and in a place where the island 
-approaches nearest to the main land. It was built by the Co- 
-rinthians, on the isthmus by which the island anciently was 
-joined to the continent : but the isthmus having been cut 
-through, the town remained on the island, and the channel took 
-the name of Dioryctos. According to the accounts of ancient 
-authors/ the distance from Patrae to Leucas was estimated at 
+*) Strab. lib. 10. p. 456 et 458.
 
-k D'Antille, AtwJ. deft Cotes de la Grtce, p. 10, 81. « Strab. lib. 10. p. 456. ^ Co- 
-ronelH, Descript de la Mor6e, p. 65. Bellin, Descript. du Golfe de Ven. p. 163. • D'An- 
-vlHe, Anal, des CAtes de la Gr^oe, p. 10. ' Polyb. ap. Strab. lib. 2. p. 105. PHn. lib. 2 
-cap. 108. t. i. p. 124; lib. 4. cap. 4. p. 192. Agathcm. lib. 1. cap. 4. p. 10. ap. Gaogr. 
-Min. Gre&c. t. ii. 
+From Cephallenia Strabo again reckons fifty stadia to Leucadia.* But this distance is erroneous; for navigators estimate it at no less than three marine leagues, or nine Italian miles;* at which distance I have placed these two islands in my map, following the bearing which the Venetian Portulan has given between the most northern Cape of Cefalonia and the most southern of Leucadia. The latter island is now called St. Maura, and was long only a peninsula: it is laid down from a map of Coronelli's, of which M. d'Anville has also made use.* The coast of the opposite continent, towards Alyzia, as well as the islands between that and Leucadia, are taken from a plan by M. Verguin.
 
-seven hundred stadia ; but in my map it is but five hundred and 
-seventy-five, in a right line, because the navigation from one of 
-lliese ports to the other is much embarrassed ; and because, 
-besides, the distance from Naupactus to Dioryctos, according 
-to the table of Peutinger, would not allow me to make it 
-more. 
+The town Leucas was not situate in the same place as that of St. Maura is at present. The ruins of it are still to be seen at some distance on the sea-shore, and in a place where the island approaches nearest to the main land. It was built by the Corinthians, on the isthmus by which the island anciently was joined to the continent: but the isthmus having been cut through, the town remained on the island, and the channel took the name of Dioryctos. According to the accounts of ancient authors,* the distance from Patræ to Leucas was estimated at seven hundred stadia; but in my map it is but five hundred and seventy-five, in a right line, because the navigation from one of these ports to the other is much embarrassed; and because, besides, the distance from Naupactus to Dioryctos, according to the table of Peutinger, would not allow me to make it more.
 
-Naupactus, now called Lepanto, lies more to the east than 
-Patrae. This city is situate on the sea of Crissa, not far from 
-the promontory of Antirrhium. i'rom it the Peutinger tables 
-gives, at several distances, seventy-eight Roman miles to Dio- 
-ryctos. These seventy-eight miles amount to six hundred and 
-twenty-four Olympian stadia ; and I have made the distance 
-more than six hundred, in a right line. 
+*) D'Anville, Anal. des Côtes de la Grèce, p. 10, 21.
 
-On the road from Patrte to Dioryctos, the Achelous, now 
-called Aspro-potamo, or the White River, was crossed. Coro- 
-nelli has given a map of a part of the course of this river,'' which 
-was taken in consequence of an incursion that the Venetians 
-made into Acarnania and ^Etolia in 1684. I have found in it 
-the track of the ancient road ; but as the scale of it is erroneous, 
-I have rectified it from the distances pointed out by M. 
-Foucherot,' who has travelled through the country ; and have 
-adjusted the whole map to the position of CEniada?,* which 
-was situate at the mouth of the Alpheus, and distant one hun- 
-dred stadia from the promontory Araxus in Peloponnesus." 
+*) Strab. lib. 10. p. 456.
 
+*) Coronelli, Descript. de la Morée, p. 65. Bellin, Descript. du Golfe de Ven. p. 163.
 
+*) D'Anville, Anal. des Côtes de la Grèce, p. 10.
 
-I Puting. Tab. scgtn. 7. " Curonelli, Descript. de la Moree, p, 69. ' Fou> 
+*) Polyb. ap. Strab. lib. 2. p. 105. Plin. lib. 2. cap. 108. t. 1. p. 124; lib. 4. cap. 4. p. 192. Agathem. lib. 1. cap. 4. p. 10. ap. Geogr. Min. Græc. t. 2.
 
-cherot. Voyag. Manuscr. 
+Naupactus, now called Lepanto, lies more to the east than Patræ. This city is situate on the sea of Crissa, not far from the promontory of Antirrhium. From it the Peutinger table* gives, at several distances, seventy-eight Roman miles to Dioryctos. These seventy-eight miles amount to six hundred and twenty-four Olympian stadia; and I have made the distance more than six hundred, in a right line.
 
-■ CEaiadEe is at present Ingardon, wUich is meationed in the Geography of Meletiiu, 
-(lib. 1. sect IS. cap. 3. n. IS. p. 323.}. and in the Travels of Cjrnac of Ancona, In 
-Greece, in 1436, which were printed, with his Ingcriptions, at Rome, in ]746> in one 
-Kol. in folio. 
+On the road from Patræ to Dioryctos, the Achelous, now called Aspro-potamo, or the White River, was crossed. Coronelli has given a map of a part of the course of this river,* which was taken in consequence of an incursion that the Venetians made into Acarnania and Ætolia in 1684. I have found in it the track of the ancient road; but as the scale of it is erroneous, I have rectified it from the distances pointed out by M. Foucherot,* who has travelled through the country; and have adjusted the whole map to the position of Œniadæ,* which was situate at the mouth of the Alpheus, and distant one hundred stadia from the promontory Araxus in Peloponnesus.*
 
->■ Polyb. Hi&t. lib. *. p, 329. 
+*) Puting. Tab. segm. 7.
 
-This map extends ta the ruins of Stratos, which was built on 
-the right bank of the river, at the distance of more than two 
-hundred stadia from its mouth, according to Strabo.^ Yet the 
-same author says, soon after,™ that Stratos was half-way be- 
-tween Alyzia and Anactorium ; and the latter city stood on 
-the Gulf of Ambracia. Paulmier has endeavoured '^ to re- 
-concile these two passages : but his usual penetration appears 
-here to have forsaken him ; he offers nothing satisfactory. If 
-he' had attended to the respective situation of the places, he 
-Oiight easily have perceived that the second passage is cor- 
-rupted; and that instead of 'AraKTo^ior, we should read 
+*) Coronelli, Descript. de la Morée, p. 69.
 
-From Leucas, Strabo reckons two hundred and forty stadia 
-to the temple of Actium, at the entrance of the Gulf of Am- 
-bracia, on the coast of Acamahia.^ This distance appears to 
-me erroneous ; for the Peutinger table only gives fifteen miles 
-between Dioryctos and Nifcopolis, which was afterwards built 
-by Augustus, on the other side of the gulf, in Epirus ; p and 
-the Portulans and travellers ** compute the distance between 
-the fortress of St. Maura and that of La Preveza* at only 
-twelve miles. These miles, which can only be Greek miles, 
-I have laid down in a right line on my map. For the bearing 
-I have followed that given by Bellin."' 
+*) Foucherot, Voyag. Manuscr.
 
-The gulf of Ambracia, at present the gulf, of Arta, is laid 
-down from a large map of Coronelli'Sj-f- the same that M. d'An- 
-ville has made use of ; " but, like him, I have been obliged to 
+*) Œniadæ is at present Ingardon, which is mentioned in the Geography of Meletius, (lib. 1. sect. 18. cap. 3. n. 13. p. 323.), and in the Travels of Cyriac of Ancona, in Greece, in 1436, which were printed, with his Inscriptions, at Rome, in 1746, in one vol. in folio.
 
-' Strab. lib. 10. p. 450. "" Id. ibid. " Palmer. Greec. Antiq. p. S88. ^ SCrab. 
-lib. 10. p. 451 . P Peuting. Tab. segm. 7. *> Des Hayes, Voyag. du Levant, p. 467 : 
-Paris, 1632, 4to. Spon. Voyag. t. i. p. 81. * Nicopolis is at present a place in ruins, 
-called Preveza Vecchia. ' Bellin, Desicript. du Golfe de Ven. p. 161 . f This map 
-is found in the Atlante Veneto. ■ D'Anville, Anal, des Cdtes de la Gr^ce, p. 10. Mem. 
-de TAcad, des Bell. Lettr. t. xxxii. p. 513. 
+*) Polyb. Hist. lib. 4. p. 329.
 
-correct its scale, and adjust the map to the measures which 
-Polybius has given of this gulf.* 
+This map extends to the ruins of Stratos, which was built on the right bank of the river, at the distance of more than two hundred stadia from its mouth, according to Strabo.* Yet the same author says, soon after,* that Stratos was half-way between Alyzia and Anactorium; and the latter city stood on the Gulf of Ambracia. Paulmier has endeavoured* to reconcile these two passages: but his usual penetration appears here to have forsaken him; he offers nothing satisfactory. If he had attended to the respective situation of the places, he might easily have perceived that the second passage is corrupted; and that instead of Ἀνακτόριον, we should read Ἀντίῤῥιον.
 
-In this latitude Greece is shut in between two gulfs ; that of 
-Ambracia to the west, and that of Alalia to the east ; so that 
-tlie inteivai that separates them is considered by Strabo as an 
-isthmus, of which he gives the measure," which he makes to be 
-eight lumdred stadia from the bottom of the Gulf of Ambracia 
-to Thermopylte on the Maliac gulf. This measure has enabled 
-me to determine the point of Thermopylae which is also given 
-by other means. The same author says, that from the bottom 
-of the Gulf of Crissa the distance to ThermopyUe, in a right 
-line, is five hundred and eight stadia." What Strabo calls the 
-Xjiulf of Crissa is the Sea of Crissa, orofAlcyon, which was after- 
-Tvards named the Gulf of Corinth. He says nothing of any 
-particular Gulf of Crissa, near Delphi ; and perhaps I have 
-been wrong in representing it distinct from this sea in ray 
-maps.* Lastly, the bottom of the Gulf of Crissa, in Strabo, is 
-in the environs of Pagae, in Megaris.'' In my maps the distance 
-from Thermopylae to this city in a right line, is four hundred 
-and seventy stadia,f- which does not exactly agree with that 
-given by Strabo ; but the comparison of the bearings, of which 
-I shall speak presently, would not permit me to admit a greater. 
-The first distance is laid down in a right line, within about twelve 
-stadia. 
+From Leucas, Strabo reckons two hundred and forty stadia to the temple of Actium, at the entrance of the Gulf of Ambracia, on the coast of Acarnania.* This distance appears to me erroneous; for the Peutinger table only gives fifteen miles between Dioryctos and Nicopolis, which was afterwards built by Augustus, on the other side of the gulf, in Epirus;* and the Portulans and travellers* compute the distance between the fortress of St. Maura and that of La Preveza* at only twelve miles. These miles, which can only be Greek miles, I have laid down in a right line on my map. For the bearing I have followed that given by Bellin.*
+
+The gulf of Ambracia, at present the gulf of Arta, is laid down from a large map of Coronelli's,* the same that M. d'Anville has made use of;* but, like him, I have been obliged to correct its scale, and adjust the map to the measures which Polybius has given of this gulf.*
+
+*) Strab. lib. 10. p. 450.
+
+*) Id. ibid.
+
+*) Palmer. Græc. Antiq. p. 388.
+
+*) Strab. lib. 10. p. 451.
+
+*) Peuting. Tab. segm. 7.
+
+*) Des Hayes, Voyag. du Levant, p. 467: Paris, 1632, 4to. Spon. Voyag. t. 1. p. 81.
+
+*) Nicopolis is at present a place in ruins, called Preveza Vecchia.
+
+*) Bellin, Descript. du Golfe de Ven. p. 161.
+
+*) This map is found in the Atlante Veneto.
+
+*) D'Anville, Anal. des Côtes de la Grèce, p. 10. Mem. de l'Acad. des Bell. Lettr. t. 32. p. 513.
+
+In this latitude Greece is shut in between two gulfs; that of Ambracia to the west, and that of Malia to the east; so that the interval that separates them is considered by Strabo as an isthmus, of which he gives the measure,* which he makes to be eight hundred stadia from the bottom of the Gulf of Ambracia to Thermopylæ on the Maliac gulf. This measure has enabled me to determine the point of Thermopylæ, which is also given by other means. The same author says, that from the bottom of the Gulf of Crissa the distance to Thermopylæ, in a right line, is five hundred and eight stadia.* What Strabo calls the Gulf of Crissa is the Sea of Crissa, or of Alcyon, which was afterwards named the Gulf of Corinth. He says nothing of any particular Gulf of Crissa, near Delphi; and perhaps I have been wrong in representing it distinct from this sea in my maps.* Lastly, the bottom of the Gulf of Crissa, in Strabo, is in the environs of Pagæ, in Megaris.* In my maps the distance from Thermopylæ to this city in a right line, is four hundred and seventy stadia,* which does not exactly agree with that given by Strabo; but the comparison of the bearings, of which I shall speak presently, would not permit me to admit a greater. The first distance is laid down in a right line, within about twelve stadia.
 
 The bottom of the sea of Crissa is determined --- 1. From the 
 
+*) Polyb. Hist. lib. 4. p. 327.
 
+*) Strab. lib. 8. p. 334. Strab. Epitom. lib. 8. p. 112. ap. Geogr. Min. Græc. t. 2.
 
-' Polyb. Hist. lib. 4. p. 327. " Strab. lib. 8. p. S3J. Strab. Epitom. lib. 8. p. 112. 
-»p. Geogr. Min. Grsec. I. ii. ' Strab. lib. 8. p. 33*. Strab. Epitom. lib. 8. p. 112. ap. 
-Geogr. MId. Grxc t. ii. * In this new edition 1 liave not laid down a particular Gulf 
-of Crissa. >■ Strab. lib. 8. p. 336, 379 ; lib. 9. p. i09. 
+*) Strab. lib. 8. p. 334. Strab. Epitom. lib. 8. p. 112. ap. Geogr. Min. Græc. t. 2.
 
-t This distance is not the same in my new General Map of Greece and the Grecian 
-Colonies, on account of new combinations which I have been obliged to malcc, and oT 
-which 1 shall give an accouDt in the continuation of these Obserrationt. 
-VOL. VII. E 
+*) In this new edition I have not laid down a particular Gulf of Crissa.
 
-distance from Pagae to Megara, or to Nisaea/ 2. From that 
-between Creusis in Boeotia and the promontory, of Olmiae near 
-Corinth. a 3. From the bearing of the same promontory, as 
-observed by Wheler,^ from the harbour of San Basilio, which 
-lies to the east of that anciently called Eutretus, and now Li- 
-vadostro. 
+*) Strab. lib. 8. p. 336, 379; lib. 9. p. 409.
 
-For the interior part of Attica, Boeotia, and Phocis, it would, 
+*) This distance is not the same in my new _General Map of Greece and the Grecian Colonies_, on account of new combinations which I have been obliged to make, and of which I shall give an account in the continuation of these Observations.
+
+distance from Pagæ to Megara, or to Nisæa.* 2. From that between Creusis in Bœotia and the promontory, of Olmiæ near Corinth.* 3. From the bearing of the same promontory, as observed by Wheler,* from the harbour of San Basilio, which lies to the east of that anciently called Eutretus, and now Livadostro.
+
+For the interior part of Attica, Bæotia, and Phocis, it would, 
 at first view, seem to admit of no doubt that we ought to follow 
-the map of Wheler ; but if we examine it with attention we 
+the map of Wheler; but if we examine it with attention we 
 shall find that it is not to be confided in. The map of this tra- 
 veller differs essentially from his journal. The bearings he has 
 given in the latter are not found the same in the map. I shall 
 instance only in the position of Corinth. We have seen that, 
 according to the bearings given by Wheler, that city must be 
-more to the south ihan Athens ; yet in the map, in whatever 
+more to the south than Athens; yet in the map, in whatever 
 manner it be taken, it will be found to lie more to the north. 
 I know well that the difference of latitude found between these 
-two cities on .the map, may be diminished by taking the north 
-for that indicated by the compass ; but, even thus, Corinth 
+two cities on the map, may be diminished by taking the north 
+for that indicated by the compass; but, even thus, Corinth 
 cannot be brought down to its true place. It is the same with 
 other places observed by Vernon. If we take the map of 
 Wheler as it stands, we shall find they are all in the latitudes he 
-has given : Wheler has then adjusted his map to the observa- 
+has given: Wheler has then adjusted his map to the observa- 
 tions of Vernon. But of this proofs are unnecessary; Wheler 
 has himself told us so in his preface. He has not perceived 
 that these latitudes, for the most part erroneous,* destroy the 
 accuracy of all his own operations. Besides, how could he lay 
 down places according to their latitude on a map taken by the 
 
-* Strab. lib. 8. p. 384. Strab. Epitom. lib. 8. p. 111. ap. Geogr. Min. Greec t. ii. 
-Peuting. Tab. iegin. 7- * Strab. lib. 9, p. 409. »> Wheler'g Journey, b. 6. p. 472. 
+*) Strab. lib. 8. p. 334. Strab. Epitom. lib. 8. p. 111. ap. Geogr. Min. Græc. t. 2. Peuting. Tab. segm. 7.
 
-* They may be termecbTery erroneous. 
+*) Strab. lib. 9. p. 409.
+
+*) Wheler's Journey, b. 6. p. 472.
+
+*) They may be termed very erroneous.
 
 compass, without correcting the variation ? We can therefore 
 only make use of this map partially ; it is rather to be had re- 
