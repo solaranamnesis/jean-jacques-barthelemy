@@ -28,7 +28,7 @@ English - Plain Text
 English - PDF  
 [Greek - Plain Text](travels-anacharsis-younger-greece-02/full-text-greek.md)  
 Greek - PDF | Biolinum | Atkinson | Cursive | Kerkis | Custom  
-French - Plain Text  
+[French - Plain Text](travels-anacharsis-younger-greece-02/full-text-french.md)  
 French - PDF  
 
 ## Travels of Anacharsis the younger in Greece. Vol 3.
@@ -37,7 +37,7 @@ English - Plain Text
 English - PDF  
 [Greek - Plain Text](travels-anacharsis-younger-greece-03/full-text-greek.md)  
 Greek - PDF | Biolinum | Atkinson | Cursive | Kerkis | Custom  
-French - Plain Text  
+[French - Plain Text](travels-anacharsis-younger-greece-03/full-text-french.md)  
 French - PDF  
 
 ## Travels of Anacharsis the younger in Greece. Vol 4.
@@ -46,7 +46,7 @@ English - Plain Text
 English - PDF  
 [Greek - Plain Text](travels-anacharsis-younger-greece-04/full-text-greek.md)  
 Greek - PDF | Biolinum | Atkinson | Cursive | Kerkis | Custom  
-French - Plain Text  
+[French - Plain Text](travels-anacharsis-younger-greece-04/full-text-french.md)  
 French - PDF  
 
 ## Travels of Anacharsis the younger in Greece. Vol 5.
