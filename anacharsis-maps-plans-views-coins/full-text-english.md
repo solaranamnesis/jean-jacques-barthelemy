@@ -292,12 +292,7 @@ In front of Patræ is the island of Cefalonia, anciently Cephallenia, which, acc
 
 *) Wheler's Journey, b. 6. p. 442.
 
-*) In my new _General Map of Greece and the Grecian Colonies_ this coast takes a di- 
-rection a little different, and the space is more contracted. I am supported in this alte- 
-ration by the positions of Corinth and Patræ, the former of which is situate more to the 
-south than I had placed it by about seven minutes, and the latter more to the north by 
-about three; as I shall have occasion to notice again in the continuation of these Obser- 
-vations.
+*) In my new _General Map of Greece and the Grecian Colonies_ this coast takes a direction a little different, and the space is more contracted. I am supported in this alteration by the positions of Corinth and Patræ, the former of which is situate more to the south than I had placed it by about seven minutes, and the latter more to the north by about three; as I shall have occasion to notice again in the continuation of these Observations.
 
 *) Strab. lib. 10. p. 456 et 458.
 
@@ -373,28 +368,7 @@ The bottom of the sea of Crissa is determined --- 1. From the
 
 distance from Pagæ to Megara, or to Nisæa.* 2. From that between Creusis in Bœotia and the promontory, of Olmiæ near Corinth.* 3. From the bearing of the same promontory, as observed by Wheler,* from the harbour of San Basilio, which lies to the east of that anciently called Eutretus, and now Livadostro.
 
-For the interior part of Attica, Bæotia, and Phocis, it would, 
-at first view, seem to admit of no doubt that we ought to follow 
-the map of Wheler; but if we examine it with attention we 
-shall find that it is not to be confided in. The map of this tra- 
-veller differs essentially from his journal. The bearings he has 
-given in the latter are not found the same in the map. I shall 
-instance only in the position of Corinth. We have seen that, 
-according to the bearings given by Wheler, that city must be 
-more to the south than Athens; yet in the map, in whatever 
-manner it be taken, it will be found to lie more to the north. 
-I know well that the difference of latitude found between these 
-two cities on the map, may be diminished by taking the north 
-for that indicated by the compass; but, even thus, Corinth 
-cannot be brought down to its true place. It is the same with 
-other places observed by Vernon. If we take the map of 
-Wheler as it stands, we shall find they are all in the latitudes he 
-has given: Wheler has then adjusted his map to the observa- 
-tions of Vernon. But of this proofs are unnecessary; Wheler 
-has himself told us so in his preface. He has not perceived 
-that these latitudes, for the most part erroneous,* destroy the 
-accuracy of all his own operations. Besides, how could he lay 
-down places according to their latitude on a map taken by the 
+For the interior part of Attica, Bæotia, and Phocis, it would, at first view, seem to admit of no doubt that we ought to follow the map of Wheler; but if we examine it with attention we shall find that it is not to be confided in. The map of this traveller differs essentially from his journal. The bearings he has given in the latter are not found the same in the map. I shall instance only in the position of Corinth. We have seen that, according to the bearings given by Wheler, that city must be more to the south than Athens; yet in the map, in whatever manner it be taken, it will be found to lie more to the north. I know well that the difference of latitude found between these two cities on the map, may be diminished by taking the north for that indicated by the compass; but, even thus, Corinth cannot be brought down to its true place. It is the same with other places observed by Vernon. If we take the map of Wheler as it stands, we shall find they are all in the latitudes he has given: Wheler has then adjusted his map to the observations of Vernon. But of this proofs are unnecessary; Wheler has himself told us so in his preface. He has not perceived that these latitudes, for the most part erroneous,* destroy the accuracy of all his own operations. Besides, how could he lay down places according to their latitude on a map taken by the compass, without correcting the variation? We can therefore only make use of this map partially; it is rather to be had recourse to as containing memorandums that have their value, than as an exact representation of the country.
 
 *) Strab. lib. 8. p. 334. Strab. Epitom. lib. 8. p. 111. ap. Geogr. Min. Græc. t. 2. Peuting. Tab. segm. 7.
 
@@ -404,186 +378,70 @@ down places according to their latitude on a map taken by the
 
 *) They may be termed very erroneous.
 
-compass, without correcting the variation ? We can therefore 
-only make use of this map partially ; it is rather to be had re- 
-course to as containing memorandums th;it have their value, 
-than as an exact representation of the country. 
+I have taken all the bearings given by Wheler; and have followed the English original, because the French translation is frequently faulty. Wheler indeed has only given the points of the compass, which leave us in an uncertainty of 11° 15′; but, by comparing a great number of these bearings, I have been able to ascertain some points with tolerable accuracy, and have reason to believe that I have restored this map to what it was before he had adjusted it to the observations of Vernon. I have only corrected, in all his bearings, the variation; which I have taken, with M. d'Anville,* at a point of the compass towards the west.
 
-I have taken all the bearings given by Wheler ; and have 
-followed the English original, because the French translation 
-is frequently faulty. AVheler indeed has only given the points 
-of the compass, which leave us in an uncertainty of 11° 13' ; 
-but, by comparing a great number of these bearings, I have 
-been able to ascertain some points with tolerable accuracy, 
-and have reason io believe that I have restored this map to 
-what it was before he had adjusted it to the observations of 
-Vernon. I have only corrected, in all his bearings, the vari- 
-ation ; which I have taken, with M. d'Anville,'' at a point of 
-the compass towards the west. 
+The plans of M. Foucherot have given me the summits of Mount Pentelicus, Mount Hymettus, and the Cerate Mountains. I have taken my station with Wheler on the two latter, and also at the Acro-corinthus, to determine the position of Cithæron. From Cithæron and the Acro-corinthus I have determined Helicon, and also the summit of Parnassus called Lycoria, which has been observed by Wheler to be directly north of the Acro-corinthus.* From Cithæron, Helicon, and Parnassus, I have ascertained the position of Mount Ptous, in Bœotia; from the latter and Cithæron, Mount Teumessus, near Chalcis, or Negropont; from Cithæron and Mount Hymettus, Mount Parnes; from Mount Ptous, several mountains in the island of Eubœa, and one near Opus, now called Talanda. Lastly, from the Acro-corinthus I have determined several capes which run out into the Sea of Crissa.* Among all these situations, the position of Chalcis or Negropont in Eubœa is found in the latitude given by Vernon;* * but I have not been able to place either Thebes or Delphi in the latitudes assigned them by that traveller.
 
-The plans of M. Foucherot have given me the summits of 
-Mount Pentelicus, Mount Hymettus, and the Cerate Moun- 
-tains. I have taken my station with Wheler on the two latter, 
-and also at the Acro-corinthus, to determine the position of 
-Cithaeron. From Citha^ron and the Acro-corinthus I have 
-determined Helicon, and also the summit of Parnassus called 
-Lycoria, which has been observed by Wheler to be directly 
-north of the Acro-corinthus.'' From Citheeron, Helicon, and 
-Parnassus, I have ascertained the position of Mount Ptous, 
-in Bo'otia ; from the latter and Cilhfcron, Mount Teumessus, 
-near Chalcis, or Negropont ; from Citha^ron and Mount Hj'- 
-mettus, Mount Parnes ; from Mount Ptous, several moun- 
-tains in the island of Eubcea, and one near Opus, now 
-called Talanda. Lastly, from the Acro-corinthus I have 
-determined several capes which run out into the Sea of 
+*) D'Anville, Anal. des Côtes de la Grèce, p. 25.
 
-c D' Aaville, Anal, des Cfiles de la Gr6ce, p. 25. 
-E 2 
-
-'' WTieler'g Journey, b. ♦. p. 318,
+*) Wheler's Journey, b. 4. p. 318.
  
-Crissa.* Among all these situations, the position of Chalcis 
-or Negropont in Euboea is found in the latitude given by 
-Vernon ;^'f' but I have not been able to place either Thebes 
-or Delphi in the latitudes assigned them by that traveller. 
+From Turco-Chorio, anciently Elatea, Wheler has observed the summit of Parnassus to bear south by west.* By taking the opposite direction, I have determined the position of Elatea from Parnassus. Turco-Chorio is laid down in a map of Thermopylæ, taken in 1781, by M. Foucherot; so that it has been easy to adjust this map to mine. It is the same which I have copied, in part, in the plan of the pass of Thermopylæ. It has conducted me to Zeitoun, and has besides given me the point of the island of Eubœa. Zeitoun is the ancient Lamia, as is proved by an inscription given by Paul Lucas;* but the country in the environs is scarcely to be known for the same. The Sperchius no longer flows in the same channel as formerly; the marshes which existed in the time of Herodotus are now become firm ground; the Maliac gulf fills up every day; and the strait of Thermopylæ is at present much wider than it was in the time of Xerxes.
 
-From Turco-Chorio, anciently Elatea, Wheler has ob- 
-served the summit of Parnassus to bear south by west/ By 
-taking the opposite direction, I have determined the posi- 
-tion of Elatea from Parnassus. Turco-Chorio is laid down 
-in a map of Thermopylae, taken in 1781, by M. Foucherot; 
-so that it has been easy to adjust this map to mine. It is the 
-same which I have copied, in part, in thej^plan of the pass 
-of Thermopylae. It has conducted me to Zeitoun, arid has 
-besides given me the point of the island of Euboea. Zeitoun 
-is the ancient Lamia, as is proved by an inscription given by 
-Paul Lucas ;^ but the country in the environs is scarcely to 
-be known for the same. The Sperchius no longer flows 
-in the same channel as formerly ; the marshes which existed 
-in the time of Herodotus are now become firm ground; 
-the Maliac gulf fills up every day; and the strait of Ther- 
-mopylae is at present much wider than it was in the time of 
-Xerxes. 
+From Athens to Thermopylæ many of the distances which are given by ancient authors, have appeared to me to be computed in Pythian stadia, or stadia which are shorter by one-fifth than the Olympian. I shall here only instance in some that are given near Thermopylæ; by comparing which with the same distances in Roman measures, we shall perceive that the stadia in which they are estimated, are in the proportion of ten to the mile.
 
-From Athens to Thermopylae many of the distances which 
-are given by ancient authors, have appeared to me to be com- 
-puted in Pythian stadia, or stadia which are shorter by one-fifth 
+*) The new bases which I have taken for the construction of my new _General Map of Greece and the Grecian Islands_, have obliged me to make some changes in the position of these places, of which I shall give an account in the continuation of these Observations.
 
-* The uew bases which I have taken for the construction of my new General Map of 
-Greece and the Grecian Islands ^ have obh'ged me to make some changes in the position 
-of these placesi of which I shall give an account in the continuation of these Obser- 
-vations. 
+*) Journal de Vernon, p. 302.
 
-« Journal de Vernon, p. S02. 
+*) It is no longer found in this latitude any more than the other places; all the observations of this astronomer being erroneous; it may even be doubted whether he ever took any.
 
-•(• It is noionger found in this latitude any more than the other places ; all the ob- 
-servations of this astronomer being erroneous ; it may even be doubted whether he ever 
-took any. 
+*) Whel. ibid. b. 6. p. 462.
 
-f Whel. ibid* b. 6. p. 462. ^ Paul Lucas, Second Voyag. t. i. p. 405. Inscript. 52. 
+*) Paul Lucas, Second Voyag. t. 1. p. 405. Inscript. 52.
 
-than the Olympian. I shall here only instance in some that 
-are given near Thermopylae ; by comparing which with the 
-same distances in Roman measures, we. shall perceive that 
-the stadia in which they are estimated, are in tlie proportion 
-of ten to the mile. 
+Herodotus, when describing this famous pass, reckons forty-five stadia from Anticyra, along the Sperchius, to Trachis;* and Strabo says that the Sperchius is distant from Lamia thirty stadia;* in the whole, seventy-five stadia from Trachis to Lamia. But Trachis having been destroyed, according to the same Strabo,* Heraclea was built at about six stadia distance. Subduct these six stadia from seventy-five, and there will remain sixty-nine for the distance from Lamia to Heraclea; and Livy says expressly, speaking of these two cities, _intersunt septem millia fermè passuum_.* The same proportion is likewise found in the distance from Heraclea to the hot springs at Thermopylæ. This distance is forty stadia, according to Thucydides,* which measure is confirmed by Strabo;* yet Pliny makes it only four Roman miles.*
 
-Herodotus, when describing this famous pass, reckons forty- 
-five stadia from Anticyra, along the Sperchius, to Trachis ; "* 
-and Strabo says that the Sperchius is distant from Lamia thirty 
-stadia ; ' in the whole, seventy-five stadia from Trachis to 
-Lamia. But Trachis having been destroyed, according to the 
-same Strabo,'' Heraclea was buUt at about six stadia distance. 
-Subduct these six stadia from seventy-five, and there will re- 
-main sixty-nine for the disUmce from Lamia to Heraclea ; and 
-Livy saj's expressly, speaking of these two cities, intersimt 
-aepiem viUliafermd passuum) The same proportion is likewise 
-found in the distance from Heraclea to the hot springs at 
-Thermopylae. This distance is forty stadia, according to 
-Thucydides,"" which measure is confirmed by Strabo ; " yet 
-Pliny makes it only four Roman miles." 
+An observation taken by M. Foucherot, at Thermopylæ, of the bearing of that part of the coast of Thessaly which extends farthest to the south, has given me the direction of the channel which separates this country from Eubœa. This channel is much longer than it is represented in the greater part of maps, but it is extremely narrow; for I have not been able to employ the eighty stadia assigned by Herodotus* for the distance between Artemisium and Aphetæ, but by taking them at only fifty-three toises each, as M. d'Anville has done in his map of ancient Greece. The length I have given to this channel is the same with that of the coast of Eubœa which borders it; and this coast extends the space of thirty-six Italian miles, according to a manuscript chart of the Archipelago, drawn by the pilot Gautier, in 1738. On the most northern cape of the island of Eubœa formerly stood the city of Cerinthus, the name of which has been corrupted by mariners into that of Cape Rhento.
 
-An observation taken by M. Foucherot, at Thermopylae, of 
-the bearing of that part of the coast of Thessaly which extends 
-farthest to the south, has given me the direction of the channel 
-which separates this country from Euboea. This clumuel is 
-much longer than it is represented in the greater part of maps, 
-but it is extremely narrow ; for I have not been able to employ 
-the eighty stadia assigned by Herodotus p for the distance be- 
-tween Artemisium and Aphetre, but by taking them at only 
+*) Herodot. lib. 7. cap. 198.
 
+*) Strab. lib. 9. p. 443.
 
+*) Id. ibid. p. 428.
 
-" Herodoi. lib. 7. cap. 198. '< Strab. lib. 9. p. +43. i- U. ibid. p. 498- ' Liv. 
-lib. 36. cap. 25. "■ Thucyd. lib. 3. cap. 92. ■■ Strab. lib. 9. p. 429. " Plin. lib. *. 
-cap. 7. t. i. p. 199. f Herodoi. lib. 8. cup. 8. 
+*) Liv. lib. 36. cap. 25.
 
-fifty-three toises each, as M. d'Anville has done in his map of 
-ancient Greece. The length 1 have given to this channel is 
-the same with that of the coast of Eubcea which borders it ; 
-and tliis coast extends the space of thirty-six Italian miles, 
-according to a manuscript chart of the Archipelago, drawn 
-by the pilot Gautier, in 1738. On the most northern cape of 
-the island of Euboea formerly stood the city of Cerinthus, 
-the name of which has been corrupted by mariners into that 
-of Cape Rhento. 
+*) Thucyd. lib. 3. cap. 92.
 
-Several maps make this cape bear due north of the pro- 
-montory of Sepias, now Cape St. George ; and the chart of 
-Gautier places the latter directly south of the point of Cassan- 
-der, anciently the promontory of Posidium, in the peninsula 
-of Pallene. The distance from tlie promontory of Posidium 
-to Sepias appears to me to be about thirty-five Italian miles ; 
-Gautier makes it more ; but it cannot much exceed this, for 
-the latitude of the promontory of Posidium is determined by 
-that of Therma, now Salonichi, at the bottom of the Thermaic 
-Gulf. The whole coast from that city to the promontory of 
-Canastraeum, now Canonistro, is laid down from a chart taken 
-geometrically, in 1738, by M. le Roi, an engineer who accom- 
-panied the Marquis d'Antin. The map of M. le Roi has also 
-furnished me with the mouths of the Axius, and even the coast 
-of Thessaly, though the latter is only laid down from esti- 
-mation. 
+*) Strab. lib. 9. p. 429.
 
-The longitude and latitude of Saloniclii liave been observed 
-by Father Feuill6e.''* It is situate 20" 48' east of Paris, and in 
+*) Plin. lib. 4. cap. 7. t. 1. p. 199.
 
+*) Herodot. lib. 8. cap. 8.
 
+Several maps make this cape bear due north of the promontory of Sepias, now Cape St. George; and the chart of Gautier places the latter directly south of the point of Cassander, anciently the promontory of Posidium, in the peninsula of Pallene. The distance from the promontory of Posidium to Sepias appears to me to be about thirty-five Italian miles; Gautier makes it more; but it cannot much exceed this, for the latitude of the promontory of Posidium is determined by that of Therma, now Salonichi, at the bottom of the Thermaic Gulf. The whole coast from that city to the promontory of Canastræum, now Canonistro, is laid down from a chart taken geometrically, in 1738, by M. le Roi, an engineer who accompanied the Marquis d'Antin. The map of M. le Roi has also furnished me with the mouths of the Axius, and even the coast of Thessaly, though the latter is only laid down from estimation.
 
-1 Mem. de I'Acad. des Sciences, am. 1702, p. 9. 
+The longitude and latitude of Salonichi have been observed by Father Feuillée.* It is situate 20° 48′ east of Paris, and in latitude 40° 41′ 10′′ N. From the position of this place I have determined the longitude of all Greece, in my General Map.
 
-• This latitude is very accurate, but the longitude is erroneous- I have been obb'ged 
-to remove this position more to the west. I Ehall give an account in the continuation 
-of the>G Obserrationg of the reasons which induced me to make this alteration. 
+*) Mem. de l'Acad. des Sciences, ann. 1702, p. 9.
 
-latitude 40° 41' 10" N. From the position of this place I 
-have determined the longitude of all Greece, in my General 
-Map. 
+*) This latitude is very accurate, but the longitude is erroneous. I have been obliged to remove this position more to the west. I shall give an account in the continuation of these Observations of the reasons which induced me to make this alteration.
 
-The summit of Mount Olympus, in Thessaly, is ascertained 
-by its bearing from Salonichi. The valley of Tempe is given 
-from a manuscript map of Mr. Stuart, a learned Englishman, 
-who has published the Antiquities of Athens ; and the bottom 
-of the Pagastic Gulf is determined, as I have already said, 
-from the latitude of Pegasa;, now the castle of Volo. The 
-latitude of this castle is 39° 21', according to Dapper.' I know 
-not whence he obtained this observation, but it appears to me 
-sufficiently accurate. The isles Sciathos, Scopelos, and the 
-others near to them, are taken from the chart of Gautier ; 
-except tliat of Scyros, which is laid down from the plan given 
-of it by the Count de Choisseul-Gouffier.'* 
+The summit of Mount Olympus, in Thessaly, is ascertained by its bearing from Salonichi. The valley of Tempe is given from a manuscript map of Mr. Stuart, a learned Englishman, who has published the Antiquities of Athens; and the bottom of the Pagastic Gulf is determined, as I have already said, from the latitude of Pegasæ, now the castle of Volo. The latitude of this castle is 39° 21′, according to Dapper.* I know not whence he obtained this observation, but it appears to me sufficiently accurate. The isles Sciathos, Scopelos, and the others near to them, are taken from the chart of Gautier; except that of Scyros, which is laid down from the plan given of it by the Count de Choisseul-Gouffier.* *
 
 On the western coast I stopped at the Gulf of Ambracia. I 
 shall now proceed to determine the position of the island of Cor- 
-cyra, at present Corfu. CoroneUi has given a map of this island, 
-which is sufficiently minute ;-)- but the scale of it is defective. 
-M. d'Anville has corrected it,"^ by comparing it with a plan 
+cyra, at present Corfu. Coronelli has given a map of this island, 
+which is sufficiently minute;* but the scale of it is defective. 
+M. d'Anville has corrected it,* by comparing it with a plan 
 taken by M. Verguin. I have done the same; and have after- 
-wards adjusted to the position of this island the coast of Epinis, 
-from Buthrotum to the promontory Chimaerium, and even 
+wards adjusted to the position of this island the coast of Epirus, 
+from Buthrotum to the promontory Chimærium, and even 
 beyond. The greater number of the Portulans place the islands 
-called Paxae to the east and south-east of Corfu ; they are, 
+called Paxæ to the east and south-east of Corfu; they are, 
 nevertheless, laid down very nearly south in all the maps, and 
+
 
 
 ' Dapper, Descript. de 1' Archip. p. 3t2. • Voyag. Pittor. de la Grice, pi. 40- 1. i. p. 77. 
