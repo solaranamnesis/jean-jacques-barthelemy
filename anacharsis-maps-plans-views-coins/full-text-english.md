@@ -430,183 +430,70 @@ The longitude and latitude of Salonichi have been observed by Father Feuillée.*
 
 The summit of Mount Olympus, in Thessaly, is ascertained by its bearing from Salonichi. The valley of Tempe is given from a manuscript map of Mr. Stuart, a learned Englishman, who has published the Antiquities of Athens; and the bottom of the Pagastic Gulf is determined, as I have already said, from the latitude of Pegasæ, now the castle of Volo. The latitude of this castle is 39° 21′, according to Dapper.* I know not whence he obtained this observation, but it appears to me sufficiently accurate. The isles Sciathos, Scopelos, and the others near to them, are taken from the chart of Gautier; except that of Scyros, which is laid down from the plan given of it by the Count de Choisseul-Gouffier.* *
 
-On the western coast I stopped at the Gulf of Ambracia. I 
-shall now proceed to determine the position of the island of Cor- 
-cyra, at present Corfu. Coronelli has given a map of this island, 
-which is sufficiently minute;* but the scale of it is defective. 
-M. d'Anville has corrected it,* by comparing it with a plan 
-taken by M. Verguin. I have done the same; and have after- 
-wards adjusted to the position of this island the coast of Epirus, 
-from Buthrotum to the promontory Chimærium, and even 
-beyond. The greater number of the Portulans place the islands 
-called Paxæ to the east and south-east of Corfu; they are, 
-nevertheless, laid down very nearly south in all the maps, and 
+On the western coast I stopped at the Gulf of Ambracia. I shall now proceed to determine the position of the island of Corcyra, at present Corfu. Coronelli has given a map of this island, which is sufficiently minute;* but the scale of it is defective. M. d'Anville has corrected it,* by comparing it with a plan taken by M. Verguin. I have done the same; and have afterwards adjusted to the position of this island the coast of Epirus, from Buthrotum to the promontory Chimærium, and even beyond. The greater number of the Portulans place the islands called Paxæ to the east and south-east of Corfu; they are, nevertheless, laid down very nearly south in all the maps, and so they are found in mine. In giving their figure I have followed a map by Van Keulen.
 
+*) Dapper, Descript. de l'Archip. p. 342.
 
+*) Voyag. Pittor. de la Grèce, pl. 40. t. 1. p. 77.
 
-' Dapper, Descript. de 1' Archip. p. 3t2. • Voyag. Pittor. de la Grice, pi. 40- 1. i. p. 77. 
+*) Some change has been made in the situation of all these islands, of which I shall give an account in the continuation of these Observations.
 
--* Some change has been made in the iituaiion of all these islands, of which I shall 
-give an account in the continuation of these Observationi. 
+*) This Map is found in the Atlante Veneto.
 
-f This Map is found in the Allante Venelo. ' D'Anville, Anal, des Coles de la 
+*) D'Anville, Anal. des Côtes de la Grèce, p. 9.
 
-Grice, p. 9. 
+From these islands the Greek and compiled Portulans make Cape Sidero the most westerly point of Cephallenia, to bear south by east; and Levanto says* this is in general the course steered in sailing from Corfu to Cefalonia. The distance is different according to different authors; but it is determined by the latitude of Corfu, which, according to the tables of Riccioli and Pimentel,* which are constructed from the observations of navigators, is 39° 37′ N.* The position of Corfu agrees with the seven hundred stadia which the ancients computed between Leucas and Corcyra,* the latter city is not indeed the same with Corfu: the ruins of it are seen at a little distance to the south, in a peninsula now called Chersopoli; and from this peninsula to Leucas, the distance, in a right line, on my map, is six hundred and twelve Olympian stadia, which appears a suitable reduction.
 
-SO they are found in mine. In giving their figure I have fol- 
-lowed a map by Van Keulen. 
+From Corcyra the ancients again reckoned seven hundred stadia* to the Acro-ceraunian mountains; or perhaps only six hundred and sixty, which is the number in the manuscript of Agathemerus;* though Tennulius has thought proper to correct it from the text of Pliny. He would have done better to have corrected Pliny* by Agathemerus. In my map the distance of five hundred and ninety stadia will be found, in a right line, between Corcyra and the point of the Acro-ceraunian or Ceraunian mountains, now called La Linguetta. This reduction is not too great. The position of that point is likewise ascertained by other means.
 
-From these islands the Greek and compiled Portulans make 
-Cape Sidero the most westerly point of Cephallema, to bear 
-south by east ; and Levanto says'* this is in general the couri^e 
-steered in saiHng from Corfu to Cefalonia. The distance is dif- 
-ferent according to different authors ; but it is determined by 
-thie latitude of Corfu, which, according to the tables of Riccioli 
-^ and Pimentel,* which are constructed from the observations of 
-navigators, is 39° 37' N.* The position of Corfu agrees with 
-the seven hundred stadia which the ancients computed between 
-Leucas and Corcyra/ The latter city is not indeed the same 
-with Corfu : the ruins of it are seen at a little distance to the 
-south, in a peninsula now called Chersopoli ; and from this pe- 
-ninsula to Leucas, the distance, in a right line, on my map, is 
-six hundred and twelve Olympian stadia, which appears a 
-suitable reduction. 
+*) Levanto, Specchio del Mare, p. 105, etc.
 
-From Corcyra the ancients again reckoned seven hundred 
-stadia* to the Acro-ceraunian mountains ; or perhaps only %vL 
-hundred and sixty, which is the number in the manuscript of 
-Agathemerus ;* though Tennulius has thought proper to correct 
-it from the text of Pliny. He would have done better to have 
-corrected Pliny ^ by Agathemerus. In my map the distance of 
+*) Ricciol. Geograph. et Hydrogr. Reform. lib. 9, cap. 4. p. 384: Venet. 1672. in fol. Pimentel, Arte de Navegar, p. 216: Lisboa, 1722, in fol.
 
-^ Levanto, Specchio del Mare, p. 105^ &c. * Ricciol. Geograph. et Hydrogr. Re« 
+*) This latitude is only 1′ 18′′ less than that determined by M. Beauchamp, on land, in this city, in 1796; and it is the latter which I have followed in my new _General Map of Greece and the Grecian Colonies_, as I shall have occasion again to notice hereafter.
 
-form. lib. 9, cap.4>. p. S84: Venet. 1672. in fol. Pimentel^ Arte de Navegar^ p*2I6: 
-Lifiboa, 1722, in fol. 
+*) Polyb. ap. Strab. lib. 2. p. 105. Plin. lib. 2. 108. t. 1. p. 124. Agathem. lib. 1. cap. 4. p. 10. ap. Geogr. Min. Græc. t. 2.
 
-* This latitude is only 1' 18" less than that determined by M. Beauchamp, on land, in 
-this city, in 1796 ; and it is the latter which I have followed in my new General Map of 
-dreece and the Grecian Colonies^ as I shall have occasion again to notice hereafter. 
+*) Polyb. ap. Strab. ibid.
 
-y Polyb. ap. Strab. lib. 2. p. 105. Plin. lib. 2. 108. t. i. p. 124. Agathem. lib. 1. cap. 
-4. p. 10. ap. Geogr. Min. Greec. t. ii. * Polyb. ap. Strab. ibid. « Agathem. ibid. 
+*) Agathem. ibid.
 
-^Plm. ibid. 
+*) Plin. ibid.
 
-five hundred and ninety stadia will be found, in a right line, 
-between Corcj'ra and the point of the Acro-ceraunian or Ce- 
-raunian mountains, now culled La Linguetta. This reduction 
-is not too great. The position of that point is Hkewise ascer- 
-tained by other means. 
+The latitude of this point is taken from a large chart of the Gulf of Oricum, now La Valona, geometrically taken, in 1690, by a Venetian engineer, named Alberghetti, in which the latitude seems to have been given from an astronomical observation made at La Valona, though it is not mentioned in the chart. Its longitude is deduced from its bearing with respect to the most northern point of Corfu: at least Levanto says* that Corfu lies ten leagues to the south-south-east of the isle of Saseno, anciently Saso. The leagues of this pilot are always four Italian miles each, as has been remarked by M. d'Anville;* and, taking the opposite direction, the ten leagues will precisely extend from Cape Phalacrum, the most northern point of Corfu, to the latitude which the Venetian chart assigns to the point of La Linguetta. I have therefore reason to believe that the Ceraunian mountains are rightly placed in my map. On the other hand, the position of the Cape La Linguetta, which is placed due south of Saseno in the Venetian chart, is shown to be right by that of the small island Thoronos.* The latter is directly to the south* of Saseno, and due west* of Phalacrum in Corcyra.
 
-The latitude of this point is taken from a large chart of the 
-Gulf of Oricura, now La Valona, geometrically tjiken, in 1690, 
-by a Venetian engineer, named Alberghetti, in which the lati- 
-tude seems to have been given from an astronomical observation 
-made at La Valona, though it is not mentioned in the chart. 
-Its longitude is deduced from its bearing with respect to the 
-most northern point of Corfu : at least Levanto says" that Corfu 
-lies ten leagues to the south- south- east of tlie isle of Saseno, 
-anciently Saso. The leagues of this pilot are always four Italian 
-miles each, as has been remarked by M. d'AnviUe ;<' and, taking 
-the opposite direction, the ten leagues will precisely extend 
-from Cape Phalacrum, the most northern point of Corfu, to 
-the latitude which the Venetian chart assigns to the point of 
-La Linguetta. I have therefore reason to believe that the 
-Ceraunian mountains are rightly placed in my map. On the 
-other hand, the position of the Cape La Linguetta, which is 
-placed due south of Saseno in the \'enetian chart, is shown to 
-be right by that of the small island Thoronos.* The latter is 
-directly to the south' of Saseno, and due west*^ of Phalacrum in 
-Corcyra. 
+The chart of the Gulf of Oricum, which appeared to me very carefully laid down, has furnished me with the coasts of that gulf, those of the island Saso, and even a part of the course of the river Celydnus. I have also profited by a note engraved on that chart, which contains a concise but well drawn description of the country in the environs of La Valona, the ancient Aulon. It has likewise given me the distances descending to the south to Buthrotum, opposite Corcyra; and has, besides, conducted me to Durazzo, or Epidamnus, in Illyricum. But it must surely excite our astonishment that so accurate a chart should have remained almost unknown to the time of M. d'Anville;* the reason of which no doubt is, that the greater part of geographers, accustomed to copy from each other, have never thought of examining Greece in detail, as has been done by M. d'Anville.
 
-The chart of the Gulf of Oricum, which appeared to me very 
-carefully laid down, has furnished me with the coasts of that 
+*) Levanto, Specchio del Mare, p. 95, et 104.
 
+*) D'Anville, Anal. des Côtes de la Grèce, p. 4.
 
+*) Now called _Fanu_.
 
-= Levanto, Specchio del Mare, p. 95, et 104. " D'Anville, Anal, des Cetes de U 
+*) Portul. Grec. et Compilé. Levanto, ibid.
 
-Grece, p.*. ' Now called Faiiu. ' Porlul. Grec- et Compile. Levanto, ibid. 
+*) Portul. Manus. Coronelli, Descript. de la Morée, p. 63.
 
-' Portul. Manus. Coronelli, Descript. de la Morde, p. 63. 
-VOL. XII. F 
+The Greek and compiled Portulans, Levanto,* and Alberghetti, in a note, lay down Durazzo due north of the isle of Saseno. I have placed it in that direction; and for the distance I think we should prefer that given by Alberghetti; not that the others differ much from it, but because it is the greatest of all: yet has it still obliged me to take the least of two different latitudes which have been assigned to Durazzo, and which, as I have already said, is that of the table of Philip Lansberge,* who states it at 41° 27′. The tables of Harris and Riccioli place Durazzo more to the north, and make the latitude 41° 58′;* but this would require almost double the distance.
 
-gulf, those of the island Saso, and even a part of the course of 
-the river Celydnus. I have also profited by a note engraved on 
-that chart, which contains a concise but well drawn description 
-of the country in the environs of La Valona, the ancient Aulon. 
-It has likewise given me the distances descending to the south 
-to Buthrotum, opposite Corcyra ; and has, besides, conducted 
-me to Durazzo, or Epidamnus, in Illyricum, But it must 
-surely excite our astonishment that so accurate a chart should 
-have remained almost unknown to the lime of M. d'Anville ;^ 
-the reason of which no doubt is, that the greater part of geo- 
-graphers, accustomed to copy from each other, have never 
-thought of examining Greece in detail, as has been done by 
-M. d'Anville. 
+From all that I have said, it appears to me that the western coast of Greece is ascertained with tolerable accuracy: it is therefore now only necessary to inquire whether my measures will be found exact, if we cross to the eastern side. I have already determined the breadth of Greece; first in Peloponnesus, by the distance of Argos from Olympia; and, afterwards, in the middle of Greece itself, by that of the Gulf of Ambracia from Thermopylæ. I shall now proceed to ascertain it in the most northern part, by the extent of the Egnatian way, which went from Apollonia and Epidamnus to Thessalonica or Therma, at the bottom of the Thermaic Gulf, and even beyond. This way indeed was made by the Romans, and did not exist till a long time after the æra of the Travels of Anacharsis: yet the measure of its length to Thessalonica will enable us to determine the space which separates the two seas. This measure is given in Roman miles.
 
-The Greek and compiled Portulans, Levanto,** and Alber- 
-ghetti, in a note, lay , down Durazzo due north of the isle of 
-Saseno. I have placed it in that direction ; and for the dis- 
-tance I think we should prefer that given by Alberghetti ; not 
-that the others differ much from it, but because it is the 
-greatest of all : yet has it still obliged me to take the least of 
-two different latitudes which have been assigned to Durazzo, 
-and which, as I have already said, is that of the table of Philip 
-Lansberge,* who states it at 41° 27'* The tables of Harris and 
-Riccioli place Durazzo more to the north, and make the 
-latitude 41^58';^ but this would require almost double the 
-distance. 
+*) D'Anville, Anal. des Côtes de la Grèce, p. 6.
 
-From all that I have said, it appears to me that the western 
-coast of Greece is ascertained with tolerable accuracy : it is 
+*) Levanto Specchio del Mare, p. 95.
 
-K D'Anville, Anal, des C6te8 de la Grdce, p. 6. .*» Levanto Specchio del Mare, 
+*) Philip. Lansberg. Tab. Mot. Cœl. Perp. p. 8: Middelb. 1663, in fol.
 
-p. 95. * Philip. Lansberg. Tab. Mot. Ccel. Perp. p. 8 : Middelb. 1663, in fol. 
+*) Harris's Diction. under the word Latitude: London, 1736, fol. Ricciol. Geogr. et Hydrogr. Reform. lib. 9. c. 4. p. 397.
 
-It Harris's Diction, under the word Latitude: London, 1736^ fol. Ricciol. Geogr. ei 
-Hydrogr. Reform, lib. 9. c. 4. p. 397. 
+Polybius, according to Strabo,* reckoned two hundred and sixty-seven miles on this road from Apollonia in Illyricum to Thessalonica. Strabo afterwards remarks that the road was not longer from Dyrrachium or Epidamnus, than from Apollonia;* it will therefore be indifferent whether we take the measure of it from one or the other of those cities. I shall take it from Epidamnus, because I have already determined the position of that place. The 267 Roman miles, at 756 toises each, at which they are estimated by M. d'Anville,* make 201852 toises; and on my map the distance between Epidamnus and Therma, in a right line, is 167200. The reduction of the itinerary measure to the right line is about one-sixth, which I imagine will appear a suitable proportion in a mountainous country, and where the road passes through several defiles.* Alberghetti, besides, says that the distance from Durazzo to Salonichi is little more than two hundred Italian miles.
 
-therefore now only necessary to inquire whether my measures 
-will be found exact, if we cross to the eastern side. I have 
-already determined the breadth of Greece ; first in Pelopon- 
-nesus, by the distance of Argos from Olympia ; and, after- 
-wards, in the middle of Greece itself, by that of the Gulf 
-of Ambracia from Thermopylffi. I shall now proceed to as- 
-certain it in the most northern part, by the extent of the 
-Ei^natian way, which went from Apollonia and Epidamnus to 
-Thessalonica or Therma, at the bottom of the Thermaic Gulf, 
-and even beyond. This way indeed was made by the Ro- 
-mans, and did not exist till a long time after the pera of the 
-Travels of Anacharsis : yet the measure of its length to Thes- 
-salonica will enable us to determine the space which separates 
-the two seas. This measure is given in Roman miles. 
+*) Polyb. ap. Strab. lib. 7. p. 323.
 
-Polybius, according to Strabo,' reckoned two hundred and 
-sixty-seven miles on this road from Apollonia in Illyricum to 
-Thessalonica. Strabo afterwards remarks that the road was 
-not longer from Dyrrachium or Epidamnus, than from Apol- 
-lonia;"" it will therefore be indifferent whether we take the 
-measure of it from one or the other of those cities. I shall 
-take it from Epidamnus, because I have already determined the 
-position of that place. The '267 Roman miles, at 756 toises 
-each, at which they are estimated by M. d'Anville," make 
-201852 toises ; and on my map the distance between Epidam- 
-nus and Therma, in a right line, is 167200. The reduction 
-of the itinerary measure to the right line is about one-sixth, 
-which I imagine will appear a suitable proportion in a moun- 
-tainous country, and where the road passes through several 
+*) Strab. ibid.
 
-' Polyb. ftp. Strab. lib. 7. p- 323. 
-Itin. p. 44. 
+*) D'Anville, Trait. des Mes. Itin. p. 44.
 
-' D'Anville, Trait, dea Mei. 
-
-defiles."*^ Alberghetti, besides, says that the distance from 
-Durazzo to Salonichi is little more than two hmidred Italian 
-miles. 
 
 In the interior part of Epirus some particularities may be 
 remarked that are not found in any maps before published. 
