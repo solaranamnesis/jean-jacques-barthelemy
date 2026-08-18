@@ -494,176 +494,64 @@ Polybius, according to Strabo,* reckoned two hundred and sixty-seven miles on th
 
 *) D'Anville, Trait. des Mes. Itin. p. 44.
 
+In the interior part of Epirus some particularities may be remarked that are not found in any maps before published. They are taken in part from a manuscript journey from Arta, anciently Ambracia, by Joannina, and Gomphi, to Larissa in Thessaly; and in part from the Greek geography of Meletius, a native of Joannina, a town situate on the lake Acherusia. It may perhaps excite surprise to see this lake within land, at a considerable distance from the sea, while all the maps place it at the mouth of the Acheron: yet Scylax and Strabo* make the Acheron not fall into this lake, but rise out of it; and Pliny still more positively says* that the Acheron, after having flowed out of the lake Acherusia, makes a course of thirty-six miles to arrive at the sea. This is, in fact, the distance from Joannina to port Veliki, anciently Glycys, or the Sweet Port. The Acheron in this space loses itself for some time under ground, according to Meletius;* and this it is, no doubt, which has caused it to be represented as one of the rivers of hell. The same is probably the case with the Cocytus, which rises out of the same lake.
 
-In the interior part of Epirus some particularities may be 
-remarked that are not found in any maps before published. 
-They are taken in part from a manuscript journey from Arta, 
-anciently Ambracia, by Joannina^ and Gomphi, to Larissa 
-in Thessaly ; and in part from the Greek geography of Mele- 
-tins, a native of Joannina, a town situate on the lake Acherusia. 
-It may perhaps excite surprise to see this lake within land, at 
-a considerable distance from the sea, while all the maps place 
-it at the mouth of the Acheron : yet Scylax and Strabo® make 
-the Acheron not fall into this lake, but rise out of it ; and Pliny 
-still more positively says^ that the Acheron, after having flowed 
-out of the lake Acherusia, makes a course of thirty-six miles 
-to arrive at the sea. This is, in fact, the distance from Joan* 
-nina to port Veliki, anciently Glycys, or tlve Sweet Port. The 
-Acheron in this space loses itself for some time under ground, 
-according to Meletius;"^ and this it is, no doubt, which has 
-caused it to be represented as one of the rivers of hell. The 
-same is probably the case with the Cocy tus, which rises out of 
-the same lake. 
+I shall not enter into so minute a detail of the remainder of the General Map, though all the parts of it have been laid down on the same scale as the particular ones. The General Map is, as I may say, only the extract of a work of much greater labour; it will therefore be sufficient to indicate the principal points.
 
-I shall not enter into so minute a detail of the remainder of 
-the General Map, though all the parts of it have been laid 
-down on the same scale as the particular ones. The General 
-Map is, as I may say, only the extract of a work of much 
+*) The distance on this road is still shorter in my new _General Map of Greece and the Grecian Colonies_, because it is adjusted to the positions of Durazzo and Salonichi.
 
+*) Scyl. p. 11. ap. Geogr. Min. Græc. t. 1. Strab. lib. 7. p. 324.
 
+*) Plin. lib. 4. c. 1. t. 1. p. 189.
 
-* The distance on this road is still shorter in my new General Map of Greece and the 
-Grecian Colonies, because it is adjusted to the positions of Durazzo and Salonichi. 
+*) Μελετ. Γεωγρ. lib. 1. sect. 18. c. 3. No. 10: Venet. 1728 in fol.
 
-« Scyl. p. 11. ap- Qttogr. Min. Gc«c. t. i. Sirab. lib. 7. p. 3S4. p Ptin. lib. 4. c I. 
-t. i. p. 189. ^ M£\£r. Fcteiyp. lib. 1. sect. 18. c. S. No. 10: Venet. 1728 in fol. 
+The figure of the three peninsulas of Chalcidice and the Gulf of Pieria, to the isle of Thasos inclusively, is taken from a manuscript chart of the pilot Gauthier, found among the papers of M. Freret. This chart has been adjusted to that of the eastern coast of the Thermaic Gulf, taken geometrically by M. le Roi, and of which I have already spoken. In this chart of Gauthier's the peninsula in which Mount Athos is situate, extends to a somewhat greater length than in another manuscript map of the Archipelago, which is to be found in the Geographical Collection for Foreign Affairs: but I have reason to believe the manuscript which I have followed accurate, because it agrees with the measures of this peninsula given by Pliny and Belon;* and because, besides, the summit of Mount Athos has precisely the same bearing from the ruins of Alexandria Troas, more anciently Sigeum, which it was observed to have by Mr. Chandler.* *
 
+The isle of Lemnos is laid down according to its distances from Mount Athos and the Hellespont, and the bearings indicated by the shadow of Mount Athos, as it projects itself on that island.* Myrina, the principal city of Lemnos, could not be at the north-west point, as it is found in some maps. The shadow of Mount Athos, according to the testimony of almost all antiquity, did not reach a brazen cow which stood in the forum till the summer solstice;* and Belon has remarked* that the shadow already projected on the north-west angle of Lemnos, on the 2d of June.* The coast of Thrace, from Thasos to the mouth of the Hebrus, is laid down from the indications of the Portulans compared with the Roman Itineraries.
 
-greater labour ; it will therefore be sufficient to indicate the 
-principal points. 
+*) Plin. lib. 4. c. 10. t. 1. p. 202. Belon, Observ. liv. 1. c. 35.
 
-The figure of the three peninsulas of Chalcidice and the 
-Gulf of Pieria, to the isle of Thasos inclusively, is taken from 
-a manuscript chart of the pilot Gauthier, found among the 
-papers of M. Freret. This chart has been adjusted to that of 
-the eastern coast of the 'J'hermaic Gulf, taken geometrically by 
-M. le Roi, and of which 1 have already spoken. In this chart 
-of Gauthier's the peninsula in which Mount Athos is situate, 
-extends to a somewhat greater length than in another manu- 
-script map of the Archipelago, which is to be found in the 
-Geographical Collection for Foreign Affairs : but I have reason 
-to believe the manuscript which I have followed accurate, be- 
-cause it at^rees with the measures of this peninsula given by 
-Pliny and Belon ;' and because, besides, the summit of Mount 
-Athos has precisely the same bearing from the ruins of Alex- 
-andria Troas, more anciently Sigeum, which it was observed 
-to have by Mr. Chandler.'* 
+*) Chandl. Trav. in Asia Min. c. 8. p. 23.
 
-The isle of Lemnos is laid down according to its distances 
-from Mount Athos and the Hellespont, and the bearings indi- 
-cated by the shadow of Mount Athos, as it projects itself on 
-that island.-f- Myrina, the principal city of Lemnos, could 
-not be at the north-west point, as it is found in some maps. 
-The shadow of Mount Athos, according to the testimony of 
+*) The situation of Mount Athos is at present well known, as is the coast of Thrace to the Hellespont, and even beyond. All this part is laid down in my new General Map from the maps of M. Truguet, as I shall have again occasion to notice in the continuation of these Observations.
 
+*) The island of Lemnos has been laid down with great care and accuracy by M. Truguet, and it is from his maps that it is placed in my new General Map.
 
+The latitude of the Dardanelles, anciently the Hellespont, has been observed by M. de Chazelles;* but for their position I have entirely followed a large manuscript chart taken within these few years by M. Tondu, an astronomer, who has ascertained their longitude and latitude.* This chart has furnished me with the coasts of the Gulf of Melas, the Thracian Chersonesus, and the opposite Asiatic shore, to Tenedos. To this is added another chart, also in manuscript, taken by M. Truguet, captain of a frigate, under the orders of the Count de Choiseul-Gouffier. From this I have obtained the remainder of the coast of the Troas, the Gulf of Adramyttium to the entrance of that of Cyme, and the whole island of Lesbos.*
 
-■ Pliw. lib. +. c 10. t. i. p. 202. Bdon, Observ. liv. 1 . c. 35. ' Chandl. Tfav. in 
-Amo Min, c. 8. p. 23. 
+*) Sophocl. ap. Etymol. Magn. in Αθως. Apollon. Rhod. Argon. lib. 1. v. 604. Plin. 
+lib. 4. c. 12. t. 1. p. 214. Plut. de Fac. in Orb. Lun. t. 2. p. 935. Solin. c. 2. p. 31.
 
-' The sitnation of Mount Athos is ax present nell known, a> ia the coau of Thrace 
-to the MellespoDt. and even beyond. All this part is laid down in my new General Map 
-from the map* of M. Truguet, aa I shall have again occasion to notice in the contJnua' 
-tion of these Observations. 
+*) Belon. Observ. liv. 1. c. 25.
 
-f The island of Lemnos has been laid down with great care and accuracy by M. 
-Truguel, and it is from his maps that it is placed in my new General Map. 
+*) The city of Myrina stood on the same spot where the present town of Lemnos now stands, according to the maps of M. Truguet.
 
-almost all antiquity, did not reach a brazen cow which stood 
-in the forum till the summer solstice ;* and Belon has remarked^ 
-that the shadow already projected on the north-west angle of 
-Lemnos, on the 2d of June.* The coast of Thrace, from 
-Thasos to the mouth of the Hebrus, is laid down from the 
-indications of the Portulans compared with the Roman Itine- 
-raries. 
+*) Mem. de l'Acad. des Sciences, ann. 1761, p. 168.
 
-The latitude of the Dardanelles, ianciently the Hellespont, 
-has been observed by M. de Chazelles ;* but for their position 
-I have entirely followed a large manuscript chart taken within 
-these few years by M. Tondu, an astronomer, who has ascer- 
-tained their longitude and latitude. -f- This chart has furnished 
-me with the coasts of the Gulf of Melas, the Thracian Cherso- 
-nesus, and the opposite Asiatic shore, to Tenedos. To this is 
-added another chart, also in manuscript, taken by M. Truguet, 
-captain of a frigate, under the orders of the Count de Choiseul- 
-Gouffier. From this I have obtained the remainder of the 
+*) The observations of M. Tondu are found in the _Connoissance des Temps_ for 1789, where the position of the old castle of Asia of the Dardanelles is given in 40° 9′ 5′′ lat. N. and 24° 4′ 41′′ long. E. of the meridian of Paris. It is from this determination that I adjusted the manuscript chart of the Dardanelles in my _General Map of Greece and the Grecian Islands_. But, since, by a new calculation, though still from the observations of M. Tondu, this determination has been changed. In the _Connoissance des Temps_ for 1792 and the following years, the position assigned to the old castle of Asia of the Dardanelles is in 40° 9′ 8′′ lat. N. and 23° 59′′ 15′′ lon. E. of the meridian of Paris; and it is according to this new determination that I have adjusted this same chart of the Dardanelles to my new _General Map of Greece and the Grecian Colonies_.
 
-
- Sophocl. ap. Etymol. Magn. in ASwg, Apollon. Rhod. Argon, lib. 1. v. 604. Plin. 
-lib. 4. c. 12. t. i. p. 214. Plut. de Fac. in Orb. Lun. t. ii. p. 935. Solin. c. 2. p. 31. 
-" Belon. Observ. liv. 1 . c. 25. 
-
-* The city of Myrina stood on the same spot where the present town of Lemnos now 
-stands, according to the maps of M. Truguet. 
-
-* Mem. de TAcad. des Sciences, ann. 1761, p. 168. 
-
-f The observations of M. Tondu are found in the Connoissance des Temps for 1789, 
-where the position of the old castle of Asia of the Dardanelles is given in 40^ 9^ 5" lat. 
-N. and 24^ 4' 4F long. E. of the meridian of Paris. It is from this determination that I 
-adjusted the manuscript chart of the Dardanelles in my General Map of Greece and the 
-Grecian Islands. But, since, by a new calculation, though still from the observations 
-of M. Tondu, this determination has been changed. In the Connoissance des Temps for 
-1792 and the following years, the position assigned to the old castle of Asia of the Dar- 
-danelles is in 40° 9' 8'' lat. N- and 23'' 59" 15'' Ion. E. of the meridian of Paris ; and it is 
-according to this new determination that I have adjusted this same chart of the Darda- 
-nelles to my new General Map of Greece and the Grecian Colonies, 
-
-coast of the Troas, the Gulf of Adramyttium to the entrance 
-of that of Cyme, and the whole island of Lesbos* 
-
-The J-'ropontis, now the sea of Marmora, is adjusted, on the 
-one hand, to the position of Byzantium, or Constantinople, the 
-longitude and latitude of which are taken, as 1 have already 
-said, from the Connoissaiice des Temps for the year 1788 ;'' and, 
-on the other, to tliat of the Dardanelles. The figure of it is 
-taken from a large manuscript map, designed in 1731 by IVJ. 
-Bohn, an engineer in the service of Prince Ragozzi. 'I'his map 
-is the same that M. d'Anville made use of/ I have copied it 
-exactly, except that I have thought I ought to ]}lace Cyzicus 
-more to the east, li-om the distances given by ancient authors, 
-and even by modem travellers.-f The bottom of the Gulf of 
-Astacus, and the lake near to Ancora, are taken from a manu- 
-script chart by M. Peissonel ; and the Bosphorus of Thrace, 
-now the canal of Constantinople, is laid down from a particular 
-plan which I have given of it. 
+The Propontis, now the sea of Marmora, is adjusted, on the one hand, to the position of Byzantium, or Constantinople, the longitude and latitude of which are taken, as I have already said, from the _Connoissance des Temps_ for the year 1788;* and, on the other, to that of the Dardanelles. The figure of it is taken from a large manuscript map, designed in 1731 by M. Bohn, an engineer in the service of Prince Ragozzi. This map is the same that M. d'Anville made use of.* I have copied it exactly, except that I have thought I ought to place Cyzicus more to the east, from the distances given by ancient authors, and even by modern travellers.* The bottom of the Gulf of Astacus, and the lake near to Ancora, are taken from a manuscript chart by M. Peissonel; and the Bosphorus of Thrace, now the canal of Constantinople, is laid down from a particular plan which I have given of it.
 
 To the position of Smyrna, the longitude and latitude of 
-which have been observed by Father Feuili^e,":}: I have ad- 
+which have been observed by Father Feuillée,* * I have ad- 
 
 
+*) This latter map, and that of the Dardanelles, are a part of the communications made to me by M. Truguet, of which I shall speak more at length in the continuation of these Observations.
 
-t of the Dardanelles, are a part of the communications 
-of H-liich 1 shall speak more at length in the continuation 
+*) Connoissance des Temps pour 1788, p. 245.
 
+*) D'Anville, Anal. Des Côtes de la Grèce, p. 33.
 
+*) The whole of this sea is very different in my new _General Map of Greece and the Grecian Colonies_; the western part is laid down from the maps communicated to me by M. Truguet; but his sudden departure for Spain deprived me of the same assistance in the eastern part.
 
-17S8, p. 2+5- 
+*) Mém. de l'Acad. des Sciences, ann. 1702, p. 8.
 
+*) The observation of Father Feuillée at Smyrna is found likewise in the _Connois- 
+sance des Temps_ for 1738 and 1789, where the position of that city is given in 33° 28′ 7′′ 
+lat. N. and 24° 59′ 45′′ lon. E. of the meridian of Paris; and it is according to this de- 
+termination that I have adjusted the large manuscript chart of the Archipelago above 
 
-
-' D'Anville, Anal. Des Cfltes de 
-
-
-
-* This latter n)sp> and tl 
-made to mc by M. Trugut 
-of these Obaervations. 
-
-1 Connoissance des Temps pour 
-laGrSce.p. 33. 
-
-■|- The whole of this sea is very jliifereiit in my new General Map of Greece aad the 
-Grecian Colonist ; the western part is laid down from the maps communicated to me by 
-M. Truguet ; but his sudden departure for Spain deprived me of the same assistance in 
-the eastern part. 
-
-• Mem. de I'Acad des Sciences, ann. 1702, p. 8. 
-
-X The observation of Father Fcuill£e at Smyrna is found iikewiae in the Coiiiinis- 
-tance des Temps fur 1 738 and 1 789, where the position of that city is given in 33° 28' 7" 
-l«t. N. and 2+° 59' *5" Ion. K, of the meridian of i'aria; and it is according to this de- 
-t I have adjusted the large manuscript chart of the Archipelago above 
 
 
 justed a large manuscript chart of a part of the Archipelago, 
