@@ -753,248 +753,102 @@ The projection of this new chart is the same with that of the general maps. The 
 
 *) Lalande Astronomie, t. 4. p. 770 et suiv.
 
-At the time of the supposed travels of Anacharsis the 
-Younger, Scythia still extended, as in the time of Herodotus, 
-from the Ister or Danube to the Tanaïs or Don.* The Getæ 
-were then only a small nation to the south of the Ister,* but 
-soon after they became very powerful.* Thrace extended from 
-the Ægean sea to the Ister.* I have placed the isle of Leuce, 
-or of Achilles, according to its distances, as indicated by Strabo 
-and Pliny,* from the Borysthenes, the Tyras, and even the 
-mouths of the Ister; but as Arrian, who had sailed along the 
-coasts of the Pontus Euxinus, had not seen it,* and it is not 
-found in any modern maps, I thought it proper to subjoin to 
-its name that _its existence is doubtful_. The ancient accounts of 
-this island are, that it was desert, and that there was on it 
-a temple dedicated to Achilles, which was very rich, and in 
-which that hero rendered oracles: it was added, that this tem- 
-ple was not attended by men, but by sea fowl.* In Asia I have 
-placed the city of Cerasus much nearer to Trebizond than it is 
-represented in the former charts, because it appeared to me 
-that city had changed its situation since the time of the travels 
-of Anacharsis. Xenophon reckons only three marches of the 
-army, or three days' journey between Trebizond and Cerasus,* 
-and this distance cannot be made to agree with that given in 
-the periplus of Arrian, and the anonymous periplus of the Pon- 
+At the time of the supposed travels of Anacharsis the Younger, Scythia still extended, as in the time of Herodotus, from the Ister or Danube to the Tanaïs or Don.* The Getæ were then only a small nation to the south of the Ister,* but soon after they became very powerful.* Thrace extended from the Ægean sea to the Ister.* I have placed the isle of Leuce, or of Achilles, according to its distances, as indicated by Strabo and Pliny,* from the Borysthenes, the Tyras, and even the mouths of the Ister; but as Arrian, who had sailed along the coasts of the Pontus Euxinus, had not seen it,* and it is not found in any modern maps, I thought it proper to subjoin to its name that _its existence is doubtful_. The ancient accounts of this island are, that it was desert, and that there was on it a temple dedicated to Achilles, which was very rich, and in which that hero rendered oracles: it was added, that this temple was not attended by men, but by sea fowl.* In Asia I have placed the city of Cerasus much nearer to Trebizond than it is represented in the former charts, because it appeared to me that city had changed its situation since the time of the travels of Anacharsis. Xenophon reckons only three marches of the army, or three days' journey between Trebizond and Cerasus,* and this distance cannot be made to agree with that given in the periplus of Arrian, and the anonymous periplus of the Pontus Euxinus between Trebizond and Cerasus,* which was afterwards called Pharnacia. But I find in this same anonymous periplus another city named Cerasus, which is represented as only two hundred and forty stadia from Trebizond,* and which has hitherto been thought to be only a repetition by mistake, but which perfectly corresponds with the marches of Xenophon. I have in like manner been obliged to diminish the length of the promontory Syrias, near Sinope, at present Cape Indge, according to the chart of M. Beauchamp, though that chart places it much more to the north than the promontory Carambis, because, according to every periplus, it was only one hundred stadia from the city of Sinope,* the longitude and latitude of which have been observed by M. Beauchamp himself.*
 
+*) Mem. Hist. et Geogr. sur les Pays situés entre la Mer Caspienne et la Mer Noire, p. 144. In 4to. Paris, An 5e.
 
+*) Herodot. lib. 4. cap. 21 et 101; Justin. lib. 9. cap. 2.
 
-r Mem. Hiit. et Geogr. fur lea Pays ritu£i entrc ta Mer Caapiennc et la Mer Noire, 
-p. 144. Id 4to. Paris, An 5'. '> Hcrodot. lib. i. cap. 21 et lOI ; Juitin. lib. 0, cap. 2, 
-'Herodot. ibid.c.yS. ■ Arrian. Exped. Alex. lib. I. p. 8, ' Herod ot. lib, i. c. 99 
-et IW. oStrvb.lib- 7. p. 306. Plin. lib.4. c. 12. 1. 1, p. 217 ; C.13.p.220. 'Aman. 
-Peripl. Pont, Eux. p. 23. ap. Geogr. Min. Grtec. t- i. ' Arrian. Peript. Pout. Eux. p. 2t 
-et seq. ap Geogr. Mia. Gnec. t. i. ' Xea. Exped. Cyr, lib. S- c. 9. 
-VOL. VII. I 
-tos fiuxiniis between Trebizond and Cerasua/ whkh was 
-afterwards called Pharnacia. But I find in this same anony- 
-mous periplus another city named Cerasus, which is repre- 
-sented as only two hundred and forty stadia from Trebizond,'' 
-and which has hitherto been thought to be only a repetition by 
-mistake, but which perfectly corresponds with the marches of 
-Xenophon. I have in tike manner been obliged to diminish 
-the length of the promontory Syrias, near Sinope, at present 
-Cape Indge, according to the chart of M. Beauchamp, though 
-that chart places it much more to the north than the promon- 
-tory Carambis, because, according to every periplus, it was 
-only one hundred stadia from the city of Sinope," the longitude 
-and latitude of which have been observed by M. Beauchamp 
-himself.'' 
+*) Herodot. ibid. c. 98.
 
-The consequence of this adjustment to the chart of M. 
-Beauchamp has been to contract the Pontus Euxinus in the 
-direction of latitude much more than it was in the preceding 
-charts ; and consequently all the measures given by ancient 
-authors for the distance between the Tauric Chersoiiesus and 
-the promontory Carambis and the Halys' will be found errone- 
-ous ; but what Strabo tells us, that when the mariner was half- 
-way between the two promontories Carambis and Criu-meto- 
-pon both capes might be seen at the same time,' will become 
-much more probable. 
+*) Arrian. Exped. Alex. lib. 1. p. 8.
 
-The plan of the Bosporus of Thrace, which immediately 
+*) Herodot. lib. 4. c. 99 et 144.
 
-' Arrian. Peiipl. Pool. I^x.page 17- Anonym. Deecript. Pont. Eux. p. 12 et 13. ap. 
-Geogt. Min, Grfflc. t. iii. '• Auooym. ibid. p. 13- "^ Arrian, ibid. IS. Marcion. 
+*) Strab. lib. 7. p. 306. Plin. lib. 4. c. 12. t. 1. p. 217; c. 13. p. 220.
 
-Hcracl. Peripl- p. 72. ap-Gcogr. Min. Crtec.l.i. ADouym. ibid. p. 7. '' ConnoiitaDce 
-dee Teagps poiv TAn riii. p. :^13. < Strab. lib. 7. p. 309. Agathent. lib. 1. c. 4. p. IS; 
-ctlib. 2. c. 14. p. 5^i ap. Geogr. Mid. Gts^c U ii. Plip. lib. 1. c. 12. t. i. p. 218: Ulk6. 
-C.2, p.301. fSirab. ibid. 
+*) Arrian. Peripl. Pont. Eux. p. 23. ap. Geogr. Min. Græc. t. 1.
 
-follows, has been designed from one of the Strait of Constanti- 
-nople, taken on the spot by M. Kautter, in 1776, by order of 
-the Count de Choisenl Gouffier, This plan is very circum- 
-stantial, and has furnished me with the figure of the mountains 
-on both sides of the Strait. In this new edition I have, however, 
-altered all that part adjoining the Black Sea, or Pontus Euxinus, 
-from the city called Hieron, or the Temple, because it was not 
-laid down with so much accuracy as the rest. This part has 
-been redrawn after diti'erent manuscript plans, for the commu- 
-nication of which I am indebted to the friendship of General 
-Abancourt, associate with the director of the d^pdt de la guerre, 
-and which were taken by that engineer, or by his orders, in the 
-voyage which he made to Constantinople in 1787 with M. 
-Lafitte Clavd. 
+*) Arrian. Peripl. Pont. Eux. p. 21 et seq. ap Geogr. Min. Græc. t. 1.
 
-All the positions relative to ancient geography, which are 
-found in tliis plan, are taken from the Description of the Bos- 
-porus of Thrace, by Dionysius of Byzantium,* omitting every 
-thing which appeared to me posterior to the date of the travels 
-of Anacharsis the Younger. Petrus Gyllius, in his work en- 
-titled De Bosporo Thracio,* has collected all the accounts left us 
-by the ancients relative to this strait ; and it is to him that we 
-are indebted for the preservation of the work of Dionysius of 
-Byzantium, at least by extracts, for the Greek original is now 
-lost. This work of Petrus Gyllius is one of the best of its kind 
-tlftat has ever been compiled. The author continually com- 
-pares the accounts given by the ancient writers with the places 
-themselves which he had visited and examined with tlie most 
+*) Xen. Exped. Cyr. lib. 5. c. 3.
 
+The consequence of this adjustment to the chart of M. Beauchamp has been to contract the Pontus Euxinus in the direction of latitude much more than it was in the preceding charts; and consequently all the measures given by ancient authors for the distance between the Tauric Chersonesus and the promontory Carambis and the Halys* will be found erroneous; but what Strabo tells us, that when the mariner was halfway between the two promontories Carambis and Criu-metopon both capes might be seen at the same time,* will become much more probable.
 
+The plan of the Bosporus of Thrace, which immediately follows, has been designed from one of the Strait of Constantinople, taken on the spot by M. Kauffer, in 1776, by order of the Count de Choiseul Gouffier. This plan is very circumstantial, and has furnished me with the figure of the mountains on both sides of the Strait. In this new edition I have, however, altered all that part adjoining the Black Sea, or Pontus Euxinus, from the city called Hieron, or the Temple, because it was not laid down with so much accuracy as the rest. This part has been redrawn after different manuscript plans, for the communication of which I am indebted to the friendship of General Abancourt, associate with the director of the _dépôt de la guerre_, and which were taken by that engineer, or by his orders, in the voyage which he made to Constantinople in 1787 with M. Lafitte Clavé.
 
-t Excerpta et Dioaya. Bysant. Anaplo. Bospori Thracit. ap. Geogr. Mio. Gncc. t. iii. 
-* The best edition of this work is that which is found in the first volume of the Jmpe- 
-rium Orimtalt of Father Banduri, p. 249 et seq. 
-I 2 
-careful attention ; and it is to be wished that we had similar 
-works relative to many other countries. 
+*) Arrian. Peripl. Pont. Eux. page 17. Anonym. Descript. Pont. Eux. p. 12 et 13. ap. Geogr. Min. Græc. t. 3.
 
-It may be observed, that in this plan there is a mountain 
-called the Bed of Hercules. This mountain still bears the name 
-of the Mountain of tlie Giant, and on its summit is seen a large 
-ditch, which the people of the country call the ditch of the 
-Giant, and which is probably what the ancients denominated 
-the Bed of Hercules.'' Herodotus gives only four stadia for 
-tlie breadth of the Bosporus of Thrace in its narrowest part;' 
-that is at the place where Darius threw a bridge over ; and this 
-measure is repeated, no doubt after him, by Strabo'' and by 
-Pliny,' but it is nevertheless erroneous. , We know that Hero- 
-dotus computed by the Pythian stadium ; but four of these 
-stadia are but Uttle more than half the breadth of this strait, ac- 
-cording to the chart. We shall see hereafter that Herodotus is 
-not more accurate with respect to the breadth of the Helle- 
-spont. Polybius has given the true measure of the breadth of 
-the Bosporus of Thrace."" He states it at five stadia, which are 
-Olympian stadia, and this measure is confirmed by Pomponius 
-Mela," and by Strabo himself" in another part of this work. 
-Agathemerus even makes it ten stadia.'' Conformably to the 
-description of Dionysius of Byzantium,i I have traced two 
-small creeks between the hills, which have since been included 
-within the limits of Constantinople : and the existence of these 
-creeks cannot be doubted when we consider that several parts 
+*) Anonym. ibid. p. 13.
 
+*) Arrian. ibid. 15. Marcian. Heracl. Peripl. p. 72. ap. Geogr. Min. Græc. t. 1. Anonym. ibid. p. 7.
 
+*) Connoissance des Temps pour l'An 8. p. 213.
 
-'' Excerpt, ex Dionys. Byzant. ibid. p. 20. ' Herodol- lib. 4. cap. 85. ■■ Strab. 
-lib.2.p.I25. 'Plin.lib. 4. c. 12. t- i, p. 215; lib. 5. c 32, p. 291. "> Polyb. Hin. 
+*) Strab. lib. 7. p. 309. Agathem. lib. 1. c. 4. p. 12; et lib. 2. c. 14. p. 55; ap. Geogr. Min. Græc. t. 2. Plin. lib. 4. c. 12. t. 1. p. 218: lib. 6. c. 2. p. 301.
 
-lib. +.p.3Il. "Pomp. Mela, lib. I.e. 19. -Strab- lib. 7. p. SI9. t Agathem. 
+*) Strab. ibid.
 
-de Geogr. lib. !• c. S. p. 3 ; ap. Geogr. Min. Grwc. t. ii. i Excerpt. Dionyt. Byzant. 
-p. S i ap. Geogr. Mio. Grnc. t. JiJ- 
+All the positions relative to ancient geography, which are found in this plan, are taken from the Description of the Bosporus of Thrace, by Dionysius of Byzantium,* omitting every thing which appeared to me posterior to the date of the travels of Anacharsis the Younger. Petrus Gyllius, in his work entitled _De Bosporo Thracio_,* has collected all the accounts left us by the ancients relative to this strait; and it is to him that we are indebted for the preservation of the work of Dionysius of Byzantium, at least by extracts, for the Greek original is now lost. This work of Petrus Gyllius is one of the best of its kind that has ever been compiled. The author continually compares the accounts given by the ancient writers with the places themselves which he had visited and examined with the most careful attention; and it is to be wished that we had similar works relative to many other countries.
 
+*) Excerpta et Dionys. Byzant. Anaplo. Bospori Thracii. ap. Geogr. Min. Græc. t. 3.
 
-of this great city are built upon piles/ It is to be observed, 
-that in the particular plan which I have given of the city of 
-Byzantium, the present limits of the seraglio appeared to me 
-to correspond with tolerable accuracy to those of the ancient 
-city, except that it includes besides, the site of the church of 
-Sancta Sophia. Byzantium, according to Pausanias, was one 
-of the best fortified cities of antiquity.' 
+*) The best edition of this work is that which is found in the first volume of the _Imperium Orientale_ of Father Banduri, p. 249 et seq.
 
-The map of the Hellespont, the Thracian Chersonesus, and a 
-great part of Troas, is designed particularly after the charts which 
-General Truguet obhgingly communicated to me. These charts 
-have furnished me with all the coasts with a degree of accuracy 
-which perhaps those of France have not ; and as observations 
-have at the same time been taken of several summits in the in- 
-terior of the country, I have been enabled to place the moun- 
-tains with a great degree of certainty. The highest summit of 
-Ida, Mount Gargara, according to the measurement taken by 
-General Truguet himself, is 755 toises (I6O9 yards) above the 
-level of the sea. The valley of Scamander is laid doivn from 
-several maps which the Count de Choiseul Gouffier caused to 
-be drawn in the country, and which he was so obliging as to 
-communicate to me. A great part of the valley of the Granicus 
-is found in the charts of General Truguet ; and, for the rivers 
-in the interior of the country, I have received much accurate 
-and valuable information from my friend M. Martin, consul 
-of the French Republic at the Dardanelles. In general, this 
-plan is very ditferent from that in the former editions. 
+It may be observed, that in this plan there is a mountain called the _Bed of Hercules_. This mountain still bears the name of the Mountain of the Giant, and on its summit is seen a large ditch, which the people of the country call the ditch of the Giant, and which is probably what the ancients denominated the Bed of Hercules.* Herodotus gives only four stadia for the breadth of the Bosporus of Thrace in its narrowest part;* that is at the place where Darius threw a bridge over; and this measure is repeated, no doubt after him, by Strabo* and by Pliny,* but it is nevertheless erroneous. We know that Herodotus computed by the Pythian stadium; but four of these stadia are but little more than half the breadth of this strait, according to the chart. We shall see hereafter that Herodotus is not more accurate with respect to the breadth of the Hellespont. Polybius has given the true measure of the breadth of the Bosporus of Thrace.* He states it at five stadia, which are Olympian stadia, and this measure is confirmed by Pomponius Mela,* and by Strabo himself* in another part of this work. Agathemerus even makes it ten stadia.* Conformably to the description of Dionysius of Byzantium,* I have traced two small creeks between the hills, which have since been included within the limits of Constantinople; and the existence of these creeks cannot be doubted when we consider that several parts of this great city are built upon piles.* It is to be observed, that in the particular plan which I have given of the city of Byzantium, the present limits of the seraglio appeared to me to correspond with tolerable accuracy to those of the ancient city, except that it includes besides, the site of the church of Sancta Sophia. Byzantium, according to Pausanias, was one of the best fortified cities of antiquity.*
 
-I should never conclude were I to enter into a circumstan- 
-tial account of all the labour which this plan has cost me ; it is 
+*) Excerpt. ex Dionys. Byzant. ibid. p. 20.
 
+*) Herodot. lib. 4. cap. 85.
 
+*) Strab. lib. 2. p. 125.
 
-' Petnu Gyllios de Topographia Constaatinopoleos, lib. 3, c. 9. ap. Imperium Orier 
-le, t. i. p. 406 et 407- • Pausan. Jib- i. c. 31- p. 357- 
+*) Plin. lib. 4. c. 12. t. 1. p. 215; lib. 5. c. 32. p. 291.
 
-sufficient to say that all the points in it have been examined 
+*) Polyb. Hist. lib. 4. p. 311.
 
-with the utmost care, and that nothing has been omitted which 
-might contribute to render it more accurate. I have derived 
-considerable advantage, with respect to Troas, from the work 
-of M. Chevalier ;' as also from that of the Count de Choiseul 
-Goutfier, entitled Materials to serve for the Thirteenth Chapterof 
-Picturesque Travels in Greece, which he very obligingly caused 
-to be communicated to M. Barthelemy and myself; but I can- 
-not be of their opinion ivith respect to the position which they 
-both assign to recent Troy," which is the Troy that existed at 
-the time of the travels of Anacharsis the Younger. I am of 
-opinion that this city occupied the same situation as ancient 
-Troy, as the inhabitants affirmed ;' and according to the de- 
-scription which Strabo has given us of the Ilium of his time, 
-which was situate on an eminence with a mountain behind it 
-and near a defile,*' it appears to me that the ground of the hill 
-of Bounar Bachi can alone agree to it. With the Count de 
-Choiseul, and M. Chevalier,' I find in the Kirke-keuzler the 
-Scamander of Homer ; but I believe, at the same time, that 
-after this country had been laid waste by the Greeks, when it 
-was re-peopled, tbe new setUers improperly .ippiied the name 
-of Scamander to the Simois of Homer ; and hence arose a num- 
-ber of errors which have rendered it very difficult to ascertain 
-the true situations of ancient places. It is certain that in the 
-time of Demetrius of Scepsis, that is to say, a short time after 
+*) Pomp. Mela, lib. 1. c. 19.
 
+*) Strab. lib. 7. p. 319.
 
+*) Agathem. de Geogr. lib. 1. c. 3. p. 3; ap. Geogr. Min. Græc. t. 2.
 
-■ Description of the Plain of Troy, &c. by M. Chevalier, translated from the original 
-not yet published by Andrew Dalzel, Edinburgh, 1791) in 4to. " Choiseul Gouffier, 
-Mater, pour le 13' Chap, du Voyage Pitior. de la Grece, p. 23. Chevalier, Description 
-of the Plain of Troy, c. 16, p, 112. ' Strab. lib. 13. p. 593, 600, ct 602. f Id. 
-ibid. [). £97 et 599- * Choiseul Goufficr^ ibid. p. 46- Chevaliw, ibid. chap. 11. p. 32 
-«tMq. 
+*) Excerpt. Dionys. Byzant. p. 3; ap. Geogr. Min. Græc. t. 3.
 
-Alexander the Great, the name of Scanmnder was given to the 
-river which has its source in Mount Cptylus, almost by the side 
-of those of the Granicus and the jEsepus,' of which the name 
-of Mendere-sou, which this river still bears, is a proof. It 
-ought not, therefore, to appear extraordinary if my plan should 
-not be found conformable to the incidents and descriptions of 
-the war of Troy ; since, as I designed it for the time when 
-Anacharsis landed in Troas, I was obliged to give the names 
-as they were capriciously applied at that time. Had I drawn 
-a plan for Homer, I should have confined myself to the plain 
-on the sea-shore. 
+The map of the Hellespont, the Thracian Chersonesus, and a great part of Troas, is designed particularly after the charts which General Truguet obligingly communicated to me. These charts have furnished me with all the coasts with a degree of accuracy which perhaps those of France have not; and as observations have at the same time been taken of several summits in the interior of the country, I have been enabled to place the mountains with a great degree of certainty. The highest summit of Ida, Mount Gargara, according to the measurement taken by General Truguet himself, is 755 toises (1609 yards) above the level of the sea. The valley of Scamander is laid down from several maps which the Count de Choiseul Gouffier caused to be drawn in the country, and which he was so obliging as to communicate to me. A great part of the valley of the Granicus is found in the charts of General Truguet; and, for the rivers in the interior of the country, I have received much accurate and valuable information from my friend M. Martin, consul of the French Republic at the Dardanelles. In general, this plan is very different from that in the former editions.
+
+I should never conclude were I to enter into a circumstantial account of all the labour which this plan has cost me; it is sufficient to say that all the points in it have been examined with the utmost care, and that nothing has been omitted which might contribute to render it more accurate. I have derived considerable advantage, with respect to Troas, from the work of M. Chevalier;* as also from that of the Count de Choiseul Gouffier, entitled _Materials to serve for the Thirteenth Chapter of Picturesque Travels in Greece_, which he very obligingly caused to be communicated to M. Barthelemy and myself; but I cannot be of their opinion with respect to the position which they both assign to recent Troy,* which is the Troy that existed at the time of the travels of Anacharsis the Younger. I am of opinion that this city occupied the same situation as ancient Troy, as the inhabitants affirmed;* and according to the description which Strabo has given us of the Ilium of his time, which was situate on an eminence with a mountain behind it and near a defile,* it appears to me that the ground of the hill of Bounar Bachi can alone agree to it. With the Count de Choiseul, and M. Chevalier,* I find in the Kirke-keuzler the Scamander of Homer; but I believe, at the same time, that after this country had been laid waste by the Greeks, when it was re-peopled, the new settlers improperly applied the name of Scamander to the Simoïs of Homer; and hence arose a number of errors which have rendered it very difficult to ascertain the true situations of ancient places. It is certain that in the time of Demetrius of Scepsis, that is to say, a short time after Alexander the Great, the name of Scamander was given to the river which has its source in Mount Cotylus, almost by the side of those of the Granicus and the Æsepus,* of which the name of Mendere-sou, which this river still bears, is a proof. It ought not, therefore, to appear extraordinary if my plan should not be found conformable to the incidents and descriptions of the war of Troy; since, as I designed it for the time when Anacharsis landed in Troas, I was obliged to give the names as they were capriciously applied at that time. Had I drawn a plan for Homer, I should have confined myself to the plain on the sea-shore.
+
+*) Petrus Gyllius de Topographia Constantinopoleos, lib. 3. c. 9. ap. Imperium Orientale, t. 1. p. 406 et 407.
+
+*) Pausan. lib. 4. c. 31. p. 357.
+
+*) Description of the Plain of Troy, etc. by M. Chevalier, translated from the original not yet published by Andrew Dalzel, Edinburgh, 1791, in 4to.
+
+*) Choiseul Gouffier, Matèr. pour le 13e Chap. du Voyage Pittor. de la Grèce, p. 23. Chevalier, Description of the Plain of Troy, c. 16, p. 112.
+
+*) Strab. lib. 13. p. 593, 600, et 602.
+
+*) Id. ibid. p. 597 et 599.
+
+*) Choiseul Gouffier, ibid. p. 46. Chevalier, ibid. chap. 11. p. 32 et seq.
 
 I have said that Herodotus was mistaken in the measure of 
 the narrowest part of the Hellespont, as he had been in that of 
 the Bosporus of Thrace. He reckons only seven stadia for the 
-distance between the two shores of Abydos and Sestos ;'* and 
+distance between the two shores of Abydos and Sestos;* and 
 this measure is repeated, no doubt, after him, in Strabo, Pliny, 
-and Agathemerus.' M. d'Anville, in his description of the 
+and Agathemerus.* M. d'Anville, in his description of the 
 Hellespont, comparing this distance with that given in the chart 
 of the sea of Marmora by Bohn, after having corrected the 
-scale and finding the latter much less than accorded witli the 
-length of the Olympian or even the Pytlnan stadium, has con- 
+scale and finding the latter much less than accorded with the 
+length of the Olympian or even the Pythian stadium, has con- 
 cluded that the stadium used by Herodotus in this place is one 
-of the shortest kind, or of 51 toises.'' But all these evaluations 
+of the shortest kind, or of 51 toises.* But all these evaluations 
 are erroneous, and it appears that the chart of Bohn is very 
 inaccurate in this part. That of M. Truguet, on the contrary, 
 makes this strait much wider than is suitable to the length of 
-even the Olympian stadium ; it represents the distance from 
+even the Olympian stadium; it represents the distance from 
 
 
 
