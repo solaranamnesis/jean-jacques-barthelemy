@@ -857,19 +857,7 @@ I have added to this plan the boroughs or villages of Xypete and Argyle, particu
 
 The map of Attica, Megaris, and a part of the island of Eubœa, which follows, is very different from that of the former editions. This map has been entirely re-drawn. As it is designed on the same plan with the particular maps of the other countries of Greece, the remarks in the former part of these Observations are equally applicable to it, and I shall therefore say no more of it here.
 
-The plan of the Academy and its environs is, in some man- 
-ner, only a supplement to the plan of Athens, of which I shall 
-immediately speak, and is designed on the same scale. I have 
-made no alterations in it in this edition. The Gymnasium of 
-the Academy was distant six stadia from the gate of the city 
-called Dipylon, according to Cicero;* but it is not to be sup- 
-posed that I had any very circumstantial notices with respect 
-to the garden, of which I have there given the figure. We 
-know, in general, that it was a very pleasant grove, watered by 
-several streams, and containing walks.* It was in this garden 
-that Plato gave his lessons.* The house of that philosopher is 
-represented on the road which led from the garden of the 
-
+The plan of the Academy and its environs is, in some manner, only a supplement to the plan of Athens, of which I shall immediately speak, and is designed on the same scale. I have made no alterations in it in this edition. The Gymnasium of the Academy was distant six stadia from the gate of the city called Dipylon, according to Cicero;* but it is not to be supposed that I had any very circumstantial notices with respect to the garden, of which I have there given the figure. We know, in general, that it was a very pleasant grove, watered by several streams, and containing walks.* It was in this garden that Plato gave his lessons.* The house of that philosopher is represented on the road which led from the garden of the Academy to the village of Colonos.* I have taken the details of this village from the tragedy of Sophocles entitled _Œdipus at Colonos_.* I have carefully studied what the decorations of that piece represented, as there can be no doubt that they must have exhibited an exact image of a place which the Athenians had continually before their eyes. The site of the temple of Neptune Hippius* is now occupied by the church of St. Euphemia, the steeple of which was one of the angular points of the triangles formed by M. Foucherot in the surveys he took of that country in 1781.
 
 *) Joannis Meursii Opera omnia, t. 1. col. 537 et seq.
 
@@ -878,8 +866,6 @@ represented on the road which led from the garden of the
 *) Plutarch. in Cimon. t. 1. p. 487.
 
 *) Travels of Anacharsis, vol. 2. p. 108.
-
-Academy to the village of Colonos.* I have taken the details of this village from the tragedy of Sophocles entitled _Œdipus at Colonos_.* I have carefully studied what the decorations of that piece represented, as there can be no doubt that they must have exhibited an exact image of a place which the Athenians had continually before their eyes. The site of the temple of Neptune Hippius* is now occupied by the church of St. Euphemia, the steeple of which was one of the angular points of the triangles formed by M. Foucherot in the surveys he took of that country in 1781.
 
 The plan of Athens has undergone no alteration in this edition, except that, for greater convenience, the names that were placed in a column on the side, are now inserted in the body of the plan. Some readers may perhaps inquire why my name is not to this plan; but when they have read the note of M. Barthelemy on the plan of Athens at the end of the second volume of his work,* they will perceive that I had no other part in its construction than designing it in conformity to his ideas. As no addition has been made to this plan I shall make no further observations on it.
 
@@ -979,231 +965,74 @@ The map of the Cyclades, which is by M. d'Anville, has undergone scarcely any al
 
 *) M. de Choiseul Gouffier, Voyag. Pittor. de la Grèce, pl. 31. t. 1. p. 49.
 
-It now only remains for me to give an account of the new 
-General Map of Greece, and a great part of the Grecian Gohnies 
-171 Europe and Asia. This map, as I have already said, has 
-been designed with the greatest care ; and I have neglected 
-nothing to give it the utmost degree of accuracy. It is con- 
-structed on the same scale as the former General Map of Greece 
-and the Grecian Islaitds, so that the two maps may be easily 
-compared, and a single glance of the eye wiU be sufficient to 
-discover the great alterations and additions which have been 
-made in the new one. 
+It now only remains for me to give an account of the new _General Map of Greece, and a great part of the Grecian Colonies in Europe and Asia_. This map, as I have already said, has been designed with the greatest care; and I have neglected nothing to give it the utmost degree of accuracy. It is constructed on the same scale as the former _General Map of Greece and the Grecian Islands_, so that the two maps may be easily compared, and a single glance of the eye will be sufficient to discover the great alterations and additions which have been made in the new one.
 
-The projection of this new General Map, like that of the 
-former, is on the hypothesis which considers the earth as a 
-plane. The diminution of the degrees of longitude is taken 
-from the table of Schulze.'' The meridians are every where 
-right lines, and their intervals have been calculated and traced 
-by the tivngents of the parallels 37 and 41. 'J'he curvature of 
-these same parallels has afterwards been deduced for each me- 
-ridian from tlie difference of the secant and the radius : and 
-through the whole extent of the meridian the different degrees 
-of latitude have been estimated at 57t(XX) toises each, that being 
-nearly the mean measure. 
+The projection of this new General Map, like that of the former, is on the hypothesis which considers the earth as a plane. The diminution of the degrees of longitude is taken from the table of Schulze.* The meridians are every where right lines, and their intervals have been calculated and traced by the tangents of the parallels 37 and 41. The curvature of these same parallels has afterwards been deduced for each meridian from the difference of the secant and the radius; and through the whole extent of the meridian the different degrees of latitude have been estimated at 57,000 toises each, that being nearly the mean measure.
 
-When I constructed my first Atlas for the Travels of Ana- 
-charsis, I was extremely unprovided with astronomical obser- 
-vations, especially with respect to longitude ; I was therefore 
-obliged to connect my maps of particular countries with the 
-position of Therma or Salonichi, to adjust them in longitude to 
-my General Map."^ But as the longitude assigned to Salonichi 
+When I constructed my first Atlas for the Travels of Anacharsis, I was extremely unprovided with astronomical observations, especially with respect to longitude; I was therefore obliged to connect my maps of particular countries with the position of Therma or Salonichi, to adjust them in longitude to my General Map.* But as the longitude assigned to Salonichi is now reputed erroneous,* I can no longer set out from that point. Fortunately I have a considerable number of observations made on several other coasts, and some of these observations will now furnish me with a point of departure.
 
-• Toumefort, ibid, p«ge 287, et juhf. ^ Lalande Aitronomic, t. iv. p. 770, et van. 
+*) Tournefort, ibid. page 287, et suiv.
 
-• See above, p. SO. 
+*) Lalande Astronomie, t. 4. p. 770, et suiv.
 
+*) See above, p. 30.
 
-is now reputed erroneous,'' I can no longer set out from that 
-point. Fortunately I have a considerable number of observa- 
-tions made on several other coasts, and some of these observa- 
-tions will now furnish me with a point of departure. 
+A short time after my former Atlas to Anacharsis had been published, and even since I have been employed on that for this new edition, a communication was made to me of a number of observations made by M. de Chabert, as also of several sketches of maps and charts drawn by him in the southern parts of Greece and the Archipelago; and these I have made the basis of my map in this part.
 
-A short time after my former Atlas to Anacharsis had been 
-published, and even since I have been employed on that for 
-this new edition, a communication was made to me of a number 
-of observations made by M. de Chabert, as also of several 
-sketches of maps and charts drawn by him in the southern 
-parts of Greece and the Archipelago ; and these I have made 
-the basis of my map in this part. 
+M. de Chabert being, in 1768, at the anchoring-place to the south of the island of Argentiera, near Milo, which is called in my map the island of Cimolos, took astronomical observations of the longitude and latitude. He found the longitude to be 22° 16′ 15′′ east of the meridian of Paris, and the latitude to be 36° 46′ 21′′ north.* This longitude shows that assigned by the observation of Father Feuillée to the town of Milo, in the isle of Melos, to be erroneous; but the latitude observed by this astronomer at the same time is sufficiently correct; though I suspected it of error when I constructed the first maps for Anacharsis.* From this point, and several others in the vicinity, M. de Chabert has taken the bearings of several of the Cyclades, and has ascertained with sufficient exactness that Cape Doro, in the isle of Eubœa, anciently the promontory of Caphareus, is situated in longitude 22° 17′ 4′′ east of Paris, and latitude 38° 9′ 59′′ north.* The position of this cape is essential, because it is there that the Ægean Sea becomes more open and less embarrassed with islands.
 
-M. de Chabert being, in 1768, at the anchoring-place to the 
-south of the island of Argentiera, near Milo, which is called in 
-my map the island of Cimolos, took astronomical observations 
-of the longitude and latitude. He found the longitude to be 
-82° IC 15" east of the meridian of Paris, and the latitude to be 
-36" 46' 21" north.'^ This longitude shows that assigned by the 
-observation of Father Feuillde to the town of Milo, in the isle 
-of Melos, to be erroneous ; but the latitude observed by this 
-astronomer at the same time is sufficiently correct ; though I 
-suspected it of error when 1 constructed the first maps for Ana- 
-charsis.^ From this point, and several others in the vicinity, 
-M.de Chabert has taken the bearings of several of the Cyclades, 
-and has ascertained with sufficient exactness that Cape Doro, 
-in the isle of Euboea, anciently the promontory of Capliareus, 
-is situated in longitude 22° 17' 4" east of Paris, and latitude 
-38" 9" 59" north.s The position of this cape is essential, be- 
-cause it is there that the Mgean iSea becomes more open and 
-less embarrassed with islands. 
+*) Connoissance des Temps pour 1792, et années suivantes.
 
+*) Notes Manuscrite.
 
-* ConnoMMDCc dec Tempa pour 1793, et oao^es 
-' See above, p. 9. ■ Notes Maniucr. 
+*) See above, p. 9.
 
+*) Notes Manuscr.
 
-■ Notci MsDDScrite. 
+From thence M. de Chabert fixed several points in the Saronic Sea, at present the Gulf of Engia; and I had the map he had drawn of this gulf, except some alterations which he has since made in it, when I composed my map of Attica in 1785; but what I then wanted was the observation he had taken at the bottom of this gulf, near a ruinous tower on the sea-shore, directly to the east of the castle of Corinth. He observed the latitude of this tower to be 37° 53′ 24′′, and he determined its longitude, by means of the marine time-keeper, to be 20° 42′ 22′′ east of the meridian of Paris.* He in like manner observed the latitude of the castle of Corinth, anciently the Acro-Corinthus, to be 37° 53′ 22′′, which agrees sufficiently well with the observation taken by M. Beauchamp in the city itself in 1796, which makes the latitude 37° 55′ 54′′.* I was not in possession of all these determinations when I composed my first Atlas for Anacharsis, on which account I adjusted this map of M. de Chabert to the latitude of Athens, given by Vernon, 38° 5′;* but this latitude is erroneous; the observations of M. de Chabert place that city only in 37° 58′ 1′′ of latitude.* The whole of Attica was therefore placed too much to the north in my maps; and it was because I was guided by the estimated distance between Cape Colonna, anciently the promontory of Sunium and Milo, formerly Melos,* that I could not adjust my maps to the latitude of Milo given by Father Feuillée. I ought to have preferred the authority of that astronomer to that of Vernon.
 
+The latitude of the castle of Corinth, once satisfactorily known, it was easy for me to determine its longitude from the small map mentioned in the former part of these Observations.* It appeared to me that it must be 20° 34′ 40′′ to the east of the meridian of Paris. The position of this city therefore differs but little from that formerly assigned it in my maps with respect to longitude; but there is a difference of about seven minutes in the latitude, though I had already retrenched about thirteen minutes* from the latitude of that city as given by Vernon. The _Connoissance des Temps_ for the year 1787 gives the latitude of Corinth 37° 50′.*
 
-From thence M. de Chabert fised several points in the Sa- 
-ronic Sea, at present the Guif of Engia ; and I had the map 
-he had drawn of this gulf, except some alterations which he 
-has since made in it, when I composed my map of Attica in 
-1785; but what I then wanted was the observation he had 
-taken at the bottom of this gulf, near a ruinous tower on the 
-sea-shore, directly to the east of the castle erf Corinth. He ob- 
-served the latitude of this tower to be 37° 53' 24% and he de- 
-termined its longitude, by means of the marine time-keeper, to 
-be 20° 42' 22" east of the meridian of Paris.'' He in like 
-manner observed the latitude of the castle of Corinth, anciently 
-the Acro-Corinthus, to be 37° 53' 22", which agrees sufficiently 
-well with the observation taken by M. Beauchamp in the city 
-itself in 1796, which makes the latitude 37" 53' 54^.' I was not 
-in possession of all these determinations when I composed my 
-first Atlas for Anacharsis, on which account I adjusted this 
-map of M. de Chabert to the latitude of Athens, given by 
-Vernon, 38° 5' ;'' but this latitude is erroneous ; the observations 
-of M. de Chabert place that city only in 37° 58' 1" of latitude.' 
-The whole of Attica was therefore placed too much to the 
-north in my maps ; and it was because 1 was guided by the 
-estimated disUmce between Cape Colonna, anciently the pro- 
-montory of Sunium and Milo, formerly Melos,™ that I could 
-not adjust my maps to the latitude of Milo given by Father 
-Feuill^e. I ought to have preferred the authority of that 
-astronomer to that of Vernon. 
+*) Notes Manuscr.
 
-The latitude of the castle of Corinth, once satisfactorily 
-known, it was easy for me to determine its longitude from the 
+*) Observ. de Beauchamp. Manuscr. It was by mistake that I said above, p. 11, in a note, 37° 64′.
 
+*) See above, p. 10.
 
+*) Notes Manuscr.
 
-<• Notes Manuscr. ■ Observ. di 
+*) See above, p. 13.
 
-said nbove, p. U , in a note, 37° 64'. 
-above, p. 13. 
+M. de Chabert has also made observations in the Gulf of Argos, at present the Gulf of Napoli di Romania; and it appears from them that the maps of Verguin make the northern coast of this gulf a little too long. In fact, Verguin has formed triangles, of which some of the angles are very acute,* which may have led him into error. It is in the middle of this coast, nearly, that the corrections should be made. M. de Chabert places the most western point of the town of Napoli di Romania, formerly Nauplia, in latitude 37° 33′ 50′′, and longitude 20° 27′ 15′′ east of Paris; and the highest point of the isle of Especi, anciently Tiparenus, in latitude 37° 15′ 25′′, and longitude 20° 49′ 26′′ east of Paris.* These two determinations are those of the extreme points of this coast. M. Beauchamp has given us as the latitude of Napoli di Romania, apparently observed in another place, 37° 32′; and by an observation taken on land in the port of Hydra, formerly Hydræa, he makes the latitude there 37° 30′ 33′′.* The western coast of the Gulf of Argos has not yet been well determined by accurate observations, on which account I have adjusted it according to the bearings taken by M. Foucherot in the city of Argos.*
 
+*) See above, p. 11.
 
+*) Id. ibid.
 
-Beauchamp. ManuGCr. 
-k See above, p. 10. 
+*) Connoiss. des Temps pour l'année 1787, p. 316.
 
+*) Carte Manuscr.
 
+*) Notes Manuscr.
 
-It was by mistake that I 
-Notes Maniucr. " See 
+*) Observ. de Beauchamp. Manuscr.
 
+Cape St. Angelo, anciently the promontory of Malea, is placed by Niebuhr in latitude 36° 26′,* and it is in that latitude, nearly, that it is placed in my map. M. de Chabert, being at the anchoring-place of the isle Cervi, which is nearest to the main land, since it is close to the isthmus of the peninsula, called in my maps Onu-gnathos, or the Jaw-bone of the Ass, found the latitude, by observation, to be 36° 30′ 41′′; and determined the longitude at the same place, by the marine time-keeper, to be 20° 38′ 19′′ east of the meridian of Paris:* thus this point is fixed with sufficient accuracy. Proceeding hence, he took observations along a great part of the island of Cerigo, anciently Cythera, which, according to him, extends somewhat further to the south than accords with the observation of M. de Chazelles, already cited;* and he found that the isle of Ovo, which is in fact only a rock to the south of Cerigo, lies a little more to the south than it is placed by Niebuhr.* He likewise took observations at Cape Matapan, or the promontory of Tænarum, to ascertain the true position of which, was, in fact, of considerable importance, since it is the most southern point of Peloponnesus; and he places it in latitude 36° 23′ 20′′, and longitude 20° 9′ 15′′; the latter as given by the marine time-keeper.* These determinations have obliged me to make the distance between the promontories Malea and Tænarum less in my new map than in that of the former editions.
 
-small map mentioned in the former part of these Observations." 
-It appeared to me that it must be 20° 34' 40" to the east of the 
-meridian of Paris. The position of this city therefore differs 
-but little from that formerly assigned it in my maps with re- 
-spect to longitude ; but there is a difference of about seven 
-minutes in the latitude, though I had already retrenched about 
-thirteen minutes" from the latitude of that city as given by 
-Vernon. The Connoissance des Temps for the year 1787 gives 
-the latitude of Corinth 37° 50'.'' 
+The longitude of the point of the cape before Coron, anciently Corone, has also been determined by M. de Chabert, by means of the marine time-keeper, to be 19° 38′ 37′′, east of the meridian of Paris; and he at the same time observed the latitude to be 36° 47′ 26′′.* This latitude is that very nearly in which I have placed in my first maps the city of Corone; but as the same navigator likewise observed the latitude of Fournigue, which is the most southern rock of the isle of Theganusa, to be 36° 39′ 38′′; and as by this observation the whole coast to Methone is thrown much more to the north than it had been laid down in my maps; I can no longer find the 160 stadia assigned by Pausanias as the distance between the promontory Acritas and Corone;* indeed they are not more than 65 or 70. I would not, however, make any alteration in these determinations, because they agree with the latitude of Mothone, at present Modon, which M. de Chabert observed to be 36° 49′,* the same within one minute less, which it had been before found to be by M. le Roi.* The latitude which M. Niebuhr assigns to the island Sapienza,* the most northern of the Œnussæ isles, is erroneous.
 
-M. de Chabert has also made observations in the Gulf of 
-Argos, at present the Gulf of Napoli di Romania ; and it ap- 
-pears from them that the maps of Verguin make the northern 
-coast of this gulf a Httle too long. In fact, Verguin has formed 
-triangles, of which some of the angles are very acute,'' whicli 
-may have led him into error. It is in the middle of this coast, 
-nearly, that the corrections should be made. M. de Chabert 
-places the most western point of the town of Napoli di Ro- 
-mania, formerly Nauplia, in latitude 37° 33' 50", and longitude 
-20'' 27' 15" east of Paris ; and the highest point of the isle of 
-Especi, anciently Tiparenus, in latitude 37° 15' 25", and longi- 
-tude 20° 49' 26" east of Paris.' These two determinations are 
-those of the extreme points of this coast. M. Beauchamp has 
-given us as the latitude of Napoli di Romania, apparently ob- 
-served in another place, 37° 32' ; and by an observation taken 
-on land in the port of Hydra, formerly Hydrasa, he makes the 
-latitude there 37° 30' SS".'' The western coast of the Gulf of 
-Argos has not yet been well determined by accurate observa- 
+*) See above, p. 12.
 
+*) Niebuhr, Voyag. en Arabie, t. 1. p. 17.
 
+*) Notes Manuscr.
 
-" See above, p. 1 1 . ° Id. ibid. p Connoiu. des Temps pour I'annee 1 787, p. 3 1 fi, 
-4 Carte M*iiuacr. ' Notes Manuicr ■ Observ. de Beauchamp. Mnnuscr. 
+*) See above, p. 19.
 
+*) Niebuhr, Voyag. en Arabie, t. 1. p. 17.
 
+*) Notes Manuscr.
 
-dons, on which account I have adjusted it according to the 
-bearings taken by M. Foucherot in the city of Argos.' 
-
-Cape St. Angelo, anciently the promontory of Malea, is 
-placed by Niebuhr in latitude 36° 26'," and it is in that lati- 
-tude, nearly, that it is placed in my map. M. de Cha- 
-bert, being at the anchoring-place of the isle Cervi, which is 
-nearest to the main land, since it is close to the isthmus of the 
-peninsula, called in my maps Onu-gnathos, or the Jaw-bone 
-of the Ass, found the latitude, by observation, to be 36' 30' 41"; 
-and determined the longitude at the same place, by the marine 
-time-keeper, to be 20° 38' 19" east of the meridian of Paris:* 
-thus this point is fixed with sufficient accuracy. Proceeding 
-hence, he took observations along a great part of the island of 
-Cerigo, anciently Cythera, which, according to him, extends 
-somewhat further to the south than accords wJth the observation 
-of M. de Chazelles, already cited ;^ and he found that the isle 
-of Ovo, which is in fact only a rock to the south of Cerigo, lies 
-■A little more to the south than it is placed by Niebuhr. '^ He 
-likewise took observations at Cape Matapan, or the promon- 
-tory of Ta^narum, to ascertain the true position of which, was, 
-in fact, of considerable importance, since it is the most southern 
-point of Peloponnesus ; and he places it in latitude 36° 23' 20", 
-and longitude 20° 9' 1 J" : the latter as given by the marine 
-time-keeper.' These determinations have obliged me to make 
-tlie distance between the promontories Malea and Trenarum 
-less in my new map than in that of the Ibrmer editions. 
-
-The longitude of the point of the cape before Coron, an- 
-
-
-
-■ See above, p. 12. 
-' See above, p. 19- 
-
-
-
-" Niebuhr, Voyag. en Arabic, t. i. p. 17. 
-■ Niebuhr, Voyag. en Aralue, t i. p. 17- 
-
-
-
-" Notes Manuscr. 
-' Notes ManuKr. 
-
-
-ciently Corone, has also been determined by M. de Chabert, 
-
-by means of the marine time-keeper, to be 19° 38' 37", east of 
-the meridian of Paris ; and he at the same time observed the 
-latitude to be 36* 47' 26".'' This latitude is that very nearly in 
-which I have placed in my first maps the city of Corone ; but 
-as the same navigator likewise observed the latitude of Four- 
-nigue, which is the most southern rock of the isle of Theganusa, 
-to be 36" f9' 38" ; and as by this observation the whole coast 
-to Methone is thrown much more to the north than it had been 
-laid down in my maps ; T can no longer find the 160 stadia 
-assigned by Pausanias as the distance between the promontory 
-Acritas and Corone ;*" indeed they are not more than 65 or 70. 
-I would not, however, make any alteration in these deter- 
-minations, because they agree with the latitude of Mothone, at 
-present Modon, which M. de Chabert observed to be 36° 49','' 
-the same within one minute less, which it had been before 
-found to be by M. le Roi.'' The latitude which M, Niebuhr 
-assigns to the island Sapienza,*^ the most northern of the 
-CEnus3« isles, is erroneous. 
 
 The island of JBgiMa, at present Cerigotto, is laid down 
 from several observations of M. de Chabert,^ and is placed very 
