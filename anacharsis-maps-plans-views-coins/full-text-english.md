@@ -833,398 +833,151 @@ I should never conclude were I to enter into a circumstantial account of all the
 
 *) Choiseul Gouffier, ibid. p. 46. Chevalier, ibid. chap. 11. p. 32 et seq.
 
-I have said that Herodotus was mistaken in the measure of 
-the narrowest part of the Hellespont, as he had been in that of 
-the Bosporus of Thrace. He reckons only seven stadia for the 
-distance between the two shores of Abydos and Sestos;* and 
-this measure is repeated, no doubt, after him, in Strabo, Pliny, 
-and Agathemerus.* M. d'Anville, in his description of the 
-Hellespont, comparing this distance with that given in the chart 
-of the sea of Marmora by Bohn, after having corrected the 
-scale and finding the latter much less than accorded with the 
-length of the Olympian or even the Pythian stadium, has con- 
-cluded that the stadium used by Herodotus in this place is one 
-of the shortest kind, or of 51 toises.* But all these evaluations 
-are erroneous, and it appears that the chart of Bohn is very 
-inaccurate in this part. That of M. Truguet, on the contrary, 
-makes this strait much wider than is suitable to the length of 
-even the Olympian stadium; it represents the distance from 
+I have said that Herodotus was mistaken in the measure of the narrowest part of the Hellespont, as he had been in that of the Bosporus of Thrace. He reckons only seven stadia for the distance between the two shores of Abydos and Sestos;* and this measure is repeated, no doubt, after him, in Strabo, Pliny, and Agathemerus.* M. d'Anville, in his description of the Hellespont, comparing this distance with that given in the chart of the sea of Marmora by Bohn, after having corrected the scale and finding the latter much less than accorded with the length of the Olympian or even the Pythian stadium, has concluded that the stadium used by Herodotus in this place is one of the shortest kind, or of 51 toises.* But all these evaluations are erroneous, and it appears that the chart of Bohn is very inaccurate in this part. That of M. Truguet, on the contrary, makes this strait much wider than is suitable to the length of even the Olympian stadium; it represents the distance from one shore to the other as not less than twelve Olympian stadia, as will appear from the scale; and though this measure certainly seems to me very great, I have not ventured to make any alteration in this chart, since it was taken by trigonometrical survey. I have marked two bridges of Xerxes in this plan, because, in fact, that monarch constructed two; one for his troops, and the other for the beasts of burden.*
 
+*) Strab. lib. 13. p. 602.
 
+*) Herodot. lib. 4. c. 85; lib. 7. c. 34.
 
-■■Strab. lib. 13. p. 602. •■ Herodot. lib. 4. c. 85 ; lib. 7. c. 3*. -^ Strab. lib. 2. 
-p. 12*; lib. 13. p. 591. Plin. lib. +. c. ll.t. i, p. 206. c. 15!.p. 2H. Agnthem. de Geogr. 
-lib. 2. cap \i. p. 60. ap. Geogr. Min. Grtec. t. ii. '^ Mem. de I'Acad- des Bell, Lett, 
-t. xxviii. p. 319 et SS*. 
+*) Strab. lib. 2. p. 124; lib. 13. p. 591. Plin. lib. 4. c. 11. t. 1. p. 206. c. 12. p. 214. Agathem. de Geogr. lib. 2. cap. 14. p. 60. ap. Geogr. Min. Græc. t. 2.
 
-one shore to the other as not less than twelve Olympian stadia, 
-as will appear from the scale ; and though this measure certainly 
-seems to me very great, I have not ventured to make any alte- 
-ration in this chart, since it was taken by trigonometrical 
-survey. I have marked two bridges of Xerxes in this plan, 
-because, in fact, that monarch constructed two ; one for his 
-troops, and the other for the beasts of burden/ 
+*) Mem. de l'Acad. des Bell. Lett. t. 28. p. 319 et 334.
 
-The plan of the environs of Athens, which is the next in 
-order, is designed from a very accurate plan taken on the spot 
-in 1 781 by M. Foucherot. This plan is now given on a larger 
-scale than that in the preceding editions. I have adjusted to 
-it the plans of Athens and of the Academy, of which I shall 
-presently speak ; and the Long Walls are traced in it accord- 
-ing to the direction of the ruins discovered by M. Foucherot on 
-the spot From the vestiges of the northern long wall observed 
-by M. Foucherot, it appears that the direction of this wall was 
-to the temple of Minerva in the citadel of Athens ; but of the 
-wall of Phalerum no traces now remain. M. Fauvel has trans- 
-mitted to me some further observations relative to these walls ; 
-but, as his letter did not reach me till my plan was engraved, 
-I was not able to make use of them. 
+The plan of the environs of Athens, which is the next in order, is designed from a very accurate plan taken on the spot in 1781 by M. Foucherot. This plan is now given on a larger scale than that in the preceding editions. I have adjusted to it the plans of Athens and of the Academy, of which I shall presently speak; and the Long Walls are traced in it according to the direction of the ruins discovered by M. Foucherot on the spot. From the vestiges of the northern long wall observed by M. Foucherot, it appears that the direction of this wall was to the temple of Minerva in the citadel of Athens; but of the wall of Phalerum no traces now remain. M. Fauvel has transmitted to me some further observations relative to these walls; but, as his letter did not reach me till my plan was engraved, I was not able to make use of them.
 
-I have added to this plan the boroughs or villages of Xypete 
-and Argyle, particulars concerning which may be found in the 
-work of Meursius entitled De Populis Atttcce^^ as also the Sicilian 
-hill, which was near the city of Athens, and is mentioned in an 
-oracle of Dodona.^ This name, it is said, which promised very 
-great advantages to the Athenians,* deceived them so that they 
+I have added to this plan the boroughs or villages of Xypete and Argyle, particulars concerning which may be found in the work of Meursius entitled _De Populis Atticæ_,* as also the Sicilian hill, which was near the city of Athens, and is mentioned in an oracle of Dodona.* This name, it is said, which promised very great advantages to the Athenians,* deceived them so that they thought they were to carry their arms into Sicily, and engaged in the disastrous expedition which they made to that island. I have placed the tomb of Themistocles on one of the points of the Piræus, without the harbour; from the account given me by M. Verninac, one of our ambassadors at the Porte, that M. Fauvel had found in this place a magnificent tomb. There is, however, no inscription on this tomb; so that it may be that of some other person. For the details of the Piræus, the treatise of Meursius entitled _Piræus_* may be consulted.
 
-^ Herodot. lib. 7. cap. 36 et 55^ ' Joannis Meursii Opera omnia, edente Joanne 
-Lamio, Florentiee, 1^ vol. in folio, t. i. col. 217 et seq. s Pausan, lib. 8. c. 1 J. p. 623. 
-SuidaSy verbo 2cicrX/(ecv. . * The oracle had directed them to erect habitations in (oiic/^^ecv), 
-or as they understood it colonize, Sicily. T. 
+*) Herodot. lib. 7. cap. 36 et 55.
 
+*) Joannis Meursii Opera omnia, edente Joanne Lamio, Florentiæ, 12 vol. in folio, t. 1. col. 217 et seq.
 
-thought they were to carry their arms into Sicily, and engaged 
-in the disastrous expedition which they made to that island. I 
-have placed the tomb of Theraistocles on one of the points of 
-the Pirveus, without the harbour ; from the account given me 
-by M. Veminac, one of our ambassadors at the Porte, that M. 
-Fauvel had found in this place a magnificent tomb. There is, 
-however, no inscription on this tomb ; so that it may be that 
-of some other person. For the details of the Pira-us, the trea- 
-tise of Meursius entitled PirtEus^ uiay be consulted. 
+*) Pausan. lib. 8. c. 11. p. 623. Suidas, verbo Σικελίξειν.
 
-The map of Attica, Megaris, and a part of the ishmd of 
-Eubo^a, which follows, is very different from that of the former 
-editions. This map has been entirely re-drawn. As it is de- 
-signed on the same plan with the particular maps of the other 
-countries of Greece, the remarks in the former part of these 
-Observations are equally applicable to it, and I shall therefore 
-say no more of it here. 
+*) The oracle had directed them to _erect habitations in (οἱκίζειν)_, or as they understood it _colonize_, Sicily.
+
+The map of Attica, Megaris, and a part of the island of Eubœa, which follows, is very different from that of the former editions. This map has been entirely re-drawn. As it is designed on the same plan with the particular maps of the other countries of Greece, the remarks in the former part of these Observations are equally applicable to it, and I shall therefore say no more of it here.
 
 The plan of the Academy and its environs is, in some man- 
-ner, only a supplement to the plan of Athens, of which I shaU 
+ner, only a supplement to the plan of Athens, of which I shall 
 immediately speak, and is designed on the same scale. I have 
 made no alterations in it in this edition. The Gymnasium of 
 the Academy was distant six stadia from the gate of the city 
-called Dipylon, according to Cicero ;' but it is not to be sup- 
-posed that I had any very circumstimtial notices with respect 
+called Dipylon, according to Cicero;* but it is not to be sup- 
+posed that I had any very circumstantial notices with respect 
 to the garden, of which I have there given the figure. We 
 know, in general, that it was a very pleasant grove, watered by 
-several streams, and containing walks. '' It was in this garden 
-that Plato gave his lessons.' The house of that philosopher is 
-represented on. the road which led from the garden of the 
+several streams, and containing walks.* It was in this garden 
+that Plato gave his lessons.* The house of that philosopher is 
+represented on the road which led from the garden of the 
 
 
+*) Joannis Meursii Opera omnia, t. 1. col. 537 et seq.
 
->■ Joanaia Meurs!i Opera omnia, I 
-" PtuUrch. in Cimon. t. i. p. 487. 
-VOL. VII. 
+*) Cicer. de Fin. lib. 5. cap. 1.
 
+*) Plutarch. in Cimon. t. 1. p. 487.
 
+*) Travels of Anacharsis, vol. 2. p. 108.
 
-i. col. £37 et seq. > Cicer. de Fin. lib. 5- cap. 1- 
-' Travels of AnacbBTtU, vol. ii. p. 108< 
+Academy to the village of Colonos.* I have taken the details of this village from the tragedy of Sophocles entitled _Œdipus at Colonos_.* I have carefully studied what the decorations of that piece represented, as there can be no doubt that they must have exhibited an exact image of a place which the Athenians had continually before their eyes. The site of the temple of Neptune Hippius* is now occupied by the church of St. Euphemia, the steeple of which was one of the angular points of the triangles formed by M. Foucherot in the surveys he took of that country in 1781.
 
-Academy to the village of Colonos.™ I have taken the details 
-of this village from the tragedy of Sophocles entitled (Edipus 
-at ColonosJ' I have carefully studied what the decorations of 
-that piece represented, as there can be no doubt that they must 
-have exhibited an exact image of a place which the Athenians 
-had continually before their eyes. The site of the temple of 
-Neptune Hippius* is now occupied by the church of St. Eu- 
-phemia, the steeple of which was one of the angular points of 
-the triangles formed by M. Foucherot in the surveys he took 
-of that country in 1781. 
+The plan of Athens has undergone no alteration in this edition, except that, for greater convenience, the names that were placed in a column on the side, are now inserted in the body of the plan. Some readers may perhaps inquire why my name is not to this plan; but when they have read the note of M. Barthelemy on the plan of Athens at the end of the second volume of his work,* they will perceive that I had no other part in its construction than designing it in conformity to his ideas. As no addition has been made to this plan I shall make no further observations on it.
 
-The plan of Athens has undergone no alteration in this edi- 
-tion, except that, for greater convenience, the names that were 
-placed in a column on the side, are now inserted in the body of 
-the plan. Some readers may perhaps inquire why my name is 
-not to this plan ; but when they have read the note of M. Bar- 
-Ihelemy on the plan of Athens &t the end of the second volume 
-of his work,p they will perceive that I had no other part in its 
-construction than designing it in conformity to his ideas. As 
-no addition has been made to this plan I shall make no fur- 
-ther observations on it. 
+The map of Phocis, Doris, and the country of the Locrians, was found, in part at least, in the former editions, but it is here greatly enlarged. I have added to it the detail of the countries of the Ozolian, Epicnemidian, and Opuntian Locrians, which were wanting in the former atlas: and which with the map of Ætolia and Acarnania, of which I shall presently speak, complete all the countries of free Greece, at the time when Anacharsis the Younger is supposed to have travelled. As this map, as well as the others of particular countries, is designed on the original plan, all the remarks in the former part of these observations are applicable to it.
 
-The map of Phocis, Doris, and the country of the Locrians, 
-was found, in part at least, in the former editions, but it is here 
-greatly enlarged. I have added to it the detail of the countries 
-of the Ozolian, Epicnemidian, and Opuntian Locrians, which 
-were wanting in the former atlas : and which with the map of 
-^tolia and Aca^nania, of which I shall presently speak, com- 
-plete all the countries of free Greece, at the time when Ana- 
-charsis the Younger is supposed to have travelled. As this map, 
+*) Plutarch. de Exilio, t. 2. p. 603. Diog. Laërt. in Platone, lib. 3. cap. 7.
 
-"» Plutarcb. de Exilio, t. ii. p. 603. Diog. Laert. in Platone, lib. 3. cap. 7. » So< 
-phocl. OBdip. Colon, passim. ^ Thucydid. lib. 8. cap. 67. p Travels of Anacharsis, 
-vol. ii. p. 479. 
+*) Sophocl. Œdip. Colon. passim.
 
-as well as the others of particular countries, is designed on the 
-original plan', all the remarks in the former part of these ob- 
-servations are applicable to it. 
+*) Thucydid. lib. 8. cap. 67.
 
-The plan of the environs of Delphi has been designed from 
-a sketch which M. Foucherot traced for me of his route from 
-the port of Salone, formerly Cirrha, to Salone itself, anciently 
-Amphissa, and thence to Delphi, at present Castri. We know 
-from ^schines, who was pylagoras or deputy from Athens to 
-the assembly of the Amphictyons at Delphi, and who excited 
-a war against the Amphiss^ans, that this town of Amphissa was 
-distant from- Delphi sixty stadia -^ though Pausanias errone- 
-ously makes this distance a hundred and twenty stadia ;' and 
-in like manner, sixty stadia were reckoned from Delphi to 
-Cirrha,' or eighty according to Strabo and Ilarpocration.' In 
-this plan the Phsedriades rocks are placed as they appear in a 
-view given at the top of the plan in the original atlas, and 
-which was copied from a sketch taken on the spot in 1781 by 
-M. Fauvel. Scarcely any other alteration has been made in 
-this plan, except the addition of the ruins of Crissa, and giving 
-the vieiv of Delphi and the two rocks of Parnassus more at 
-large and complete in a separate plate. 
+*) Travels of Anacharsis, vol. 2. p. 479.
 
-The map of Boeotia has been designed on a larger scale, 
-and is consequently more expanded. That of Thessaly is 
-almost the same as in the former editions, except that a greater 
-extent of the adjoining countries is added. To the south the 
-cities of Elatea and Opus are inserted, which serve to connect 
-this map with the preceding, and thus the route of Anacharsis 
-is not interrupted as it was before. The whole of the island of 
+The plan of the environs of Delphi has been designed from a sketch which M. Foucherot traced for me of his route from the port of Salone, formerly Cirrha, to Salone itself, anciently Amphissa, and thence to Delphi, at present Castri. We know from Æschines, who was _pylagoras_ or deputy from Athens to the assembly of the Amphictyons at Delphi, and who excited a war against the Amphissæans, that this town of Amphissa was distant from Delphi sixty stadia;* though Pausanias erroneously makes this distance a hundred and twenty stadia;* and in like manner, sixty stadia were reckoned from Delphi to Cirrha,* or eighty according to Strabo and Harpocration.* In this plan the Phædriades rocks are placed as they appear in a view given at the top of the plan in the original atlas, and which was copied from a sketch taken on the spot in 1781 by M. Fauvel. Scarcely any other alteration has been made in this plan, except the addition of the ruins of Crissa, and giving the view of Delphi and the two rocks of Parnassus more at large and complete in a separate plate.
 
+The map of Bœotia has been designed on a larger scale, and is consequently more expanded. That of Thessaly is almost the same as in the former editions, except that a greater extent of the adjoining countries is added. To the south the cities of Elatea and Opus are inserted, which serve to connect this map with the preceding, and thus the route of Anacharsis is not interrupted as it was before. The whole of the island of Scopelos, and a part of that of Halonesus, --- and, to the north, a part of the river Haliacmon, --- are likewise inserted.
 
+*) Æschin. contra Ctesiph. p. 447.
 
-9 ,^chin. contra Ctesiph. p. 447. ' Pausan. lib, 10. c. 38. p, 
-57. p. 893. ' Strab. lib. 9. p, il8. Harpocrat. verb. Ki^l^oi'. 
+*) Pausan. lib. 10. c. 38. p. 895.
 
-Scopelos, and a part of that of Halonesus, --- and, to the north, 
-a part of the river Haliacmon, --- are likewise inserted. 
+*) Id. ibid. c. 37. p. 893.
 
-The map of ^tolia and Acarnania was not in the fonner 
-editions ; but, as I have already said, it was indispensably ne- 
-cessary, not only for understanding the route of Anacharsis, 
-but to complete the maps of the countries of free Greece, at the 
-time he is supposed to have travelled. This map is designed, 
-as are all those of particular countries on the original plan ; 
-so that the remarks in the former part of these observations are 
-applicable to it. I shall however add here, that, with respect 
-to the ancient geography of these countries, I have made great 
-use of the work of Paulmier entitled Grtecice Aiitiquee Description^ 
-which all the learned must regret not having been finished. In 
-this new map I have called Leucadia, widi the author of the 
-Travels of Anacharsis, a peninsula," because Thucydides de- 
-scribes it as, in his time, joined to the continent by an isthmus, 
-over which ships were sometimes drawn.'' There is, however, 
-reason to believe, from the accounts of Scylax and Strabo, that 
-this isthmus was cut through from the time when the Corin- 
-thians established themselves in this peninsula,^ and that 
-Lucadia then became an island. But, perhaps, in the time 
-of Thucydides, the channel was choked up, and would not 
-admit vessels to pass. 
+*) Strab. lib. 9. p. 418. Harpocrat. verb. Κεῤῥαίον.
 
-The map of Corinthia, Sicyonia, Phliasia, and Achftia, is 
-drawn on the same scale as in the former editions ; but I have 
-added to it a much greater extent of the adjoining countries, in 
-order to give more points of connection ; and it includes the 
+The map of Ætolia and Acarnania was not in the former editions; but, as I have already said, it was indispensably necessary, not only for understanding the route of Anacharsis, but to complete the maps of the countries of free Greece, at the time he is supposed to have travelled. This map is designed, as are all those of particular countries on the original plan; so that the remarks in the former part of these observations are applicable to it. I shall however add here, that, with respect to the ancient geography of these countries, I have made great use of the work of Paulmier entitled _Græciæ Antiquæ Descriptio_,* which all the learned must regret not having been finished. In this new map I have called Leucadia, with the author of the Travels of Anacharsis, a peninsula,* because Thucydides describes it as, in his time, joined to the continent by an isthmus, over which ships were sometimes drawn.* There is, however, reason to believe, from the accounts of Scylax and Strabo, that this isthmus was cut through from the time when the Corinthians established themselves in this peninsula,* and that Lucadia then became an island. But, perhaps, in the time of Thucydides, the channel was choked up, and would not admit vessels to pass.
 
+The map of Corinthia, Sicyonia, Phliasia, and Achaia, is drawn on the same scale as in the former editions; but I have added to it a much greater extent of the adjoining countries, in order to give more points of connection; and it includes the whole of the sea of Crissa. That of Elis and Triphylia is on a somewhat larger scale than before, and consequently more expanded. It includes the whole of the island of Zacynthus, and a great part of that of Cephallenia.
 
+*) Jacobi Palmerii a Grantemesnil Græciæ Antiquæ Descriptio. Lugduni Batav. 1678, in 4to.
 
-" Jacobi Palraerii a Grantemeanil Graecite Antiqute Descriptlo. Lugduni Batav. 1678, 
-in 4to. • Vol. iii. p. 352. * Thucydid. lib. 3. c. 81 et 94; lib. 4. c. 8. ' Scylax^ 
-PeHpl p, 13, ap- Geogr. Min. Groec. t. i, Strab. lib. 10. p, 452. 
+*) Vol. 3. p. 352.
 
+*) Thucydid. lib. 3. c. 81 et 94; lib. 4. c. 8.
 
-whole of the sea of Crissa. That of EUs and Triphylia is on a 
-somewhat larger scale than before, and consequently more ex- 
-panded. It includes the whole of the island of Zacynthus, and 
-a great part of that of Cephallenia. 
+*) Scylax, Peripl. p. 13. ap. Geogr. Min. Græc. t. 1. Strab. lib. 10. p. 452.
 
-The plan of Olympia, which follows, is nearly the same as 
-in the preceding editions, except that both the banks of the 
-Alpheus are seen. 1 could have wished to have re-drawn this 
-plan, which cannot well accord with the present appearances of 
-the ground, since I designed it, as 1 have .said, entirely from 
-the accounts given by ancient authors. I gave it with an in- 
-tention to excite a desire to visit so celebrated a place, and it 
-had the proposed effect. I have in vain solicited M. Fauvel, 
-who has several times visited and examined the ground on 
-which it stood, for materials relative to it ; he referred me to 
-the circumstantial details which he transmitted to our ambas- 
-sador, M. Aubert Dubayer, but nothing relative to the subject 
-has been found among the papers of that ambassador. I 
-could have wished especially to know what was the form of the 
-hippodromus. The barrier, particularly, is represented from 
-the account of Pausanias, who says that it had the figure of the 
-prow of a ship, with the beak turned towards the lists." On 
-this beak was a dolphin of brass, which sunk into the earth as 
-a signal for the racers to set oft;'* but as all the chariots must 
-pass by this place, which was very narrow, it is not easy to 
-conceive how they could avoid being broken to pieces before 
-they entered the lists. M. Barthelemy has felt this difficulty as 
-well as I, but he was convinced that it could only be removed 
-by an examination of the ruins still remaining on the ground. 
+The plan of Olympia, which follows, is nearly the same as in the preceding editions, except that both the banks of the Alpheus are seen. I could have wished to have re-drawn this plan, which cannot well accord with the present appearances of the ground, since I designed it, as I have said, entirely from the accounts given by ancient authors. I gave it with an intention to excite a desire to visit so celebrated a place, and it had the proposed effect. I have in vain solicited M. Fauvel, who has several times visited and examined the ground on which it stood, for materials relative to it; he referred me to the circumstantial details which he transmitted to our ambassador, M. Aubert Dubayer, but nothing relative to the subject has been found among the papers of that ambassador. I could have wished especially to know what was the form of the hippodromus. The barrier, particularly, is represented from the account of Pausanias, who says that it had the figure of the prow of a ship, with the beak turned towards the lists.* On this beak was a dolphin of brass, which sunk into the earth as a signal for the racers to set off;* but as all the chariots must pass by this place, which was very narrow, it is not easy to conceive how they could avoid being broken to pieces before they entered the lists. M. Barthelemy has felt this difficulty as well as I, but he was convinced that it could only be removed by an examination of the ruins still remaining on the ground.
 
-Mr. Fauvel, in a letter to M. Foucherot, dated in 1787 or 
+*) Pausan. lib. 6. c. 20. p. 503.
 
+*) Id. ibid.
 
-Pausan. lib. 6. c. 20. p. 503. 
+Mr. Fauvel, in a letter to M. Foucherot, dated in 1787 or 1788, informed him that he had discovered the hippodrome, the stadium, the theatre, and the temple of Jupiter Olympicus; and it was in consequence of this letter that I said, in the former part of these Observations, that M. Fauvel had seen all these relics of antiquity, and that we should soon be in possession of their exact dimensions.* But an Englishman, Mr. Hawkins, who says he has, within a short time, been four several times at Olympia, and made very accurate drawings of the place, tells us he found no traces either of the stadium or the hippodromus.* Can Mr. Hawkins have been less fortunate than M. Fauvel? At any rate I believe, if an accurate search were made, the foundations of them might be discovered.
 
-1788, informed him that he had discovered the hippodrome, 
-the stadium, the theatre, and the temple of Jupiter Olympicus ; 
-and it was in consequence of this letter that I said, in the 
-former part of these Observations, that M. Fauvel had seen all 
-these relics of antiquity, and that we should soon be in posses- 
-sion of their exact dimensions.*' But an Englishman, Mr. 
-Hawkins, who says he has, within a short time, been four 
-several times at Olympia, and made very accurate drawings of 
-the place, tells us he found no traces either of the stadium or 
-the hippodromus.*^ Can Mr. Hawkins have been less fortunate 
-than M. Fauvel ? At any rate I believe, if an accurate search 
-were made, the foundations of them might be discovered. 
+This plan is designed principally from the accounts given by Pausanias;* but I have added some particulars taken from Xenophon, and which are found in the part of his history, where he describes the battle fought between the Eleans and Arcadians, on the very ground of Olympia;* and for the places of the courses I have derived great advantage from the learned memoir of M. Delabarre, "on the places appropriated to the Public Games in Greece."* I may perhaps at some future time, in particular works, enter into the details of this plan, as also of several others in this collection.
 
-This plan is designed principally from the accounts given 
-by Pausanias f but I have added some particulars taken from 
-Xenophon, and which are found in the part of his history, 
-where he describes the battle fought between the Eleans and 
-Arcadians, on the very ground of Olympia / and for the places 
-of the courses I have derived great advantage from the learned 
-memoir of M. Delabarre, " on the places appropriated to the 
-Public Games in Greece/'^ I may perhaps at some future 
-time, in particular works, enter into the details of this plan, as 
-also of several others in this collection. 
+The map of Messena is, in like manner, on the same scale as in the former editions; but I have added some parts of the neighbouring countries, in order that there might be more points of connexion. It is proper to notice that the Strophades isles were dependent on Messena.* The map of Laconia is likewise on the same scale with that of the former editions; but I have added some small extent of ground. As to the plan of Sparta and its environs, it does not bear my name, as I had no other share in it than that of designing it according to the ideas of M. Barthelemy. In this new edition, however, for greater convenience, I have inserted in the plan itself the names which were before placed, with references, in a column on the side, as in the plan of Athens; and I have filled the vacant space from the plan of the plain of Sparta, by M. David le Roi.* M. Barthelemy has given an account of the particulars of this plan in a note,* on which account I shall say no more of it here.
 
-The map of Messena is, in like manner, on the same scale 
-as in the former editions ; but I have added some parts of the 
-neighbouring countries, in order that there might be more 
-points of connexion. It is proper to notice that the Strophav^ 
-des isles were dependent on Messena.^ The map of Laconia 
-is likewise on the same scale with that of the former editions ; 
+*) See above, p. 14.
 
-^ See above, p. 14. ^ Magazin Encyclop6d. 4 ann6e, t. vi. p. 538. * Pausan. 
+*) Magazin Encyclopéd. 4 année, t. 6. p. 538.
 
-lib. 6 et 7» passim. ' Xen, Hist. Graec. lib. 7. cap. 4. s Mem. de 1' Acad, des Bell. 
-Lettr. t ix. p. S76 et suiv. ^ Strab. lib. 8. p. $59. 
+*) Pausan. lib. 6 et 7, passim.
 
+*) Xen. Hist. Græc. lib. 7. cap. 4.
 
-but I have added some small extent of ground. As to the plan 
-of Sparta and its environs, it does not bear my name, as I had 
-no other share in it than that of designing it according to the 
-ideas of M. Barthelemy. In this new edition, however, for 
-greater convenience, I have inserted in the plan itself the names 
-which were before placed, with references, in a column on the 
-side, as in the plan of Athens ; and I have filled the vacant 
-space from the plan of the plain of Sparta, by M. David le 
-Roi.* M. Barthelemy has given an account of the particulars 
-of this plan in a note," on which account I shall say no more 
-of it here. 
+*) Mem. de l'Acad. des Bell. Lettr. t. 9. p. 376 et suiv.
 
-The map of Arcadia is on a larger scale, and consequently 
-more expanded. That of ArgoUs, Epidauria, Troezenia, Her- 
-mionis, the isle of iBgina, and Cynuria, is in like manner on a 
-larger scale, by which those small states are rendered more dis- 
-tinct ; but we must not suppose, on account of the title, that 
-all these countries were dependent on Argos. Epidauria, 
-Troezenia, Hermionis, and the isle of -^gina, were so many 
-small free republics.* Cynuria alone, after having been long 
-disputed between the Argives and Lacedaemonians, fell at 
-length to the former.™ 
+*) Strab. lib. 8. p. 359.
 
-The map of the coasts of Asia Minor, from Cyme to 
-Rhodes, was not in the former editions ; but it was necessary 
-to elucidate the route of Anacharsis along the coasts of Asia. 
-I have used the name of Asia Minor in this title, though I well 
-know that it is considerably posterior to the time of the travels 
-of Anacharsis,'' because this part of Asia is much more known 
+The map of Arcadia is on a larger scale, and consequently more expanded. That of Argolis, Epidauria, Trœzenia, Hermionis, the isle of Ægina, and Cynuria, is in like manner on a larger scale, by which those small states are rendered more distinct; but we must not suppose, on account of the title, that all these countries were dependent on Argos. Epidauria, Trœzenia, Hermionis, and the isle of Ægina, were so many small free republics.* Cynuria alone, after having been long disputed between the Argives and Lacedæmonians, fell at length to the former.*
 
-' Le Roi> Ruines de la Grdce, t. ii. pi. 12. p. S2. ^ Travels of Anacharsisy vol. iv. 
-p. 469. > Pausan. lib. 2. passim. >" Id. ibid. c. 38. p. 202. " CeUarii, Notitia 
-Orbis Antiquiy lib. S. c. 1. 1. ii. p. 2. 
+The map of the coasts of Asia Minor, from Cyme to Rhodes, was not in the former editions; but it was necessary to elucidate the route of Anacharsis along the coasts of Asia. I have used the name of Asia Minor in this title, though I well know that it is considerably posterior to the time of the travels of Anacharsis,* because this part of Asia is much more known to us by this name than by any other. This map, like all the others of the particular countries of Greece, is laid down on the original plan, on which account what has been said in the former part of these Observations is applicable to it. With respect, however, to the particulars of the interior of the continent, I shall here add, that they are supported by the examination I have made of a great road described by Strabo, which, setting out from port Physcus, opposite Rhodes, passed through Lagini, Alabanda, and Tralles, and proceeded to Ephesus.* There was likewise another which, setting out from Ephesus, took its direction eastward, by Tralles, Acharaca, and Athymbra, afterwards Nysa, and was continued to the Euphrates.* To the present time, only one river has been noticed of the name of the Marsyas, which fell into the Mæander; and this rising almost in the same place with the Mæander, soon after joined that river at the city Celænæ.* But it appears to me that another very large river, which flowed by Lagini, collecting all the waters of the interior of Caria, likewise bore that name. Herodotus tells us,* that this Marsyas falls into the Mæander after having traversed the territory of Idrias; and we know from Strabo,* that Lagini, which is at present called Lachina, was in the territory of Stratonicea, which had formerly borne the name of Idrias.* The Marsyas is then the river of Lachina. I first laid it down in the maps of the _Voyage Pittoresque de la Grèce_, of the Count de Choiseul Gouffier,* whence I have transferred it to those of Anacharsis.
 
-to US by this name than by any other. This map, like all the 
-others of the particular countries of Greece, is laid down on the 
-original plan, on which account what has been said in the 
-former part of these Observations is applicable to it. With re- 
-spect, however, to the particulars of the interior of the con- 
-tinent, I shall here add, that they are supported by the exami- 
-nation I have made of a great road described by Strabo, 
-which, setting out from port Physcus, opposite Rhodes, passed 
-through Lagini, Alabanda, and Tralles, and proceeded to 
-Ephesus." There was likewise another which, setting out from 
-Ephesus, took its direction eastward, by Tralles, Acharaca, 
-and Athymbra, afterwards Nysa, and was continued to the 
-Euphrates/ To the present time, only one river has been no- 
-ticed of the name of tlie Marsyas, which fell into the Ma;ander ; 
-and this rising almost in the same place with the JVIa'ander, 
-soon after joined that river at the city Celienai.i But it appears 
-to me that another very large river, which flowed by Lagini, 
-collecting all the waters of the interior of Caria, hkewise bore 
-that name. Herodotus tells us,' that this Marsyas falls into the 
-Mieander after having traversed the territory of Idrias ; and we 
-know from Strabo,* that Lagini, which is at present called 
-Lachina, was in the territory of Stratonicea, which had for- 
-merly borne the name of Idrias.* The Marsyas is then the 
-river of Lachina. I first laid it down in the maps of the 
-f^yage Pittoresque de la Gr^ce, of the Count de Choiseul Gouf- 
-fier," whence I have transferred it to those of Anacharsis. 
+*) Le Roi, Ruines de la Grèce, t. 2. pl. 12. p. 32.
 
+*) Travels of Anacharsis, vol. 4. p. 469.
 
+*) Pausan. lib. 2. passim.
 
-■> Strab. lib. H. p. 633. i> Herodol. lib. 5. c. 52. Strab. ibid. Pli'n. lib. 2. c. 108. 
-t. i. p. 124. Agftthem. de GcogT. lib. I.e.*. p. 10. ap. Geogr. Min. Grssc. t. ii. i He- 
-rodot. lib. 7. C. 26. Xen. Esped. Cyr. lib. 1. c. 2. ' Herodot. lib. 5. c. 1 18. ' Sirab. 
-lib. 14. page 663- ' Sirab. ibid. Stepb, verb. 'EKaTijirin, Upia^, Xputroopic " M. de 
-ChoiMul Gouffier, Voyag. Pitlor. de la Grece, pi. 73. t. i. p. 128. 
+*) Id. ibid. c. 38. p. 202.
 
+*) Cellarii, Notitia Orbis Antiqui, lib. 3. c. 1. t. 2. p. 2.
 
-The map of the Cyclades, which is by M. d'Anville, has un- 
-dergone scarcely iiny alteration, except that, to enlarge it to 
-the size requisite for this new edition, I have added a small 
-part of the isle of Eubcea and Attica, as also a part of the 
-island of Chios and cape ScyllKum ; but these are likewise laid 
-down from the maps of M. d'Anville.* I have thought I 
-might omit the small plan of the island of Delos, which was in 
-one corner of the former map, because it was not sufficiently 
-detailed ; and I have supplied its place by a plan of the same 
-size with the map, representing the isle of Delos on a larger 
-scale, and a part of the two neighbouring islands. I have 
-sought, without success, in the portfolios of the D^pdt de la 
-Marine, to which M. Buache had the kindness to give me ac- 
-cess, for materials which might be useful in designing my plan. 
-I found there nothing satisfactory, and was therefore reduced 
-to have recourse to the map of Mycone and the Sdiles given by 
-Tournefort." I have designed it on a larger scale, and have 
-corrected the meridian, by placing it a point of the compass 
-more to the east ; this map having, without doubt, been laid 
-down by the compass. I have also added a scale from the 
-particular plan which Tournefort has given of the isle of Delos.*^ 
-1 have not, however, entirely followed this plan with respect to 
-the figure of the island, which I have taken from the plan given 
-in the Voyage Pittoresque de la Gr^ce;^ and I have retained the 
-meridian as laid down, because it appeared to me to be cor- 
-rected by the variation. Almost all the particulars of the 
-ancient geography of this island are explained in the excellent 
+*) Strab. lib. 14. p. 663.
 
+*) Herodot. lib. 5. c. 52. Strab. ibid. Plin. lib. 2. c. 108. t. 1. p. 124. Agathem. de Geogr. lib. 1. c. 4. p. 10. ap. Geogr. Min. Græc. t. 2.
 
+*) Herodot. lib. 7. c. 26. Xen. Exped. Cyr. lib. 1. c. 2.
 
-* These additions are taken from the map of M. d'Anville, entitled Les CSlts de la 
-Grice el F Arehipel, The Coasts of Greece and the Archipelago, published in 1756. 
+*) Herodot. lib. 5. c. 118.
 
-- Tournefort, Voyag. t. i. p. 278. v Id. ibid. p. 290. ' M. de Choiseul Gouffier, 
+*) Strab. lib. 14. page 663.
 
-Voyag. Piltor. de la Grece, pi. 3 1 . t. i. p. *9. 
-VOL. VII. L 
+*) Strab. ibid. Steph. verb. Ἑκατησια, Ιδριας, Χρυσαορις.
 
-description which Toumefort has given of the isle of Delos," 
-iind to which I would refer the reader. 
+*) M. de Choiseul Gouffier, Voyag. Pittor. de la Grèce, pl. 73. t. 1. p. 128.
+
+The map of the Cyclades, which is by M. d'Anville, has undergone scarcely any alteration, except that, to enlarge it to the size requisite for this new edition, I have added a small part of the isle of Eubœa and Attica, as also a part of the island of Chios and cape Scyllæum; but these are likewise laid down from the maps of M. d'Anville.* I have thought I might omit the small plan of the island of Delos, which was in one corner of the former map, because it was not sufficiently detailed; and I have supplied its place by a plan of the same size with the map, representing the isle of Delos on a larger scale, and a part of the two neighbouring islands. I have sought, without success, in the portfolios of the _Dépôt de la Marine_, to which M. Buache had the kindness to give me access, for materials which might be useful in designing my plan. I found there nothing satisfactory, and was therefore reduced to have recourse to the map of Mycone and the Sdiles given by Tournefort.* I have designed it on a larger scale, and have corrected the meridian, by placing it a point of the compass more to the east; this map having, without doubt, been laid down by the compass. I have also added a scale from the particular plan which Tournefort has given of the isle of Delos.* I have not, however, entirely followed this plan with respect to the figure of the island, which I have taken from the plan given in the _Voyage Pittoresque de la Grèce_;* and I have retained the meridian as laid down, because it appeared to me to be corrected by the variation. Almost all the particulars of the ancient geography of this island are explained in the excellent description which Tournefort has given of the isle of Delos,* and to which I would refer the reader.
+
+*) These additions are taken from the map of M. d'Anville, entitled _Les Côtes de la Grèce et l'Archipel_, The Coasts of Greece and the Archipelago, published in 1756.
+
+*) Tournefort, Voyag. t. 1. p. 278.
+
+*) Id. ibid. p. 290.
+
+*) M. de Choiseul Gouffier, Voyag. Pittor. de la Grèce, pl. 31. t. 1. p. 49.
 
 It now only remains for me to give an account of the new 
 General Map of Greece, and a great part of the Grecian Gohnies 
