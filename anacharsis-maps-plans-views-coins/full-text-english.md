@@ -520,8 +520,7 @@ The isle of Lemnos is laid down according to its distances from Mount Athos and 
 
 The latitude of the Dardanelles, anciently the Hellespont, has been observed by M. de Chazelles;* but for their position I have entirely followed a large manuscript chart taken within these few years by M. Tondu, an astronomer, who has ascertained their longitude and latitude.* This chart has furnished me with the coasts of the Gulf of Melas, the Thracian Chersonesus, and the opposite Asiatic shore, to Tenedos. To this is added another chart, also in manuscript, taken by M. Truguet, captain of a frigate, under the orders of the Count de Choiseul-Gouffier. From this I have obtained the remainder of the coast of the Troas, the Gulf of Adramyttium to the entrance of that of Cyme, and the whole island of Lesbos.*
 
-*) Sophocl. ap. Etymol. Magn. in Αθως. Apollon. Rhod. Argon. lib. 1. v. 604. Plin. 
-lib. 4. c. 12. t. 1. p. 214. Plut. de Fac. in Orb. Lun. t. 2. p. 935. Solin. c. 2. p. 31.
+*) Sophocl. ap. Etymol. Magn. in Αθως. Apollon. Rhod. Argon. lib. 1. v. 604. Plin. lib. 4. c. 12. t. 1. p. 214. Plut. de Fac. in Orb. Lun. t. 2. p. 935. Solin. c. 2. p. 31.
 
 *) Belon. Observ. liv. 1. c. 25.
 
@@ -533,9 +532,7 @@ lib. 4. c. 12. t. 1. p. 214. Plut. de Fac. in Orb. Lun. t. 2. p. 935. Solin. c. 
 
 The Propontis, now the sea of Marmora, is adjusted, on the one hand, to the position of Byzantium, or Constantinople, the longitude and latitude of which are taken, as I have already said, from the _Connoissance des Temps_ for the year 1788;* and, on the other, to that of the Dardanelles. The figure of it is taken from a large manuscript map, designed in 1731 by M. Bohn, an engineer in the service of Prince Ragozzi. This map is the same that M. d'Anville made use of.* I have copied it exactly, except that I have thought I ought to place Cyzicus more to the east, from the distances given by ancient authors, and even by modern travellers.* The bottom of the Gulf of Astacus, and the lake near to Ancora, are taken from a manuscript chart by M. Peissonel; and the Bosphorus of Thrace, now the canal of Constantinople, is laid down from a particular plan which I have given of it.
 
-To the position of Smyrna, the longitude and latitude of 
-which have been observed by Father Feuillée,* * I have ad- 
-
+To the position of Smyrna, the longitude and latitude of which have been observed by Father Feuillée,* * I have adjusted a large manuscript chart of a part of the Archipelago, which I had designed in 1785. This chart contains all the islands to the south of the parallel of Smyrna, and to the north of that of Rhodes, as well as the corresponding coasts of Europe and Asia. The islands are placed in it according to the observations of Tournefort, and other travellers; and their figures are taken from different plans, some of which are manuscript. A great number of these plans are found in Tournefort; the Count de Choiseul-Gouffier has given several;* and I have also derived advantage from those contained in the collections of Dapper, Boschini, and even Bordoné. The plans of the islands of Thera and Astypalæ are manuscript; they were taken in 1738 by M. le Roi, and the latitude of the islands has been observed.*
 
 *) This latter map, and that of the Dardanelles, are a part of the communications made to me by M. Truguet, of which I shall speak more at length in the continuation of these Observations.
 
@@ -547,694 +544,237 @@ which have been observed by Father Feuillée,* * I have ad-
 
 *) Mém. de l'Acad. des Sciences, ann. 1702, p. 8.
 
-*) The observation of Father Feuillée at Smyrna is found likewise in the _Connois- 
-sance des Temps_ for 1738 and 1789, where the position of that city is given in 33° 28′ 7′′ 
-lat. N. and 24° 59′ 45′′ lon. E. of the meridian of Paris; and it is according to this de- 
-termination that I have adjusted the large manuscript chart of the Archipelago above 
-
-
-
-justed a large manuscript chart of a part of the Archipelago, 
-which I had designed in 1785. This chart contains all the 
-islands to the south of the parallel of Smyrna, and to the north 
-of that of Rhodes, as well as the corresponding coasts ot 
-Europe and Asia. The islands are placed in it according to 
-the observations of Tournefort, and other travellers ; and their 
-figures are taken from ditierent plans, some of which are manu- 
-script. A great number of these plans are found in Tournefort ; 
-the Count de Choiseul-Gouftier has given several ;'' and 1 have 
-also derived advantage from those contained in the collections 
-of Dapper, Boschini, and even Bordone. The plans of the 
-Islands of Thera and ^Vstvpalse are manuscript; they were 
-taken in 1738 by i\f . le Roi, and the latitude of the islands has 
-been observed.* 
-
-On the coast of Asia, the HermEean Gulf, now the Gulf of 
-Smyrna, has been laid do»VTi from a manuscript chart, taken by 
-tlie same M . le Roi ; and the bottom of that of Cyme is ascer- 
-
-
-menlioned to vaj General Map of Greece and the Grecian Islands. But in the ContMs- 
-sance dei Temps for 1792 and the following years, the longitude ol' this city is corrected, 
-from new observations by MM. Tondu and Truguet, and staled to be 24° 46' 33" E, 
-from the meridiaQ of Paris ; and it is according lo thiii determination, and some other 
-authorities, of which I shall speak in the contimiation of these remarks, that I have cor- 
-rected the chart of the Archipelago in question, and adjusted it to my new General Map 
-nf Grfecf and the Grecian Colonies. 
-
-'■ Voyag. Pittor. de la Gr^ce. 
-
-" M. le Roi took an observation of the latitude in the most southern part of the 
-island of Saniorin, and determined it to be S6° i& N. But this observation could not be 
-accurate j for M. Chabert, by observations taken in the most elevated part of the island, 
-ascertained the latitude of that part to be 36^ 2'i' : and this is the position I have assigned 
-to it in my new Map of Greece and the Grecian Coiomei. I have not, in writing, ihe 
-latitude which M. d'Anville says (Ana!, dca Cotes de la Grice, p. 55) to have been ob- 
-served by the same M.le Roi at Port Livomo, in the Island of Stanpatia, or Astypalxa, 
-in the Archipelago ; but a manuscript plan, drawn by M. le Itoi, and including both the 
-islands of Santorin and Stanpalia. naturally gave it me. 
-
-tiiined by the position of PhocEe. This city was a little less 
-than two hundred stadia distant from Smyrna, according to 
-Strabo.*' We are not, however, to suppose that the city of 
-Smyrna found in my map, is the same with that from which 
-Strabo takes this distance. The latter was not built till some 
-time after the date of the Travels of Anacharsis : it was twenty 
-stadia from the ancient city,'' and is that which is at present so 
-tiourishing. The rest of the coast to I.ycia * is taken from the 
-charts of the Count de Choiseul-Gouffier, which have been 
-Hkewise compared with the distances given by ancient au- 
-thors. 
-
-Throughout almost the whole of Asia Minor, the rivers 
-bring down an immense quantity of slime and mud, and form 
-accumulations of earth at dieir mouths. The Scamander in 
-Troas, the Caicus near Pergamus, the Hermus near Smyrna, 
-and the Cayster, which flows by Ephesus, have enlarged the 
-country they traverse ; but no where is there a more remarkable 
-instance of this than in the environs of Miletus. 'The Maeander 
-has heaped up so much sand, that a deep bay, situate between 
-the city and the river, is now only a lake ; and the islands 
-Lade and Asterius, at the entrance of that bay, are become 
-eminences in the plain.-f 
-
-Near Miletus is the promontory of Trogilium, frtwn which 
-
-•^ Strab- lib. M. p. 663. " Id. ibid, p- 6t6. 
-
-* The coasts of Cariti and Lycia, as well as the ialaod of Rhodes, are designed in my 
-new General Map of Greece and the Grecian Colonies, from a chart very carerully drawn 
-by a French Pilot ; of which I shall have occasion to speak in (he continuation of these 
-Observations. 
-
-t 1 have drawn a small map of the accumulations of the Mseander, inserted m the 
-Voyage Pitloresque de la Grece, of M. de Choiseul-Gouffier (PI. iii.) ; and 1 have since 
-published a memoir in support of this map in the Magasin Encyclopedlque, (2< anoee, 
-tome iv. p. 7*, et suiv.) 
-
-»OL. VII. G 
-
-Strabo reckons sixteen hundred stadia to Sunium in Attica.* 
-In a right line, on my- map, it is about fourteen hundred and 
-eighty.* 
-
-Rhodes is placed in the latitude observed by M. de Cha- 
-zelles,' which is 36° 28' 30" N.f and the figure which I have 
-given to the island is taken from an ancient map ;|: corrected 
-by the measures of Strabo, and other authors. The latitude of 
-the little island of Casos is taken from the chart of the Archi- 
-pelago designed for the Dep6t de la Marine, in 1738 ; in which 
-this island is laid down according to observation. The island 
-of Crete is copied from the general map of the island of Can- 
-dia, given by Boschini,^ for want of a better. This map has 
-been adjusted tq the observations of longitude and latitude 
-made by Father FeuilMe at Candia and Canea,'' § as well as to 
-the distances given by ancient and modern authors. I have, 
-however, been obliged to lay down the whole eastern part of 
-the island more to the north. {| The promontory of SamonJum, 
-
-
-
-• Strflb.lib. l*.p. 636. 
-
-" In my new Genrral Map of Greece and the Grecian Colaniei this distance ii some- 
-wliat \eaa. which arises from the new position assigned to the promontory of Trogilium, 
-or Cape Santa Maria. 
-
-' Mem. del, I'Acad. des Sciences, ann. 1761, p. 167. 
-
-t This latitude is too great by about two minutes i for the Epheracrides of Desplacus 
-make it, alier M. dc Chazelles, and apparently by another calculation, only 36° 26'; 
-which is confirmed by the observation of M, Niebuhr, and by that of M. Chabert, as I 
-shall observe in tlie continuation of these remarks. 
-
-J This map is very inaccurate; but in my new General Map the figure of this island 
-U given after a very circumstantial chart drawn by a French pilot. 
-
-t Boschini, 11 Regno Tutto di Candia: Venet. Ifi51, in fol. 
-
-» Mem. de I'Acad d«s Sciences, ann, 1702, p- 10. 1 1- 
-
-$ These observations have undergone alteration in my new General Map, at least 
-those made at Canea, as will be observed hereaf\er, 
-
-P This eastern port is likewise laid down more to the north in my new General Map : 
-in which I have been guided by an observation of latitude taken to the south of that part. 
-
-according to Pliny,' was distant only sixty Roman miles, or 
-four hundred and eighty Olympian stadia, from the island 
-Carpathos : and the promontory Cadiscus seventy-five miles, 
-or six hundred stadia, from Malea, in Peloponnesus. 
-
-Nothing now remains but to mention some particulars which 
-have not yet been noticed in the course of these observations, 
-and which yet are essential to be known. 
-
-These maps are designed for the period when Greece was 
-free. 1 have made it a rule not to insert in them places, the 
-foundation or existence of which was posterior to the battle of 
-Chsronea. Some, however, will be found which are only men- 
-tioned in more modern authors ; but they existed long before, 
-at least the time when they were founded is unknown. I have 
-inserted under their ancient names cities which did not become 
-celebrated until some time after, when they received new 
-names.* Such are Olbia and Ancora in Bithynia, which were 
-afterwards called Nicomedia and NicEea : Sigeum in Troas, 
-which was soon afterwards named Alexandria Troas ; Jdrias 
-in Caria, which was named Stratonicea ; and 'J'herma, and 
-Potidaea, in Macedonia, which took the names of Thessalonica 
-and Cassandria, &c. &c.-t- 
-
-
- PItii. lib. i. c. 12. t. i. p. 210. 
-
-• I have observed the iamc rule to my new General Map t>fGretee and ihe Grecian 
-Colonie*. 
-
-f To these may be added Sesamus, in the Chart of the Pains Mteotis and Ponlus 
-Euxinui, vrhich was afterwards called Amastris; in the Map of JEtUia, Conope, after- 
-wards called ArsinoS; in that oi the Coasts of Asia Minor, Hiero-Come in Lydia, aller- 
-wardfl called Hiero-Ceesarea ; Athymbra near the Mseander. afUrwards called Nysa; 
-aud Bolbia and Latmos, both renamed Heraclea. In like manner, in my new General 
-Map of Greece and the Grecian Colonies, in Asia are the cities of Pelopia. Pythopolis, 
-Diospolis on the Maeander, CcIxdie, and Megalopolis ; which were afterwardB named 
-Hiyatira, Antioch on the Mieander, Laodicea on the Mseander, Apamea on the Meeander, 
-
-Other cities changed their situation without changing their 
-names. Among these the principal are Salamis, in the. island 
-of the samename, on the coast of Attica; Sicyon, Orchomenus, 
-and Hermione, in Peloponnesus ; Pharsalos, in Thessaly ; and 
-Smyrna and Ephesus, in Ionia * All these cities are placed in 
-their ancient site in my maps. Cyzicus in the Propontis, and 
-Clazomenae in Ionia, are only islands, becanse they were not 
-joined to the continent till some time after. Lastly, Olynthus 
-in Macedonia, and some other cities,*!* are marked as destroyed 
-because, since they had made a conspicuous figure in the his- 
-tory of Greece, it was propei- to point out their position. The 
-city of Philippi, on the confines of Macedonia and Thrace, Itad 
-just received that name.J 
-
-The divisions of countries «re traced on die Cieneral Map 
-for the aera of the battle of Chaeronea, which was fought on the 
-3d of August of the year 338 before Christ. The whole conti- 
-nent of Asia then appertained to the king of Persia . Philip 
-the father of Alexander possessed Macedon^ and the coasts of 
-Thrace, except the Chersonesus, and the cities of Perinthus and 
-Byzantium. The islands of Thasos and Halonesus were also 
-dependent on him, and almost all lUyricum was subjected to 
-him. Epirus was divided among several nations, the greater 
-part of which were free. One among others, that of the Mo- 
-
-
-
-Illjrricum, Colchiniutn, afterwards called simply Olchiniutn ; --- in Italy the cities of Posi- 
-donia, afterwards Peestum ; Diceearchia, afterwards Puteoli ; Anxur, afterwards Terra- 
-eina; Maleventum, afterwards Beneventum; Argyrippa, afterwards Arpi; and the 
-countries of lapygia and Tyrrhenia, afterwards named Apulia and Etruria, &c. &c. 
-
-* To these may be added Cerasus, on the Pontus EOxinus, Salapia in Italy, &c. &c. 
-
-f As Caulonia, in Italy, &c. 
-
-% The same may be observed bF the city of Phiiippopulis, in the interior of Thrace, 
-and several other cities on the coasts of Italy and Sicily, which had been recently 
-founded. 
-
-lossi, was governed by a king, who was considerably powerful ; 
-and the ally, but not the tributary of Philip. All the remain- 
-der was inhabited by free Greeks. Several islands, how- 
-ever, acknowledged the sovereignty of certain repubhcs ; as 
-the isles of Samos, Lemnos, Scyros, Imbros, and even the 
-Thracian Chersonesus, which was in some measure dependent 
-on the repubhc of Athens. As to that part of Asia which is 
-included in my map, it was divided into three satrapies, which 
-contained a number of petty tyrants established by the king 
-of Persia in the Greek cities.* 
-
-
-
-* My new General Majt of Greece and Ike Grecian Colonies is, in like manner, drawn 
-for the epoch of the battle of Cliieronea ; thai is to say, the year S38 before the ChrtUian 
-Ecra; but as its divisions differ in some parts from tliose of the old General Map, I ghall 
-here give Botne account oftheoi. 
-
-The whole of the continent of Aaia contained in it was under the dominion of the 
-king of Persia, and divided, as 1 have already said, into three satrapies. Philip, king of 
-Maccdon, possessed Macedonia, and all the coasts of Thrace, except the Chersonesus, 
-and the cities of Perinthus and Byzantium; tiie kings of the interior of Thrace were his 
-tributaries and vassals, as nere also those of Illyricum, to the south of the Drilo ; and he 
-had taken from the Athenians the islands of [mbros, Lemnos, Scyros, and Halonesiu. 
-The nations to the north of Maccdon, as the AutarJateSj the Scordisci, and the Triballi, 
-were free, though Philip had made war on them ; and the coasts of Illyricuoi, as well to 
-the north as the south of the Drilo, were still occupied by free Greeks. Epirus, as I 
-have said, was divided among several nations, the greater part of whom were free- 
-One ofthese, the Molossi, was governed by a very powerful king, and an ally of Philip, 
-On the coast was the city of Anibracia, inhabited by free Greeks. 
-
-Almost all the coasts of Italy were in like manner occupied by free Greeks ; which 
-caused the name of Magna Grxcia to be given to the southern part of that country ; 
-but this name is posterior to the time of the Travels of Anacharsis. The interior of 
-Italy was inhabited by nations for the most part of Celtic Oi igin. The Roman republic 
-was then very inconsiderable, and the countries of lapygia, Tyrrhenia, and Campania, 
-were peopled by nations of Grecian origin : but who, having settled there in very remote 
-times, were no longer considered as Greeks by the new colonies which had lately been 
-•ent thither from Greece. Sicily was entirely inhabited by Greeks ; but at the lime of 
-the battle of Cltsronea, one part of the island had been subjected by the Carthaginians, 
-
-My particular maps, on the contrary, have very different 
-dates. Each is designed for the very year in which Anacharsis 
-is supposed to have travelled through the country it represents. 
-Hence is it, that, in the map of Phocis, all the cities which were 
-destroyed after the social war are inserted as still in existence ; 
-and, in that of Arcadia, all the cities, the inhabitants of which 
-went to people MegalopoUs, are marked as destroyed. 
-
-
-
-Having thus given the observations which were prefixed to 
-the maps in the former editions, I shall now proceed to point 
-out the alterations which I have made in these maps in the 
-present edition, and enter into some particular remarks relative 
-to the plans. 
-
-Of these, the first is that of the battle of Marathon. This was 
-not in the former editions ; but it appeared to me too interest- 
-ing to be omitted in this. It is composed from the relations of 
-Spon and Wheler, and particularly the observations taken by 
-the latter traveller. I have profited also by some manuscript 
-maps of M. Fourmont, which are in the National Library, and 
-have availed myself of information to be found in Chandler's 
-Travels. The summit of Mount Pentelicus is laid down from 
-observations of its bearings taken by M. Foucherot at Athens, 
-Corinth, and- other places. 
-
-and the other was occupied by a number of small republics, many of which had their 
-particular tyrants. 
-
-I have indicated by one single colour the whole of Greece which was free at the time 
-of the battle of Chaeronea, as well the mother-cities as the colonies ; but I have only in- 
-cluded among the latter the cities founded afler the return of the Heraclids to Pelopon- 
-nesus. 
-
-
-for the particulars of the battle, I have had recourse to the 
-accounts given of it by Herodotus, Plutarch, Cornelius Nepos, 
-Justin, and even Valerius Maximus. Herodotus tells us"* that 
-the two armies were distant from each other eight (Pythian) 
-stadia, when they drew up in order of battle. The army of the 
-Persians consisted of a hundred thousand foot and ten thousand 
-horse, according to Cornelius Nepos :' other authors make it 
-more numerous,'" but it is probable that they comprise in it all 
-the troops which left Persia for this expedition, and particularly 
-those who, during the battle, guarded the prisoners of Eretn'a 
-and tlie other cities of Euba'a." The army of the Greeks was 
-composed of ten thousand Athenians, and one thousand Pla- 
-taeans," so that each Greek, as Cornelius Nepos observes,'' had 
-ten enemies to kill. 
-
-The army of the Persians, being more numerous, presented 
-a very wide front ; and the Greeks, according to the account of 
-Herodotus,'' that their flank might not be turned, wished to 
-present one equally extensive, and for that purpose weakened 
-their centre without diminishing their wings. These are the 
-dispositions which I have proposed to represent in a particular 
-table in this plan. The tribes of the Athenians were ranged 
-according to the same Herodotus,' each in its place, and with- 
-out intervals between them. It appears from the particulars of 
-the battle, that the tribe Aiantis occupied the right wing,' but 
-it is not easy to determine the stations of the other tribes. He- 
-rodotus tells us,' however, that tlie centre of the army of the 
-Persians broke that of the Athenians, because it was very 
-
-
-
-* Herodol. lib. 6. c. 1 12. ' Cornel. Nep. in Mlitiad. "■ Pgeudo-Plutaroh. Pardl, 
-t. il p. 305; Valer. Maxim, lib, 5. c. 3 ; Justin, lib. 2, c. 9. " Herodot. lib. 6. c. 107. 
-» Jmtin. Ub. 2. c. 9. r Cornel. Nep. ibid. i Herodot. lib. 6. c. 1 1 1. ' Id. ibid. 
-• Id. ibid. FlutarcU. Simpos. lib. i. quEes. 10. t. ii. p. 628. ' Herodot. ibid. c. 1 1 3. 
-
-weak ; and we know from Plutarch " that Themistocles and 
-Aristides, who commanded each his own tribe in this battle, 
-occupied the centre. Themistocles commanded the tribe 
-Leontis, and Aristides that of Antiochis.* These two tribes 
-must, therefore, have had their station in the centre of the 
-army. Nevertheless, if we fcJlow the order of the Athenian 
-tribes indicated by the marbles of Spon and Chandler,^ these 
-two tribes were not in the centre, but on the wings of the army. 
-I have, therefore, been obliged to disregard these marbles ; but 
-I have had the satisfaction of finding the true order of the tribes 
-of Athens, at the time of the battle of Marathon, in the marble 
-of Choiseul, which has been explained by Barthelemy.^ By 
-placing the tribe Aiantis on the right of the army, the tribes 
-Leontis and Antiochis, according to the place they occupy in 
-this marble, will naturally be placed in the centre : and it is 
-therefore, from this marble that I have taken the disposition of 
-all the tribes. 
-
-The army of the Greeks was drawn up in order of battle on 
-the declivity of a mountain, in a place which was covered with 
-trees, according to Cornelius Nepos,* because they feared the 
-cavalry. That of the Persians, on the contrary, was in the 
-plain ;^ but I do not suppose that it was arranged with any 
-great regularity, for the eastern nations usually fought without 
-much regard to order, as the Turks still do at present ; other- 
-wise it would be difficult to conceive that an army so numer- 
-ous should have been destroyed by that of the Greeks. I have 
-given it a square form only, that the front of it may be com- 
-
-
-
-" Plutarch, kk Aristid. t. i. p. S21. « Id. ibicL r Spon. Voyag. t. ii. p. 288, et seq. 
-Chandler Inscript. Antiq. p. 40. et 70. » Barthel. Dissert, sur une Inscript. Greque, 
-p. 6Sf et SUIT. * Cornel. Nep. in Miltiad. ^ Justin, lib. 2. c. 9. 
-
-pared with that of the Greeks. I have divided into two parts 
-the corps of cavalry which accompanied this army, to place it 
-on the two wings. 1 had wished to place tlie ships of the Per- 
-sians on the land, as was the practice at the time of the battle 
-of Marathon f but as I feared that what I intended to express 
-might not be understood, I have represented them at sea. 
-
-I have given a place in this plan to a mountain and a grotto 
-of Pan, the denominations of which are posterior to the time of 
-the battle of Marathon ; for it was only in consequence of the 
-succours which it was pretended tliat God aflbrded the Athe- 
-nians in this battle, that his worship was established in Attica ;'' 
-but as these places appear to have received these names a very 
-short time after the battle, and are besides relative to it, I con- 
-ceived I was at liberty to embellish my plan by their inser- 
-tion. 
-
-The second plan is that of the pass of Thermopylae. It is 
-designed from a particular plan taken on the spot by M. Fou- 
-cherot in 1781, and the coast Paralia is laid down from another 
-manuscript plan of M. Stuart, who arrived at Thermopylae on 
-this side. The ground in the environs is at present scarcely to 
-be recognised. The Sperchius no longer flows in the same 
-channel as formerly ; it now falls into the sea near Thermopyla:' 
-itself, after having received the waters of all the small riveis 
-which I have pointed out between its former channel and that 
-place. The marshes which existed in the time of Xerxes are at 
-present firm ground ; and the straits are much wider than they 
-were formerly. There, in fact, no longer exists any defile, ex- 
-cept on the bank of the Boagrius, in the environs of the spot 
-where I have placed the town of Thronium. 
-
-
-- Heroilot. lib. 6. cap. 107. 
-
-
-
-' Id. ibid. cap. lOj. 
-
-
-I have not marked any troops in this plan, because all the 
-battles being fought on the causeway in the defiles, it was im- 
-possible to point out the order. It is sufficient lo know that 
-Xerxes encainped with his whole army in the plain of Trachis,' 
-and the Greeks near the town of Anthela/ I have added In 
-this plan the tomb of Demaira, that of the-hero Phoenix, an 
-altar of Hercules, and other similar objects, because they ap- 
-peared to me interesting, with respect to the history of the 
-country. J have also opened a passage in the mountains at the 
-part where the river Dyras issues, because it seemed to me that 
-there was there a defile which gave an entrance into Pliocis. 
-In this pass, at the top of the mountain, was shown the pile of 
-Hercules, which was called Pyra,^ and it was said tliat the river 
-Dyras had burst out of the earth to succour the demi-god at 
-the moment he set fire to the pile.*" 
-
-'Vhe third plan is that of the battle of Salarais, which is laid 
-down from a plan taken by a trigonometrical survey on the 
-spot in 1781 by M. Foucherot. I have made very few alter- 
-ations in this new edition ; there will, however, be found in it 
-additional the borough or village of Thria, which gave its name 
-to the plain to the north of Eleusis ; and I have also added the 
-names of Ceos in Attica, and the promontory of Cynosura, or 
-the Tail of tlie Dog, in the isle of Salamis ; places between 
-which the battle was fought.' 1 have also placed on Cape 
-Cynosura a trophy which was not erected till after the battle, 
-but'of which the ruins still remain.'' In this plan the ci(y of 
-Athens occupies only a very small part of the ground it adter- 
-wtu-ds covered : but my object only was to represent tliat city 
-
-
-
-♦ Herodol. lib. vii. cap. 201 . ' Id. ibid. 
-
-
-tc.225. 
-
-
-t Liv. lib. 36. c. SO. " He- 
-
-
-rodot. lib. 7. c. 198. ' Id. lib. 8. c, 76. 
-
-
-"■ Stuart- 
-
-
-ADtiqtiitiei of Athent, vol. i 
-
-
-Preface, p- ix. 
-
-
-as it was at the time of that battle, and when it was burned by 
-the Persians. Thucydides tells us^ that it then comprehended 
-only the part to the south of the citadel Afterwards it was 
-much enlarged, and included the villages of Diomeia, Melite, 
-Colly tos, and others. At the same period the Piraeus was not 
-the port of Athens, but that of Phalerum was made use of,«» 
-and the long walls were not yet built. 
-
-For the particulars of the battle I have followed the ac- 
-counts of Herodotus, Diodorus Siculus, Plutarch, and ^schy- 
-lus, who was present and distinguished himself in it. The fleet 
-of the Greeks consisted of three hundred and eighty ships," and 
-that of the Persians of twelve hundred and seven.^ The latter 
-began the action by sending a part of their ships to take pos- 
-session of the strait that separates the isle of Salamis from 
-Megaris, to prevent the Greeks from escaping on that side ;^ 
-and it is probable that, with the same intention, they distributed 
-other ships round the island : on which account I have repre- 
-sented several in different places. In the mean time the rest of 
-the Persian fleet attacked the Greeks in the strait which sepa- 
-rates Attica from Salamis ."^ This fleet at first proceeded with 
-much order, and was ranged in several lines / but when the 
-ships of the Greeks met its attack, those of the Persians ran 
-foul of each other ; confusion ensued ; the fleet was defeated, 
-and part of it sunk." 
-
-The two fleets occupy, perhaps, more space in my plan than 
-they did in the sea where they fought ; but the smallness of the 
-scale has obliged me to represent the ships much larger than 
-
-» Thucyd. lib. 2. c. 15. ™ Pausan. lib. 1. c. 1. p. 3. ° Herodot. lib. 8. c. 82. Plu- 
-tarch, in Themist. t. i. p. 1 19. ^ Herodot. lib. 7* c. 184; et lib. 8. c. 66» ^chyl. ap. 
-Plutarch, ibid, p Died. Sic. lib. 11. p. 14. Herodot. lib. 8. c. 76. Diod. Sic. lib. 
-11. c. 14. ' ^schyl. in Pers. v. 366. Diod. ibid, et p. 15. * • Herodot. ibid, c 86. 
-
-
-they were, and consequently to extend the fleets considerably 
-more. I am of opinion that the fleet of the Greeks was drawn 
-up in two or three lines at most. I have dispersed several 
-small bodies of Grecian troops in the isle of Salamis, because 
-the coasts of that island were guarded by heavy-armed soldiers.^ 
-The throne of Xerxes was on Mount JEgaleus ; and I have 
-placed near that prince a great part of his army ; because it 
-appears that he had great numbers round him,^ since, in fact, 
-otherwise he would have been exposed to the insults of the 
-Greeks. I have also placed some troops near Eleusis^ and 
-others on the road, because in the night before the battle they 
-had received orders to march towards Peloponnesus."^ 
-
-The fourth plan is that of the battle of Plataea. Though I 
-have obtained no additional notices with respect to the country 
-represented in this plan, it is yet very different from that given 
-in the former editions of the Travels of Anacharsib. This plan 
-is so laid down, that it may be adjusted to the map of Boeotia, 
-of which it is in some measure an expansion ; and the ground 
-on which the different actions took place is much more con- 
-tracted, in consequence of a more careful examination of the 
-measures of Herodotus. I have already shown in the former 
-part of these observations, that the measures which Herodotus 
-gives of the environs of Thermopylae are all in Pythian stadia, 
-or such as are shorter by one-fifth than Olympian stadia. I 
-might by new applications confirm this evaluation of the stadia 
-of Herodotus ; but that author has himself afforded us the 
-means of verifying his stadium. He tells us, in several places,^ 
-that thirty stadia make a Persian parasang ; and as Xenophon 
-
-
-
-t Herodot. lib. 8. c. 95. " Id. ibid. cap. 90. » Id. ibid. cap. 71. y Id. lib. 2. 
-c. 6 ; lib. 5. c. 53 ; lib. 6. c. 42. 
-
-
-assigns the same number of stadia for the length of the para- 
-sang,' it follows that these two authors made use of the same 
-kind of stadium. But M. d'Anville, comparing a part of the 
-march of Cyrus the Younger with the Roman itineraries, finds 
-that the parasang corresponds to three Roman miles exactly.' 
-AVe have therefore ten stadia for a Roman mile, and con- 
-sequently these stadia are shorter by one-fifth than the Olym- 
-pian stadia, of which eight only are contained in that mile. 
-
-In my first plan of the battle of Piatjca I had taken the 
-measures of Herodotus according to the Olympian stadium ; 
-but in this new edition I have taken them in proportion to the 
-Pythian, in consequence of which the field of battle is found 
-much more contracted, and the camp of Mardonius much less 
-extensive ;'' which renders several of the facts more probable. 
-
-With respect to the circumstances of the battle, I have 
-studied them, as I have said, with IVl. de la Luzerne, and his 
-advice has been of great utiHty to me. In order to render this 
-plan as interesting as possible, I have traced in it the three 
-principal positions which the Greeks occupied successively in 
-tliis battle. I shall not attempt to describe all the movements 
-of the two armies : they will be read with much more satisfac- 
-tion in the work which the plan is intended to illustrate. It 
-wiil be sufficient to say, that in the first position, near Erythra.', 
-the Megareans being attacked particularly bj' the cavalry of 
-Mardonius,' it is probable that they were more exposed than the 
-other Greeks, and that they encamped in the plain, on the 
-right wing. In the second position, the army of the Greeks 
-was so disposed that one part was on the hills, and the other in 
-
-
-
-» Xenoph. Exped. Cyr. lib. 2. c. 2. ' D'Anville, Traitf des Me». Iiin. p. 78 et 79. 
-!> Herodot. lib. 9. c. 15. Plutarch in Arlitid. t. i. p. 325. " Herodot. ibid. c. 19.et2l. 
-Plutarch, ibid. 
-
-the plain. The right wing was supported by the fountain of 
-Gargaphia, and the left covered by a monument, around which 
-was a small wood.'' Herodotus likewise observes that this left 
-wing was nearer the Asopus than the fountain of Gargaphia ; 
-but that the Greeks could not go thither to draw water, be- 
-cause the troops of Mardonius, which were on the other side of 
-the river, prevented them.' In the third position the Greeks 
-were divided into three bodies ; those in the centre of the 
-allied army took their station near the temple of the Citha^ro- 
-nian Juno, under the walls of Plata-a ;' the Lacedaemonians 
-with the Tegeatae, who had not quitted them, were posted 
-only ten stadia from the fountain of Gargaphia,^ when they 
-engaged the Persians; and the Athenians, informed of the 
-danger to which the Lacediemonians were exposed, were re- 
-turning to afford them aid,'' when they found themselves com- 
-pelled to give battle to the Greeks who were the allies of 
-Mardonius. With respect to the numbers of the combatants 
-in the two armies, the reader will consult the work itself of 
-Anacharsis. 
-
-The position which the Lacedtemonians took when they 
-engaged the Persians merits observation. It appears that they 
-placed in their rear a very deep ravine ;' but in which, perhaps, 
-there was no water. This position, however, would be consi- 
-dered as very disadvantageous in our present tactics. But 
-M. de hi Lucerne made me observe that the Greeks took one 
-similar at the battle of Cunaxa, where, having to oppose a 
-great part of the united forces of Artaxerxes, they placed the 
-Kuphrates in their rear.^ Perhaps the Greeks, in employing 
-
-
-■■ Herodoi. lib. 9. cap. 95. PluUrch. in Arisiid. t, i, p. 325. ■ Herodot. ibid. c. 48. 
-'Id. ibid. c. 51. Plutarch, io Aristid. t. i. p. SS8. < Herodot. iUid. c. BS.et 66. " Id. 
-ibid. c. 60. ' Id. ibid. c. 56. ^ Xenoph. Exped. Cyr. lib. 1. c. 10. 
-
-this manoeun'e, had in view to cover their rear, which was 
-without defence, at the same time that they deprived them- 
-selves of all means of flight. In this battle, Herodotus re- 
-marks^ that the barbarians of. the army of M ardonius ; that is 
-to say, the Sacae, the Indians, and the Bactrians, threw them- 
-selves on the Greeks confusedly, and without keeping their 
-ranks, and that the Persians did the same towards the end of 
-the action ; which confirms what I have said on that subject, in 
-ihy remarks on the battle of Marathon. For the moment when 
-the battle was joined, I have placed, somewhat in the rear, the 
-corps of forty thousand men which Artabazus commanded, 
-and which \vas that of the Medes ; because it^id not fight, 
-and Avas the only one that escaped from the battle."* I have 
-also placed the cavalry of Mardonius on a height, as if to pro- 
-tect the flight of the Persians." 
-
-M. Fauvel, in a letter dated the 14th of Ventose, sixth year, 
-(March 6, 1798,) has pointed out to me some particulars rela- 
-tive to the environs of Plataea, which appear to differ a little 
-frMn those in my plan; but as he did not accompany them 
-with any drawing, it was impossible for me to make use of 
-them. 
-
-After the four plans of battles, which are all designed for 
-the time when those battles were fought, follows the chart of 
-the Palus Meeotis and Pontus Euxinus, which is the first of the 
-particular maps. This chart is entirely re-^drawn for this new 
-edition ; it was before very defective, because it was the first 
-map that' I drew for this work, and because I compiled it at 
-rather an early age ; it, however, had the advantage of being 
-laid down in part from the maps of M. d'Anville. 
-
-1 Herodot. lib. 9. c 58 et 61. >" Id. Ibid. c. 65. " Id. ibid. c. 67. 
-
-
-The projection of this new chart is the same with that of the 
-general maps. The diminution of the degrees of longitude is 
-taken from the table of Schulze," the intervals of the meridians 
-have been calculated and traced by the tangents of the parallels 
-42 and 46, and the curvature of these same parallels deduced 
-for each meridian from the difference of the secant and the ra- 
-dius. 'I'lie northern part of this chart, from the Cerceta' in Asia, 
-to Istropolis in Europe, has been laid down from a large map 
-of the theatre of the war between the Russians, the Anstrians, 
-and the Turks, published in the Russian language at St. 
-Petersburg in 1788, and which, for (he parts of the Russian 
-empire, is itself only reduced from the last Russian atlas pub- 
-lished in the Russian language, by the academy of St. Peters- 
-burg. Almost all the longitudes and latitudes assigned by this 
-Russian atlas to dirterent places in the empire of Russia agree 
-with those given in the Co/inoissance des Temps, (or the year 1789 
-and following years. The southern part, from the Bosporus 
-of Thrace to Trebizond, is laid down from a manuscript map 
-of M. Beauchamp, which M. Lalande has had the goodness to 
-communicate to me. The gulf of ApoUonia, on the coast of 
-Thrace, is, in like manner, drawn from a large plan of that 
-gulf, taken, in 178G, by M. Duverne, an officer in the French 
-navy, who observed the latitude (here to be 42° 22'. Several 
-other points, on the same coast, are likewise determined, with 
-respect to latitude, from the observations of a Russian pilot, 
-which were communicated to me by M. Dehauterive ; and the 
-eastern coast, from Trebizond to the Cercetse, is adjusted to 
-distances taken from ancient periplii, regulated by the longi- 
-tude of Fort Mosdok, in Caucasia, of which I have before 
-
-made use in a map of the country between the Black and the 
-Caspian seas/ 
+*) The observation of Father Feuillée at Smyrna is found likewise in the _Connoissance des Temps_ for 1738 and 1789, where the position of that city is given in 33° 28′ 7′′ lat. N. and 24° 59′ 45′′ lon. E. of the meridian of Paris; and it is according to this determination that I have adjusted the large manuscript chart of the Archipelago above mentioned to my General Map of Greece and the Grecian Islands. But in the _Connoissance des Temps_ for 1792 and the following years, the longitude of this city is corrected, from new observations by MM. Tondu and Truguet, and stated to be 24° 46′ 33′′ E. from the meridian of Paris; and it is according to this determination, and some other authorities, of which I shall speak in the continuation of these remarks, that I have corrected the chart of the Archipelago in question, and adjusted it to my new _General Map of Greece and the Grecian Colonies_.
+
+On the coast of Asia, the Hermæan Gulf, now the Gulf of Smyrna, has been laid down from a manuscript chart, taken by the same M. le Roi; and the bottom of that of Cyme is ascertained by the position of Phocæ. This city was a little less than two hundred stadia distant from Smyrna, according to Strabo.* We are not, however, to suppose that the city of Smyrna found in my map, is the same with that from which Strabo takes this distance. The latter was not built till some time after the date of the Travels of Anacharsis: it was twenty stadia from the ancient city,* and is that which is at present so flourishing. The rest of the coast to Lycia* is taken from the charts of the Count de Choiseul-Gouffier, which have been likewise compared with the distances given by ancient authors.
+
+*) Voyag. Pittor. de la Grèce.
+
+*) M. le Roi took an observation of the latitude in the most southern part of the island of Santorin, and determined it to be 36° 29′ N. But this observation could not be accurate; for M. Chabert, by observations taken in the most elevated part of the island, ascertained the latitude of that part to be 36° 22′: and this is the position I have assigned to it in my new _Map of Greece and the Grecian Colonies_. I have not, in writing, the latitude which M. d'Anville says (Anal. des Côtes de la Grèce, p. 55) to have been observed by the same M. le Roi at Port Livorno, in the island of Stanpalia, or Astypalæa, in the Archipelago; but a manuscript plan, drawn by M. le Roi, and including both the islands of Santorin and Stanpalia, naturally gave it [to] me.
+
+Throughout almost the whole of Asia Minor, the rivers bring down an immense quantity of slime and mud, and form accumulations of earth at their mouths. The Scamander in Troas, the Caicus near Pergamus, the Hermus near Smyrna, and the Cayster, which flows by Ephesus, have enlarged the country they traverse; but no where is there a more remarkable instance of this than in the environs of Miletus. The Mæander has heaped up so much sand, that a deep bay, situate between the city and the river, is now only a lake; and the islands Lade and Asterius, at the entrance of that bay, are become eminences in the plain.*
+
+Near Miletus is the promontory of Trogilium, from which Strabo reckons sixteen hundred stadia to Sunium in Attica.* In a right line, on my map, it is about fourteen hundred and eighty.*
+
+*) Strab. lib. 14. p. 663.
+
+*) Id. ibid. p. 646.
+
+*) The coasts of Caria and Lycia, as well as the island of Rhodes, are designed in my new _General Map of Greece and the Grecian Colonies_, from a chart very carefully drawn by a French Pilot; of which I shall have occasion to speak in the continuation of these Observations.
+
+*) I have drawn a small map of the accumulations of the Mæander, inserted in the _Voyage Pittoresque de la Grèce_, of M. de Choiseul-Gouffier (Pl. 3.); and I have since published a memoir in support of this map in the _Magazin Encyclopedique_, (2e année, tome 4. p. 74, et suiv.)
+
+Rhodes is placed in the latitude observed by M. de Chazelles,* which is 36° 28′ 30′′ N.* and the figure which I have given to the island is taken from an ancient map* corrected by the measures of Strabo, and other authors. The latitude of the little island of Casos is taken from the chart of the Archipelago designed for the _Depôt de la Marine_, in 1738; in which this island is laid down according to observation. The island of Crete is copied from the general map of the island of Candia, given by Boschini,* for want of a better. This map has been adjusted to the observations of longitude and latitude made by Father Feuillée at Candia and Canea,* * as well as to the distances given by ancient and modern authors. I have, however, been obliged to lay down the whole eastern part of the island more to the north.* The promontory of Samonium, according to Pliny,* was distant only sixty Roman miles, or four hundred and eighty Olympian stadia, from the island Carpathos: and the promontory Cadiscus seventy-five miles, or six hundred stadia, from Malea, in Peloponnesus.
+
+*) Strab. lib. 14. p. 636.
+
+*) In my new _General Map of Greece and the Grecian Colonies_ this distance is somewhat less, which arises from the new position assigned to the promontory of Trogilium, or Cape Santa Maria.
+
+*) Mem. del. l'Acad. des Sciences, ann. 1761, p. 167.
+
+*) This latitude is too great by about two minutes; for the Ephemerides of Desplaces make it, after M. de Chazelles, and apparently by another calculation, only 36° 26′; which is confirmed by the observation of M. Niebuhr, and by that of M. Chabert, as I shall observe in the continuation of these remarks.
+
+*) This map is very inaccurate; but in my new General Map the figure of this island is given after a very circumstantial chart drawn by a French pilot.
+
+*) Boschini, Il Regno Tutto di Candia: Venet. 1651, in fol.
+
+*) Mem. de l'Acad. des Sciences, ann. 1702, p. 10, 11.
+
+*) These observations have undergone alteration in my new General Map, at least those made at Canea, as will be observed hereafter.
+
+*) This eastern part is likewise laid down more to the north in my new General Map: in which I have been guided by an observation of latitude taken to the south of that part.
+
+Nothing now remains but to mention some particulars which have not yet been noticed in the course of these observations, and which yet are essential to be known.
+
+These maps are designed for the period when Greece was free. I have made it a rule not to insert in them places, the foundation or existence of which was posterior to the battle of Chæronea. Some, however, will be found which are only mentioned in more modern authors; but they existed long before, at least the time when they were founded is unknown. I have inserted under their ancient names cities which did not become celebrated until some time after, when they received new names.* Such are Olbia and Ancora in Bithynia, which were afterwards called Nicomedia and Nicæa; Sigeum in Troas, which was soon afterwards named Alexandria Troas; Idrias in Caria, which was named Stratonicea; and Therma, and Potidæa, in Macedonia, which took the names of Thessalonica and Cassandria, etc. etc.*
+
+*) Plin. lib. 4. c. 12. t. 1. p. 210.
+
+*) I have observed the same rule to my new _General Map of Greece and the Grecian Colonies_.
+
+*) To these may be added Sesamus, in the _Chart of the Palus Mœotis and Pontus Euxinus_, which was afterwards called Amastris; in _the Map of Ætolia_, Conope, afterwards called Arsinoë; in that of _the Coasts of Asia Minor_, Hiero-Come in Lydia, afterwards called Hiero-Cæsarea; Athymbra near the Mæander, afterwards called Nysa; and Bolbia and Latmos, both renamed Heraclea. In like manner, in my new _General Map of Greece and the Grecian Colonies_, in Asia are the cities of Pelopia, Pythopolis, Diospolis on the Mæander, Celænæ, and Megalopolis; which were afterwards named Thyatira, Antioch on the Mæander, Laodicea on the Mæander, Apamea on the Mæander, and Aphrodisias;--- in Thrace, the city of Orestias, afterwards called Hadrianopolis;--- in Illyricum, Colchinium, afterwards called simply Olchinium;--- in Italy the cities of Posidonia, afterwards Pæstum; Dicæarchia, afterwards Puteoli; Anxur, afterwards Terracina; Maleventum, afterwards Beneventum; Argyrippa, afterwards Arpi; and the countries of Iapygia and Tyrrhenia, afterwards named Apulia and Etruria, etc. etc.
+
+Other cities changed their situation without changing their names. Among these the principal are Salamis, in the island of the same name, on the coast of Attica; Sicyon, Orchomenus, and Hermione, in Peloponnesus; Pharsalos, in Thessaly; and Smyrna and Ephesus, in Ionia.* All these cities are placed in their ancient site in my maps. Cyzicus in the Propontis, and Clazomenæ in Ionia, are only islands, because they were not joined to the continent till some time after. Lastly, Olynthus in Macedonia, and some other cities,* are marked as destroyed because, since they had made a conspicuous figure in the history of Greece, it was proper to point out their position. The city of Philippi, on the confines of Macedonia and Thrace, had just received that name.*
+
+The divisions of countries are traced on the General Map for the æra of the battle of Chæronea, which was fought on the 3d of August of the year 338 before Christ. The whole continent of Asia then appertained to the king of Persia. Philip the father of Alexander possessed Macedon, and the coasts of Thrace, except the Chersonesus, and the cities of Perinthus and Byzantium. The islands of Thasos and Halonesus were also dependent on him, and almost all Illyricum was subjected to him. Epirus was divided among several nations, the greater part of which were free. One among others, that of the Molossi, was governed by a king, who was considerably powerful; and the ally, but not the tributary of Philip. All the remainder was inhabited by free Greeks. Several islands, however, acknowledged the sovereignty of certain republics; as the isles of Samos, Lemnos, Scyros, Imbros, and even the Thracian Chersonesus, which was in some measure dependent on the republic of Athens. As to that part of Asia which is included in my map, it was divided into three satrapies, which contained a number of petty tyrants established by the king of Persia in the Greek cities.*
+
+*) To these may be added Cerasus, on the Pontus Euxinus, Salapia in Italy, etc. etc.
+
+*) As Caulonia, in Italy, etc.
+
+*) The same may be observed of the city of Philippopolis, in the interior of Thrace, and several other cities on the coasts of Italy and Sicily, which had been recently founded.
+
+*) My new _General Map of Greece and the Grecian Colonies_ is, in like manner, drawn for the epoch of the battle of Chæronea; that is to say, the year 338 before the Christian æra; but as its divisions differ in some parts from those of the old General Map, I shall here give some account of them.  
+The whole of the continent of Asia contained in it was under the dominion of the king of Persia, and divided, as I have already said, into three satrapies. Philip, king of Macedon, possessed Macedonia, and all the coasts of Thrace, except the Chersonesus, and the cities of Perinthus and Byzantium; the kings of the interior of Thrace were his tributaries and vassals, as were also those of Illyricum, to the south of the Drilo; and he had taken from the Athenians the islands of Imbros, Lemnos, Scyros, and Halonesus. The nations to the north of Macedon, as the Autariates, the Scordisci, and the Triballi, were free, though Philip had made war on them; and the coasts of Illyricum, as well to the north as the south of the Drilo, were still occupied by free Greeks. Epirus, as I have said, was divided among several nations, the greater part of whom were free. One of these, the Molossi, was governed by a very powerful king, and an ally of Philip. On the coast was the city of Ambracia, inhabited by free Greeks.  
+Almost all the coasts of Italy were in like manner occupied by free Greeks; which caused the name of Magna Græcia to be given to the southern part of that country: but this name is posterior to the time of the Travels of Anacharsis. The interior of Italy was inhabited by nations for the most part of Celtic Origin. The Roman republic was then very inconsiderable, and the countries of Iapygia, Tyrrhenia, and Campania, were peopled by nations of Grecian origin: but who, having settled there in very remote times, were no longer considered as Greeks by the new colonies which had lately been sent thither from Greece. Sicily was entirely inhabited by Greeks; but at the time of the battle of Chæronea, one part of the island had been subjected by the Carthaginians, and the other was occupied by a number of small republics, many of which had their particular tyrants.  
+I have indicated by one single colour the whole of Greece which was free at the time of the battle of Chæronea, as well the mother-cities as the colonies; but I have only included among the latter the cities founded after the return of the Heraclidæ to Peloponnesus.
+
+My particular maps, on the contrary, have very different dates. Each is designed for the very year in which Anacharsis is supposed to have travelled through the country it represents. Hence is it, that, in the map of Phocis, all the cities which were destroyed after the social war are inserted as still in existence; and, in that of Arcadia, all the cities, the inhabitants of which went to people Megalopolis, are marked as destroyed.
+
+---
+
+Having thus given the observations which were prefixed to the maps in the former editions, I shall now proceed to point out the alterations which I have made in these maps in the present edition, and enter into some particular remarks relative to the plans.
+
+Of these, the first is that of the battle of Marathon. This was not in the former editions; but it appeared to me too interesting to be omitted in this. It is composed from the relations of Spon and Wheler, and particularly the observations taken by the latter traveller. I have profited also by some manuscript maps of M. Fourmont, which are in the National Library, and have availed myself of information to be found in Chandler's Travels. The summit of Mount Pentelicus is laid down from observations of its bearings taken by M. Foucherot at Athens, Corinth, and other places.
+
+For the particulars of the battle, I have had recourse to the accounts given of it by Herodotus, Plutarch, Cornelius Nepos, Justin, and even Valerius Maximus. Herodotus tells us* that the two armies were distant from each other eight (Pythian) stadia, when they drew up in order of battle. The army of the Persians consisted of a hundred thousand foot and ten thousand horse, according to Cornelius Nepos:* other authors make it more numerous,* but it is probable that they comprise in it all the troops which left Persia for this expedition, and particularly those who, during the battle, guarded the prisoners of Eretria and the other cities of Eubœa.* The army of the Greeks was composed of ten thousand Athenians, and one thousand Platæans,* so that each Greek, as Cornelius Nepos observes,* had ten enemies to kill.
+
+The army of the Persians, being more numerous, presented a very wide front; and the Greeks, according to the account of Herodotus,* that their flank might not be turned, wished to present one equally extensive, and for that purpose weakened their centre without diminishing their wings. These are the dispositions which I have proposed to represent in a particular table in this plan. The tribes of the Athenians were ranged according to the same Herodotus,* each in its place, and without intervals between them. It appears from the particulars of the battle, that the tribe Aïantis occupied the right wing,* but it is not easy to determine the stations of the other tribes. Herodotus tells us,* however, that the centre of the army of the Persians broke that of the Athenians, because it was very weak; and we know from Plutarch* that Themistocles and Aristides, who commanded each his own tribe in this battle, occupied the centre. Themistocles commanded the tribe Leontis, and Aristides that of Antiochis.* These two tribes must, therefore, have had their station in the centre of the army. Nevertheless, if we follow the order of the Athenian tribes indicated by the marbles of Spon and Chandler,* these two tribes were not in the centre, but on the wings of the army. I have, therefore, been obliged to disregard these marbles; but I have had the satisfaction of finding the true order of the tribes of Athens, at the time of the battle of Marathon, in the marble of Choiseul, which has been explained by Barthelemy.* By placing the tribe Aïantis on the right of the army, the tribes Leontis and Antiochis, according to the place they occupy in this marble, will naturally be placed in the centre: and it is, therefore, from this marble that I have taken the disposition of all the tribes.
+
+*) Herodot. lib. 6. c. 112.
+
+*) Cornel. Nep. in Miltiad.
+
+*) Pseudo-Plutarch. Parall. t. 2. p. 305; Valer. Maxim. lib. 5. c. 3; Justin. lib. 2. c. 9.
+
+*) Herodot. lib. 6. c. 107.
+
+*) Justin. lib. 2. c. 9.
+
+*) Cornel. Nep. ibid.
+
+*) Herodot. lib. 6. c. 111.
+
+*) Id. ibid.
+
+*) Id. ibid.
+
+*) Plutarch. Simpos. lib. 1. quæs. 10. t. 2. p. 628.
+
+*) Herodot. ibid. c. 113.
+
+The army of the Greeks was drawn up in order of battle on the declivity of a mountain, in a place which was covered with trees, according to Cornelius Nepos,* because they feared the cavalry. That of the Persians, on the contrary, was in the plain;* but I do not suppose that it was arranged with any great regularity, for the eastern nations usually fought without much regard to order, as the Turks still do at present; otherwise it would be difficult to conceive that an army so numerous should have been destroyed by that of the Greeks. I have given it a square form only, that the front of it may be compared with that of the Greeks. I have divided into two parts the corps of cavalry which accompanied this army, to place it on the two wings. I had wished to place the ships of the Persians on the land, as was the practice at the time of the battle of Marathon;* but as I feared that what I intended to express might not be understood, I have represented them at sea.
+
+*) Plutarch, in Aristid. t. 1. p. 321.
+
+*) Id. ibid.
+
+*) Spon. Voyag. t. 2. p. 288, et seq. Chandler Inscript. Antiq. p. 40. et 70.
+
+*) Barthel. Dissert. sur une Inscript. Greque, p. 68, et suiv.
+
+*) Cornel. Nep. in Miltiad.
+
+*) Justin. lib. 2. c. 9.
+
+I have given a place in this plan to a mountain and a grotto of Pan, the denominations of which are posterior to the time of the battle of Marathon; for it was only in consequence of the succours which it was pretended that God afforded the Athenians in this battle, that his worship was established in Attica;* but as these places appear to have received these names a very short time after the battle, and are besides relative to it, I conceived I was at liberty to embellish my plan by their insertion.
+
+The second plan is that of the pass of Thermopylæ. It is designed from a particular plan taken on the spot by M. Foucherot in 1781, and the coast Paralia is laid down from another manuscript plan of M. Stuart, who arrived at Thermopylæ on this side. The ground in the environs is at present scarcely to be recognised. The Sperchius no longer flows in the same channel as formerly; it now falls into the sea near Thermopylæ itself, after having received the waters of all the small rivers which I have pointed out between its former channel and that place. The marshes which existed in the time of Xerxes are at present firm ground; and the straits are much wider than they were formerly. There, in fact, no longer exists any defile, except on the bank of the Boagrius, in the environs of the spot where I have placed the town of Thronium.
+
+*) Herodot. lib. 6. cap. 107.
+
+*) Id. ibid. cap. 105.
+
+I have not marked any troops in this plan, because all the battles being fought on the causeway in the defiles, it was impossible to point out the order. It is sufficient to know that Xerxes encamped with his whole army in the plain of Trachis,* and the Greeks near the town of Anthela.* I have added in this plan the tomb of Deïnaira, that of the hero Phœnix, an altar of Hercules, and other similar objects, because they appeared to me interesting, with respect to the history of the country. I have also opened a passage in the mountains at the part where the river Dyras issues, because it seemed to me that there was there a defile which gave an entrance into Phocis. In this pass, at the top of the mountain, was shown the pile of Hercules, which was called Pyra,* and it was said that the river Dyras had burst out of the earth to succour the demi-god at the moment he set fire to the pile.*
+
+The third plan is that of the battle of Salamis, which is laid down from a plan taken by a trigonometrical survey on the spot in 1781 by M. Foucherot. I have made very few alterations in this new edition; there will, however, be found in it additional the borough or village of Thria, which gave its name to the plain to the north of Eleusis; and I have also added the names of Ceos in Attica, and the promontory of Cynosura, or the Tail of the Dog, in the isle of Salamis; places between which the battle was fought.* I have also placed on Cape Cynosura a trophy which was not erected till after the battle, but of which the ruins still remain.* In this plan the city of Athens occupies only a very small part of the ground it afterwards covered: but my object only was to represent that city as it was at the time of that battle, and when it was burned by the Persians. Thucydides tells us* that it then comprehended only the part to the south of the citadel. Afterwards it was much enlarged, and included the villages of Diomeïa, Melite, Collytos, and others. At the same period the Piræus was not the port of Athens, but that of Phalerum was made use of,* and the long walls were not yet built.
+
+*) Herodot. lib. 7. cap. 201.
+
+*) Id. ibid. et c. 225.
+
+*) Liv. lib. 36. c. 30.
+
+*) Herodot. lib. 7. c. 198.
+
+*) Id. lib. 8. c. 76.
+
+*) Stuart's Antiquities of Athens, vol. 1. Preface, p. 9.
+
+For the particulars of the battle I have followed the accounts of Herodotus, Diodorus Siculus, Plutarch, and Æschylus, who was present and distinguished himself in it. The fleet of the Greeks consisted of three hundred and eighty ships,* and that of the Persians of twelve hundred and seven.* The latter began the action by sending a part of their ships to take possession of the strait that separates the isle of Salamis from Megaris, to prevent the Greeks from escaping on that side;* and it is probable that, with the same intention, they distributed other ships round the island: on which account I have represented several in different places. In the mean time the rest of the Persian fleet attacked the Greeks in the strait which separates Attica from Salamis.* This fleet at first proceeded with much order, and was ranged in several lines:* but when the ships of the Greeks met its attack, those of the Persians ran foul of each other; confusion ensued; the fleet was defeated, and part of it sunk.*
+
+The two fleets occupy, perhaps, more space in my plan than they did in the sea where they fought; but the smallness of the scale has obliged me to represent the ships much larger than they were, and consequently to extend the fleets considerably more. I am of opinion that the fleet of the Greeks was drawn up in two or three lines at most. I have dispersed several small bodies of Grecian troops in the isle of Salamis, because the coasts of that island were guarded by heavy-armed soldiers.* The throne of Xerxes was on Mount Ægaleus; and I have placed near that prince a great part of his army; because it appears that he had great numbers round him,* since, in fact, otherwise he would have been exposed to the insults of the Greeks. I have also placed some troops near Eleusis, and others on the road, because in the night before the battle they had received orders to march towards Peloponnesus.*
+
+*) Thucyd. lib. 2. c. 15.
+
+*) Pausan. lib. 1. c. 1. p. 3.
+
+*) Herodot. lib. 8. c. 82. Plutarch. in Themist. t. 1. p. 119.
+
+*) Herodot. lib. 7. c. 184; et lib. 8. c. 66. Æschyl. ap. Plutarch. ibid.
+
+*) Diod. Sic. lib. 11. p. 14.
+
+*) Herodot. lib. 8. c. 76. Diod. Sic. lib. 11. c. 14.
+
+*) Æschyl. in Pers. v. 366. Diod. ibid. et p. 15.
+
+*) Herodot. ibid. c. 86.
+
+The fourth plan is that of the battle of Platæa. Though I have obtained no additional notices with respect to the country represented in this plan, it is yet very different from that given in the former editions of the Travels of Anacharsis. This plan is so laid down, that it may be adjusted to the map of Bœotia, of which it is in some measure an expansion; and the ground on which the different actions took place is much more contracted, in consequence of a more careful examination of the measures of Herodotus. I have already shown in the former part of these observations, that the measures which Herodotus gives of the environs of Thermopylæ are all in Pythian stadia, or such as are shorter by one-fifth than Olympian stadia. I might by new applications confirm this evaluation of the stadia of Herodotus; but that author has himself afforded us the means of verifying his stadium. He tells us, in several places,* that thirty stadia make a Persian parasang; and as Xenophon assigns the same number of stadia for the length of the parasang,* it follows that these two authors made use of the same kind of stadium. But M. d'Anville, comparing a part of the march of Cyrus the Younger with the Roman itineraries, finds that the parasang corresponds to three Roman miles exactly.* We have therefore ten stadia for a Roman mile, and consequently these stadia are shorter by one-fifth than the Olympian stadia, of which eight only are contained in that mile.
+
+*) Herodot. lib. 8. c. 95.
+
+*) Id. ibid. cap. 90.
+
+*) Id. ibid. cap. 71.
+
+*) Id. lib. 2. c. 6; lib. 5. c. 53; lib. 6. c. 42.
+
+In my first plan of the battle of Platæa I had taken the measures of Herodotus according to the Olympian stadium; but in this new edition I have taken them in proportion to the Pythian, in consequence of which the field of battle is found much more contracted, and the camp of Mardonius much less extensive;* which renders several of the facts more probable.
+
+With respect to the circumstances of the battle, I have studied them, as I have said, with M. de la Luzerne, and his advice has been of great utility to me. In order to render this plan as interesting as possible, I have traced in it the three principal positions which the Greeks occupied successively in this battle. I shall not attempt to describe all the movements of the two armies: they will be read with much more satisfaction in the work which the plan is intended to illustrate. It will be sufficient to say, that in the first position, near Erythræ, the Megareans being attacked particularly by the cavalry of Mardonius,* it is probable that they were more exposed than the other Greeks, and that they encamped in the plain, on the right wing. In the second position, the army of the Greeks was so disposed that one part was on the hills, and the other in the plain. The right wing was supported by the fountain of Gargaphia, and the left covered by a monument, around which was a small wood.* Herodotus likewise observes that this left wing was nearer the Asopus than the fountain of Gargaphia; but that the Greeks could not go thither to draw water, because the troops of Mardonius, which were on the other side of the river, prevented them.* In the third position the Greeks were divided into three bodies; those in the centre of the allied army took their station near the temple of the Cithæronian Juno, under the walls of Platæa;* the Lacedæmonians with the Tegeatæ, who had not quitted them, were posted only ten stadia from the fountain of Gargaphia,* when they engaged the Persians; and the Athenians, informed of the danger to which the Lacedæmonians were exposed, were returning to afford them aid,* when they found themselves compelled to give battle to the Greeks who were the allies of Mardonius. With respect to the numbers of the combatants in the two armies, the reader will consult the work itself of Anacharsis.
+
+*) Xenoph. Exped. Cyr. lib. 2. c. 2.
+
+*) D'Anville, Traité des Mes. Itin. p. 78 et 79.
+
+*) Herodot. lib. 9. c. 15. Plutarch. in Aristid. t. 1. p. 325.
+
+*) Herodot. ibid. c. 19. et 21. Plutarch. ibid.
+
+The position which the Lacedæmonians took when they engaged the Persians merits observation. It appears that they placed in their rear a very deep ravine;* but in which, perhaps, there was no water. This position, however, would be considered as very disadvantageous in our present tactics. But M. de la Luzerne made me observe that the Greeks took one similar at the battle of Cunaxa, where, having to oppose a great part of the united forces of Artaxerxes, they placed the Euphrates in their rear.* Perhaps the Greeks, in employing this manœuvre, had in view to cover their rear, which was without defence, at the same time that they deprived themselves of all means of flight. In this battle, Herodotus remarks* that the barbarians of the army of Mardonius; that is to say, the Sacæ, the Indians, and the Bactrians, threw themselves on the Greeks confusedly, and without keeping their ranks, and that the Persians did the same towards the end of the action; which confirms what I have said on that subject, in my remarks on the battle of Marathon. For the moment when the battle was joined, I have placed, somewhat in the rear, the corps of forty thousand men which Artabazus commanded, and which was that of the Medes; because it did not fight, and was the only one that escaped from the battle.* I have also placed the cavalry of Mardonius on a height, as if to protect the flight of the Persians.*
+
+*) Herodot. lib. 9. cap. 25. Plutarch. in Aristid. t. 1. p. 325.
+
+*) Herodot. ibid. c. 48.
+
+*) Id. ibid. c. 51. Plutarch. in Aristid. t. 1. p. 328.
+
+*) Herodot. ibid. c. 55. et 66.
+
+*) Id. ibid. c. 60.
+
+*) Id. ibid. c. 56.
+
+*) Xenoph. Exped. Cyr. lib. 1. c. 10.
+
+M. Fauvel, in a letter dated the 14th of Ventose, sixth year, (March 6, 1798,) has pointed out to me some particulars relative to the environs of Platæa, which appear to differ a little from those in my plan; but as he did not accompany them with any drawing, it was impossible for me to make use of them.
+
+After the four plans of battles, which are all designed for the time when those battles were fought, follows the chart of the Palus Mæotis and Pontus Euxinus, which is the first of the particular maps. This chart is entirely re-drawn for this new edition; it was before very defective, because it was the first map that I drew for this work, and because I compiled it at rather an early age; it, however, had the advantage of being laid down in part from the maps of M. d'Anville.
+
+*) Herodot. lib. 9. c. 58 et 61.
+
+*) Id. Ibid. c. 65.
+
+*) Id. ibid. c. 67.
+
+The projection of this new chart is the same with that of the general maps. The diminution of the degrees of longitude is taken from the table of Schulze,* the intervals of the meridians have been calculated and traced by the tangents of the parallels 42 and 46, and the curvature of these same parallels deduced for each meridian from the difference of the secant and the radius. The northern part of this chart, from the Cercetæ in Asia, to Istropolis in Europe, has been laid down from a large map of the theatre of the war between the Russians, the Austrians, and the Turks, published in the Russian language at St. Petersburg in 1788, and which, for the parts of the Russian empire, is itself only reduced from the last Russian atlas published in the Russian language, by the academy of St. Petersburg. Almost all the longitudes and latitudes assigned by this Russian atlas to different places in the empire of Russia agree with those given in the _Connoissance des Temps_, for the year 1789 and following years. The southern part, from the Bosporus of Thrace to Trebizond, is laid down from a manuscript map of M. Beauchamp, which M. Lalande has had the goodness to communicate to me. The gulf of Apollonia, on the coast of Thrace, is, in like manner, drawn from a large plan of that gulf, taken, in 1786, by M. Duverne, an officer in the French navy, who observed the latitude there to be 42° 22′. Several other points, on the same coast, are likewise determined, with respect to latitude, from the observations of a Russian pilot, which were communicated to me by M. Dehauterive; and the eastern coast, from Trebizond to the Cercetæ, is adjusted to distances taken from ancient periplii, regulated by the longitude of Fort Mosdok, in Caucasia, of which I have before made use in a map of the country between the Black and the Caspian seas.*
+
+*) Lalande Astronomie, t. 4. p. 770 et suiv.
 
 At the time of the supposed travels of Anacharsis the 
 Younger, Scythia still extended, as in the time of Herodotus, 
-from the Ister or Danube to the Tanais or Don.'' The Getae 
-were then only a small nation to the south of the Ister,'" but 
-soon after they became very powerful.' Thrace extended from 
-the .^gean sea to the Ister.' I have placed the isle of Leuce, 
+from the Ister or Danube to the Tanaïs or Don.* The Getæ 
+were then only a small nation to the south of the Ister,* but 
+soon after they became very powerful.* Thrace extended from 
+the Ægean sea to the Ister.* I have placed the isle of Leuce, 
 or of Achilles, according to its distances, as indicated by Strabo 
-and Phny," from the Borysthenes, the Tyras, and even the 
-mouths of the Ister ; but as Arrian, who had sailed along the 
-coasts of the Pontus Euxinus, had not seen it," and it is not 
+and Pliny,* from the Borysthenes, the Tyras, and even the 
+mouths of the Ister; but as Arrian, who had sailed along the 
+coasts of the Pontus Euxinus, had not seen it,* and it is not 
 found in any modern maps, I thought it proper to subjoin to 
-its name that its existence is doubtful. The ancient accounts of 
+its name that _its existence is doubtful_. The ancient accounts of 
 this island are, that it was desert, and that there was on it 
 a temple dedicated to Achilles, which was very rich, and in 
-which that hero rendered oracles : it was added, that this tem- 
-ple was not attended by men, but by sea fowl/ In Asia I have 
+which that hero rendered oracles: it was added, that this tem- 
+ple was not attended by men, but by sea fowl.* In Asia I have 
 placed the city of Cerasus much nearer to Trebizond than it is 
 represented in the former charts, because it appeared to me 
 that city had changed its situation since the time of the travels 
 of Anacharsis. Xenophon reckons only three marches of the 
-army, or three days' journey between Trebizond and Cerasus,' 
-and tliis distance cannot be made to agree with that given in 
+army, or three days' journey between Trebizond and Cerasus,* 
+and this distance cannot be made to agree with that given in 
 the periplus of Arrian, and the anonymous periplus of the Pon- 
 
 
