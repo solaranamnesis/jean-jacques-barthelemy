@@ -1215,98 +1215,46 @@ The island of Rhodes is laid down from a large manuscript chart of that island, 
 
 The distance from Rhodes to the promontory of Samonium in Crete, is stated by Strabo and Agathemerus at one thousand  stadia;* and this measure is employed in a right line in my new General Map, reckoning from the town of Rhodes. In this interval are found the islands of Carpathos and Casos, which are placed nearly as in the former map.*
 
-The interior of Asia has been redrawn from the routes of 
-travellers, compared with the distances given by ancient au- 
-thors, and Ephesus is placed nearly in the latitude assigned to 
-it in the Connoissance des Temps for 1787, which is that of 38 
-degrees, precisely.'' 
+The interior of Asia has been redrawn from the routes of travellers, compared with the distances given by ancient authors, and Ephesus is placed nearly in the latitude assigned to it in the _Connoissance des Temps_ for 1787, which is that of 38 degrees, precisely.*
 
-The part of Italy given in my map has not been studied 
-with so much minuteness as the different territories and dis- 
-tricts of Greece. But the materials which we have for this 
-country are in general much more certain, and consequently 
-require less examination. The environs of Rome, as well as 
+The part of Italy given in my map has not been studied with so much minuteness as the different territories and districts of Greece. But the materials which we have for this country are in general much more certain, and consequently require less examination. The environs of Rome, as well as the country which extends to the Adriatic Sea, near the city of Ancona, have been laid down from the large map of the Ecclesiastical State of the Fathers Maire and Boscovich.* The determination of several places in this map may be found in the _Connoissance des Temps_ for 1789, and the following years; and if greater minuteness be required, the work itself of the Fathers Maire and Boscovich, on the measure of an arc of the meridian in the State of the Holy See, may be consulted.* Rome is situate in 10° 7′ 30′′ longitude east of the meridian of Paris, and in 41° 53′ 54′′ of north latitude.*
 
+*) Notes Manuscrites.
 
+*) Levanto Specchio del Mare, p. 139.
 
-' Notes Maniucritcs, '' Levanto Specchio del Mare, p. 139- ' D'Anville, Anal, 
-des C6teede la Grece, p. .52. ' Strab. lib. 2. p. 106. Agalhem. de Geogr. lib. 2.c. I*, 
-p. 56. ap. Geogr. Min. Ufeec. * See above, p. 42, 13. " ConnoiGi. dee Temps pour 
-1767, p. 310. 
+*) D'Anville, Anal. des Côtes de la Grèce, p. 52.
 
+*) Strab. lib. 2. p. 106. Agathem. de Geogr. lib. 2. c. 14. p. 58. ap. Geogr. Min. Græc.
 
+*) See above, p. 42, 43.
 
-ON THE MAPS OF ANCIENT GREECE. 95 
+*) Connoiss. des Temps pour 1787, p. 310.
 
-the country which extends to the Adriatic Sea, near the city of 
-Ancona, have been laid down from the large map of the Ec- 
-clesiastical State of the Fathers Maire and Boscovich.' The 
-determination of several places in this map may be found in 
-the Connoissance ies Temps for 1789, and the following years ; 
-and if greater minuteness be required, the work itself of the 
-Fathers Maire and ]5oscovich, on the measure of an arc of the 
-meridian in the State of the Holy See, may be consulted.^ 
-Rome is situate in 10" 7' 30" longitude east of the meridian of 
-Paris, and in 41" 53' 54" of north latitude.' 
+The remainder of Italy is given from the map of the kingdom of Naples by Rizzi Zannoni, in four sheets,* corrected in several places by astronomical observations, and by the comparison of some distances given by ancient authors. The work of M. d'Anville, entitled, _Analyse Geographique de l'Italie_,* has been of great use to me. I have adjusted this map of Zannoni's to the new chart by the same author of the coasts of this kingdom, taken by order of the king of Naples, and engraved on twenty-three sheets.* The city of Naples, or Parthenope, is placed in the position assigned to it in the _Connoissance des Temps_ for the year 8 (1800),* and Taranto, or Tarentum, has been observed by Berkley.* The observation of this astronomer gives us the position of this town in 15° 16′ 30′′ longitude east of the meridian of Paris, and in 40° 22′ of latitude. But as this determination is exactly the same with that of the chart of the coasts of the kingdom of Naples by Rizzi Zannoni, I have only reduced this chart accurately, and adjusted it to my map. We have already seen* that the longitude observed by M. Beauchamp before the town of Monopoli, which is at a little distance from Egnatia, on the northern coast of Italy, confirms in a satisfactory manner that which this chart assigns to the same town. What may, perhaps, excite some surprise is, that the _heel_ of Italy is extended, in this chart, much more to the east than it is laid down in any preceding maps. But according to the position which the chart gives to the town of Hydruns, at present Otranto, this town is precisely at the distance of four hundred Pythian stadia from the island of Saso, as it is said to be by Strabo, and in the maritime Itinerary of Antoninus;* it has also the bearing assigned by the pilot Levanto.* This chart, therefore, is very accurate. What still more confirms its accuracy is the distance of twenty leagues, of four Italian miles each, which the same pilot Levanto gives for that between Brindisi and Durazzo, with a north-east bearing.* This is the exact distance in my map: the bearing, also, is precisely the same.
 
-The remainder of Italy is given from the map of the king- 
-dom of Naples by Rizzi Zannoni, in four sheets,™ corrected in 
-several places by astronomical observations, and by the com- 
-parison of some distances given by ancient authors. The work 
-of M. d'Anville, entitled. Analyse Geographique de ritafie,' has 
-been of great use to me. I have adjusted this map of Zannoni's 
-to the new chart by the same author of the coasts of this king- 
-dom, taken by order of the king of Naples, and engraved on 
-twenty-three sheets." The city of Naples, or Parthenope, is 
-placed in the position assigned to it in the Connoissance des 
-Temps for the year 8 (1800),'' and Taranto, or Tarentum, has 
-been observed by Berkley.'' The observation of this astronomer 
+*) Nuova Carta Geografica dello Stato Ecclesiastico, delineata del P. Cristoforo Maire, etc. in three sheets.
 
+*) De Literaria Expeditione per Pontificam Ditionem, etc. suscepta a Patribus Cristoforo Maire et Rogerio Josepho Boscovich, Romæ 1755 in 4to. or the French translation, entitled, Voyage Astronomique dans l'Etat de l'Eglise, Paris 1770, in 4to.
 
+*) Connoiss. des Temps pour l'An. 8 (1800) p. 200.
 
-NuovQ Carta GeograRcadello Stato EcclesioGtico, delineata del P. Cristoforo Maire, 
-&c. in three sheets. '^ De Literaria Cxpcditione per Puntificam DilioQem, &c. suscepta 
-a pEttribus Crbtoforo Maire el Kogerio Joseph o Boscovich, Rorare 17.5.5 in 4to. or the 
-French troDBlation, entitled, Voyage Astronomique dans TElttt de I'Eglisc, Paris 1770, 
-in +to. ' Connoiss. des Temps pour I'An. 8 (1800) p. 200- '" Carta Geografica dello 
-Sicilia prima o sia Regno Je Nojioli, disegnata da Gio- Ant. Rizzi -Zannoni, en Pangi, 
-1769, four sheets. " Analyse Geographique de I'ltalie par d'Anville, Paris, 17+4-, 4to. 
-" Atlante Marllmo del Regno di Napoli, disegnato per ordine del Re, da Gio. Antonio 
-Rizzi-Zaononi, Geographo Regio, &q. e scandagliato da Salvatore Tratna, piloto di vaa- 
-c«lio, 1785, twenty-three sheets. p Connoissance des Temps pour fAn. 8. page 199. 
-1 Notes ManuGcrites. 
+*) Carta Geografica dello Sicilia prima o sia Regno de Napoli, disegnata da Gio. Ant. Rizzi-Zannoni, en Parigi, 1769, four sheets.
 
-gives us the position of this town in 15° 16' SO* longitude east 
-of the meridian of Paris, and in 40' 2'2' of latitude. But as this 
-determination is exactly the same with that of the chart of the 
-coasts of the kingdom of Naples by Rizzi Zannoni, I have 
-only reduced this chart accurately, and adjusted it to my map. 
-We have already seen' that the longitude observed by M. 
-Beauchamp before the town of Monopoli, which is at a little 
-distance from Egnatia, on the northern coast of Italy, confirms . 
-in a satisfactory manner that which this chart assigns to the 
-same town. What may, perhaps, excite some surprise is, that 
-the heel of Italy is extended, in this chart, much more to the 
-east than it is laid down in any preceding maps. But according 
-to the position which the chart gives to the town of Hydruns, 
-at present Otranto, this town is precisely at the distance of four 
-hundred Pythian stadia from the island of Saso, as it is said to 
-be by S^rabo, and in the maritime Itinerary of Antoninus ;' it 
-has also the bearing assigned by the pilot Levant©.* This chart, 
-therefore, is very accurate. What still more confirms its accu- 
-racy is the distance ,of twenty leagues, of four Italian miles 
-each, which the same pilot Levanto gives for that between 
-Brindisi and Durazzo, with a north-east bearing." This is the 
-exact distance in my map : the bearing, also, is precisely the 
-same. 
+*) Analyse Geographique de l'Italie par d'Anville, Paris, 1744, 4to.
+
+*) Atlante Martimo del Regno di Napoli, disegnato per ordine del Re, da Gio. Antonio Rizzi-Zannoni, Geographo Regio, etc. e scandagliato da Salvatore Trama, piloto di vascello, 1785, twenty-three sheets.
+
+*) Connoissance des Temps pour l'An. 8. page 199.
+
+*) Notes Manuscrites.
 
 Sicily is laid down from a reduction of the map of that 
-island by Marshal Schmettau, made by the heirs of Homann,' 
+island by Marshal Schmettau, made by the heirs of Homann,* 
 adjusting it to three determinations of longitude and latitude. 
 
 
-
-' See above, p. 82. ' Slrab. lib. 6. p. 281. Strab. Epitom. lib. 6. p. 79; ap. Geogr. 
+*) See above, p. 82. ' Slrab. lib. 6. p. 281. Strab. Epitom. lib. 6. p. 79; ap. Geogr. 
 Mb. GrffiC. t. ii. Plin, lib. 3. c 5.1. i. p. 149; c. 1 1, p. 166. Veter. Roman. Itin.p.489. 
 ' Levanto Specchio del Mare, p. 95. " Id. ibid. ' Rcgni el Insula; Sicila:, Tabula 
 Geogrsphica ex archetypo grandiori in hoc conipendium redacia, studio Homanniarum 
