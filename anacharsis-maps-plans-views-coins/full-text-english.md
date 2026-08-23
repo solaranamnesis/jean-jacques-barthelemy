@@ -1033,245 +1033,85 @@ The longitude of the point of the cape before Coron, anciently Corone, has also 
 
 *) Notes Manuscr.
 
+The island of Ægilia, at present Cerigotto, is laid down from several observations of M. de Chabert,* and is placed very nearly in the latitude assigned it by Niebuhr. As for the island of Crete, at present Candia,* as it is only reduced from a larger and fuller map of that island, which I designed for the work of one of my friends, entitled "On the ancient federative Governments, and on the Legislation of Crete," which has lately been published, I shall refer the reader to the observations with which I have accompanied that map, in the work above mentioned. M. de Chabert has also determined the position of the summit of the mountain of St. Stephen, which is in the southern part of the island of Santorin, anciently Thera, to be in 23° 9′ 5′′ longitude east of the meridian of Paris, and in latitude 36° 22′.* This latter observation is very different from that which M. le Roi made in 1738, at the most southern point of that island, which gave its latitude 36° 29′;* but I have followed the observation of M. de Chabert, as being connected with other operations. I have only adjusted to this determination of M. de Chabert a manuscript chart of the islands of Santorin, Nanfio, and Stanpalia, taken in 1738 by the above-cited M. le Roi.*
 
-The island of JBgiMa, at present Cerigotto, is laid down 
-from several observations of M. de Chabert,^ and is placed very 
-nearly in the latitude assigned it by Niebuhr. As for the ishmd 
-of Crete, at present Candia,** as it is only reduced from a larger 
-and fuller map of that island, which I designed for the work of 
-one of my friends, entitled " On the ancient federative Govern- 
-ments, and on the Legislation of Crete," which has lately been 
-published, I shall refer the reader to the observations with which 
+*) Notes Manuscr.
 
+*) Pausan. lib. 4. cap. 24. page 365 et 367. --- See above, page 17.
 
+*) Notes Manuscr.
 
-••Note! ManuBCT. "^Pauaan. lib. 4. cap. 24. page 365 el S67. --- See above, page I' 
-' Motes Maniuct. * Note Manuacrite de M. de la Nouze. *' Niebuhr, Voyag. e 
-Arabic, t. i. p. 16- ■ Notes Manuacr- " Niebuhr, ibid. p. 17. 
+*) Note Manuscrite de M. de la Nouze.
 
+*) Niebuhr, Voyag. en Arabie, t. 1. p. 16.
 
-I have accompanied that map, in the work above mentioned. 
-M. de Chabert has also determined the position of the summit 
-of the mountain of St. Stephen, which is in the southern part 
-of the isUmdof Santorin,ancientlyThera, tobein23"9'5"longi- 
-tude east of the meridian of Paris, and in latitude 36' 22'.'' 
-This latter observation is very different from that which M. le 
-Roi made in 1738, at the most southern point of that island, 
-which gave its latitude 36- 29';' but I have followed the obser- 
-vation of M. de Chabert, as being connected with other opera- 
-tions. 1 have only adjusted to this determination of M. de 
-Chabert a manuscript chart of the islands of Santorin, Nanfio, 
-and Stanpaha, taken in 1738 by the above-cited M. le Roi."" 
+*) Notes Manuscr.
 
-Tlie figure which 1 have given to the Cjxlades islands is 
-taken, in part, from a large manuscript chart of the islands of 
-Melos, Pares, Kaxos, and others near them, taken in 1685 by 
-the Sieur Rayzaud, engineer, communicated to me at the D^pdt 
-de la Marine, and which I have adjusted to the operations of 
-M. de Chabert. For the other islands I have made use of the 
-plans mentioned in the former part of these Observations," only 
-adjusting them in like manner to the operations of M. de Cha- 
-bert, as also to several observations made on board different 
-ships, and communicated to me at the Ddpvl de la Marine." 
-With respect to the coasts of Greece and the Peloponnesus, I 
-have adjusted to the observations of M. de Chabert a very 
-circumstantial map of the Saronic Sea or gulf of Engia, which 
-appears to be well executed by a pilot named Lavalle, and 
-which was likewise communicated to me at the DSpdt de la 
+*) Niebuhr, ibid. p. 17.
 
+The figure which I have given to the Cyclades islands is taken, in part, from a large manuscript chart of the islands of Melos, Paros, Naxos, and others near them, taken in 1685 by the Sieur Rayzaud, engineer, communicated to me at the _Dépôt de la Marine_, and which I have adjusted to the operations of M. de Chabert. For the other islands I have made use of the plans mentioned in the former part of these Observations,* only adjusting them in like manner to the operations of M. de Chabert, as also to several observations made on board different ships, and communicated to me at the _Dépôt de la Marine_.* With respect to the coasts of Greece and the Peloponnesus, I have adjusted to the observations of M. de Chabert a very circumstantial map of the Saronic Sea or gulf of Engia, which appears to be well executed by a pilot named Lavalle, and which was likewise communicated to me at the _Dépôt de la Marine_. For every other part I have made use of the materials pointed out in the former part of these Observations.*
 
+*) Saint Croix, Des anciens Gouvernements fédératifs et de la Législation de Crete. Paris, an 7e. un vol. in 8vo. p. 467, et suiv.
 
-' Saint Croix, Des anciens GouTernemenls F^d^aiift et de la Legislation de Crete. 
-Paris, an 7*. un vol. in 8vo. p. 467, et suiv. ■■ Notca Manutcr. ' Note Manuscrite 
-de M- le Roi. "■ See above, p. 4-0, 41. " I J. ibid. " Relcvemeng. Manuscrits. 
+*) Notes Manuscr.
 
+*) Note Manuscrite de M. le Roi.
 
-Marine. For every other part I have made use of the materials 
-pointed out in the former part of these Observations. p 
+*) See above, p. 40, 41.
 
-From Mothone or Modon, to enable me to fix the rest of 
-Peloponnesus, it was necessary to reach Patras, anciently Pa- 
-trse, in Achaia, in order to have a position determined with 
-suflficient certainty. The longitude and latitude of this town 
-have been observed by M. Beauchamp.'' I have hitherto said 
-nothing of the longitudes observed by this astronomer, because 
-they appear to me to be very erroneous ; I think, however, 
-that with a slight correction they might still be rendered use- 
-fill, at least those taken on the western side of Greece, and in 
-the Adriatic Sea of Gulf or Venice. I shall proceed to explain 
-my meaning. 
+*) Id. ibid.
 
-M. Beauchamp left Venice on the 20th of May, 1796, to 
-go to Constantinople. He sailed first along the coasts of Istria 
-and Dalmatia ; and, afterwards crossing the Gulf of Venice, 
-arrived on the 3d of June in sight of the town of Monopoli, in 
-the kingdom of Naples, whence, on the 23d of July, he reached 
-Corfu, where he remained several days. He afterwards landed 
-at Patras on the 22d of August, and arrived at Corinth on the 
-26th of the same month, whence, by the way of NapoU di 
-Romania, and the Archipelago, he proceeded to Constantinople. 
-He took observations of the latitude at all these places, and 
-determined the longitude by means of the marine time-keeper ; 
-but all his longitudes err in excess.' We have seen that the ob- 
-servations of M de Chabert have enabled us to ascertain the 
-longitude of Corinth with sufficient precision, and we have 
-fixed it at 20° 34' 40" east of Paris.' The longitude of this city. 
+*) Relévemens. Manuscrits.
 
+From Mothone or Modon, to enable me to fix the rest of Peloponnesus, it was necessary to reach Patras, anciently Patræ, in Achaia, in order to have a position determined with sufficient certainty. The longitude and latitude of this town have been observed by M. Beauchamp.* I have hitherto said nothing of the longitudes observed by this astronomer, because they appear to me to be very erroneous; I think, however, that with a slight correction they might still be rendered useful, at least those taken on the western side of Greece, and in the Adriatic Sea or Gulf of Venice. I shall proceed to explain my meaning.
 
-V See above, p. 11, 12, 13, I 
-ibid. ■ See above, p. 76. 
+M. Beauchamp left Venice on the 20th of May, 1796, to go to Constantinople. He sailed first along the coasts of Istria and Dalmatia; and, afterwards crossing the Gulf of Venice, arrived on the 3d of June in sight of the town of Monopoli, in the kingdom of Naples, whence, on the 23d of July, he reached Corfu, where he remained several days. He afterwards landed at Patras on the 22d of August, and arrived at Corinth on the 26th of the same month, whence, by the way of Napoli di Romania, and the Archipelago, he proceeded to Constantinople. He took observations of the latitude at all these places, and determined the longitude by means of the marine time-keeper; but all his longitudes err in excess.* We have seen that the observations of M. de Chabert have enabled us to ascertain the longitude of Corinth with sufficient precision, and we have fixed it at 20° 34′ 40′′ east of Paris.* The longitude of this city, as given by M. Beauchamp, is 20° 48′ 24′′, consequently too much by 13′ 44′′. If now we divide these 13′ 44′′ by the number of days he employed in going from Venice to Corinth, we may thence deduce the daily advance of his time-keeper, and may correct his longitudes according to that quantity. I do not offer this method of correction as an infallible means of rendering the longitudes of M. Beauchamp perfectly accurate, but they will at least be so far rectified as to afford a very useful assistance. It appears to me that we have a proof of this in the longitude of Monopoli, which, though observed at sea, has been reduced for that place by M. Beauchamp. He gives this longitude according to his marine time-keeper, at 15° 23′ 45′′ east of the meridian of Paris,* which, corrected by the method I have proposed, will be 15° 21′ 30′′. And in the new chart of the coasts of the kingdom of Naples, by Rizzi-Zannoni, published at Naples in 1785, in twenty-three sheets, and which will hereafter again be mentioned, the town of Monopoli is placed in 15° 19′ longitude east from Paris. The difference is very trifling.
 
+*) See above, p. 11, 12, 13, 17, 18.
 
+*) Observ. de Beauchamp. Manuscr.
 
-t Obierv. de Beauchamp. Manuscr- 
+*) Id. ibid.
 
+*) See above, p. 76.
 
-as given by M. Beauchamp, is 20^ 48' 24^, consequently too 
-much by 13' 44^. If now we divide these 1 3' 44^ by the num* 
-ber of days he employed in going from Venice to Corinth, we 
-may thence deduce the daily advance of his time-keeper, and 
-may correct his longitudes according to that quantity. I do 
-not offer this method of correction as an infallible means of 
-rendering the longitudes of M. Beauchamp perfectly accurate, 
-but they will at least be so far rectified as to afford a very 
-useful assistance. It appears to me that we have, a proof of 
-this in the longitude of Monopoli, which, though observed at 
-ie'df has been reduced for that place by M. Beauchamp. He 
-gives this longitude according to his marine time-keeper, at 
-15® 23' 45^ east of the meridian of Paris,* which, corrected by 
-the method I have proposed, will be 15* 21' 3(/. And in the 
-new chart of the coasts of the kingdom of Naples, by Rizzi- 
-Zannoni, published at Naples in 1785, in twenty-three sheets, 
-and which will hereafter again be mentioned, the town of 
-Monopoli is placed in 15' 19^ longitude east from Paris. The 
-difference is very trifling. 
+I have therefore divided the 13′ 44′′ by the number of days which M. Beauchamp employed in coming from Venice to Corinth, and have subtracted the quantity resulting as many times from each of his observations as there were days from his departure from Venice. In this manner I have corrected the longitudes of Patras and Corfu. That of Patras as given by M. Beauchamp according to his marine time-keeper, is 19° 41′ 15′′ east of the meridian of Paris, and corrected according to my method, 19° 27′ 29′′, in which position that city is placed in my new map. M. Beauchamp also observed the latitude to be 38° 12′ 41′′, which differs but little from that I had assigned it in my former maps, in which it is placed in 38° 9′; though Vernon has made it 38° 40′,* and the _Connoissance des Temps_ for 1787 38° 5′.* But what is of most advantage in the determination of the position of Patras by M. Beauchamp is, that this position is thrown nearly as much towards the north as we were obliged to remove that of Mothone or Modon, and that these two positions (the longitude being corrected) preserve exactly the same difference in that respect which I had given them in my former maps. The western coast of Peloponnesus is therefore laid down with sufficient accuracy in those maps, and I had only to transfer it to my new map by adjusting it to the positions of Patræ and Mothone. It is true that by this means the city of Zacynthus or Zante is no longer found in the latitude which I had before assigned to it from the observation of M. de Chazelles, and which I have given above;* it is more to the north by about four minutes; but I did not conceive that this latitude, which was observed only at sea, and which besides would have forced me to place the island of Cephallenia much more to the south, ought to be an insuperable obstacle.
 
-I have therefore divided the 13' 44^ by the number of days 
-which M. Beauchamp employed in coming from Venice to 
-Corinth, and have subtracted the quantity resulting as many 
-times from each of his observations as there were days from his 
-departure from Venice. In this manner I have corrected the 
-longitudes of Patras and Corfu. That of Patras as given by 
-M. Beauchamp according to his marine time-keeper, is IP^ 41' 
-15' east of the meridian of Paris, and corrected according to 
-my method, 19° 27' 29^, in which position that city is placed in 
-my new map. M. Beauchamp also observed the latitude to be 
+*) Observ. de Beauchamp. Manuscr.
 
-^ Observ. de Beauchamp. Manuscr. 
+By this new determination of Patræ or Patras, and by that of Corinth, the whole sea of Crissa, at present the Gulf of Lepanto, takes a different direction from that which I had given it in my former maps; and this direction is similar to that assigned to it by M. d'Anville in his map of ancient Greece:* it has, however, been adjusted to different observations of Wheler.* The interior of Peloponnesus has been re-drawn, suitably to the direction which the coasts now take; and Sparta is laid down in only about 37° 3′ latitude.
 
-38° 12' 41", which differs but little from that I had assigned it 
-in my former maps, in which it is placed in 38° 9' ; though 
-Vernon has made it 38" 40," and the Connoissance des Temps for 
-1787 38° 5'*. But what is of most advantage in the determi- 
-nation of the position of Patras by M. Beauchamp is, that this 
-position is thrown nearly as much towards the north as we were 
-obliged to remove that of Mothone or Modon, and that these 
-two positions (the longitude being corrected) preserve exactly 
-the same difference in that respect which 1 had given them in 
-my former maps. The western coast of Peloponnesus is there- 
-fore laid down with sufficient accuracy in those maps, and I 
-had only to transfer it to my new map by adjusting it to the 
-positions of Patrte and Mothone. It is true that by this means 
-the city of Zacynthus or Zante is no longer found in the lati- 
-tude which I had before assigned to it from tlie observation of 
-M. de Chazelles, and which I have given above '.^ it is more to 
-the north by about four minutes ; but I did not conceive that 
-this latitude, which was observed only at sea, and which besides 
-would have forced me to place the island of Cephallenia much 
-more to the south, ought to be an insuperable obstacle. 
+*) Journal de Vernon, p. 302.
 
-By this new determination of Patr» or Patras, and by that 
-of Corinth, the whole sea of Crissa, at present tlie Gulf of 
-Lepanto, takes a different direction from that which I had 
-given it in my former maps ; and this direction is similar to 
-that assigned to it by M. d'Anville in his map of ancient 
-Greece:' it has, however, been adjusted to different obser- 
-vations of Wheler.* The interior of Peloponnesus has been 
+*) Connois. des Temps pour 1787, p. 316.
 
+*) See above, page 15.
 
+*) D'Anville, Græciæ Antiquæ Specimen Geographicum, 1762.
 
-" Journal de Vernon, p. 302. * Connois. des Temps pour 17S7, p. 316. '' See 
-above, page 15. ' D'AnvJUe, GreeciEe Antiqusc Specimen Geographicum, 1762. 
-• Wheler'B Journey, book 6. p. M2, 481. 482. 
+*) Wheler's Journey, book 6. p. 442, 481, 482.
 
-M 2 
+From Patræ or Patras to adjust the coasts of Acarnania and Epirus, and the neighbouring islands, I have been obliged to ascertain the position of Corfu in the island of Corcyra, the longitude and latitude of which has been determined by M. Beauchamp.* According to the observation of this astronomer, the longitude of that city is 17° 51′ 15′′ east of the meridian of Paris; but according to my correction, only 17° 45′ 38′′. Its latitude, as observed by him, is 39° 38′ 18′′. I have laid it down in my first general map at 39° 37′; so that it will appear that I was even then tolerably correct with respect to the latitude of this city; but what proves still more the accuracy of this former position is that the difference of longitude between the points of Patras and Corfu, indicated by the corrected observations of Beauchamp, is the same, within a minute more or less, with that given in my first general map. All my work on this western coast of Greece is, therefore, in general very exact,* and I have only adjusted it, in the new General Map, to the observations I have mentioned.
 
-re-drawn, suitably to the direction which the coasts now take f' 
-and Sparta is laid down in only about 37° 3' latitude. 
+From Corfu, to gain the Acroceraunian mountains, I have employed the same quantity of longitude as in the former map, because this longitude is supported by several bearings which have undergone scarcely any change;* but at the same time, to preserve the Gulf of Valona, or Oricum, in the same latitude in which I have placed it, because, as I have said, that latitude appeared to have been determined by observation,* I have been obliged to diminish the space between that gulf and Corfu, by which the latter city is thrown more to the north. The coast which follows to Epidamnus, now Durazzo, is entirely the same as in the old map; and the latitude which I have assigned to that city is confirmed by that given by the _Connoissance des Temps_ for 1787, viz. 41° 30′,* from which it differs but very little.* The coast to the north of Durazzo is laid down from several bearings given by different Portulans, and is adjusted to the latitude of the town of Scutari, formerly Scodra, which does not appear to have existed at the time of the supposed travels of Anacharsis, but which was situate at the entrance of the lake Labeatis. This latitude is given by the _Connoissance des Temps_ for 1787 at 42° 15′.* The remainder of the coast to the north is taken in part from Coronelli's maps of Dalmatia.
 
-From Patra^ or Patras to adjust the coasts of Acarnania and 
-Epirus, and the neighbouring islands, 1 have been obliged to 
-ascertain the position of Corfu in the island of Corcyra, the 
-longitude and latitude of which has been determined by M. 
-Beauchamp.** According to the observation of tliia astronomer, 
-the longitude of that city is l?" 51' 15* east of the meridian of 
-Paris ; but according to my correction, only 17° 45' 38". Its 
-latitude, as observed by him, is 39^38' 18". 1 have laid it 
-down in my first general map at 39° 37' ; so that it will appear 
-that I was even tlien tolerably correct with respect to the lati- 
-tude of this city : but what proves still more the accuracy of 
-this former position is that tlie difference of longitude between 
-the points of Patras and Corfu, indicated by the corrected ob- 
-servations of Beauchamp, is the same, within a minute more or 
-less, with that given in my first general map. All my work on 
-this western coast of Greece is, therefore, in general very exact," 
-and I have only adjusted it, in the new General Map, to the 
-observations I have mentioned. 
+*) Observ. de Beauchamp Manuscrites.
 
-From Corfu, to gain the Acroceraunian mountains, I have 
-employed the same quantity of longitude as in the former map, 
-because this longitude is supported by several bearings which 
-have undergone scarcely any change ;'' but at the same time, 
-to preserve the Gulf of Valona, or Oricum, in the same latitude 
-in which I have placed it, because, as I have said, that latitude 
-appeared to have been determined by observation,^ I have 
-been obliged to diminish the space between that gulf and Corfu, 
+*) See above, p. 21, 32.
 
-*• Obierv. tie Beauchamp ManiLscrites. 
-• Id. p. 32. 
+*) Id. p. 33.
 
+*) Id. p. 32.
 
-' See above, p. 21, 32. 
+After having thus fixed the western coast of Greece, it was necessary to determine the eastern coast. I have said that M. de Chabert had given the situation of Cape Doro, formerly the promontory Capharæus, in the island of Eubœa, and that the latitude of Athens had been deduced from his operations.* The cities of Thebes and Negropont, or Chalcis, in Eubœa, are placed from a manuscript map of Attica, the coasts of which were laid down by M. Raccord, and the interior filled up by M. Fauvel. I could have wished to have been in possession of this when I drew my map of Attica; it certainly would have been more perfect. But this map had not then arrived; it has since been brought by M. Felix, consul for the French Republic, at Salonichi. The city of Thebes is placed a little below the latitude assigned to it by Vernon. Negropont is also placed about five minutes more to the south. Vernon gives for the latitude of the latter 48° 31′.*
 
-by which the latter city is thrown more to the north. The 
-coast which follows to Epidamnus, now Durazzo, is entirely 
-the same as in the old map ; and the latitude which I have as- 
-signed to that city is confirmed by that given by the Coruiois- 
-sance des Temps for 1787, viz. 41° 30'/ from which it differs but 
-verj' little.s The coast to the north of Durazzo is laid down 
-from several bearings given by ditferent Portulans, and is ad- 
-justed to the latitude of the town of Scutari, formerly Scodra, 
-which does not appear to have existed at the time of the sup- 
-posed travels of Anacharsis, but which was situate at the en- 
-trance of the lake Labeatis. This latitude is given by the 
-Connoissance des Temps for 1 787 at 42° 15'.^ The remainder of 
-the coast to the north is taken in part from Coronelli's maps 
-of Dalraatia. 
+*) Connoiss. des Temps for 1787, p. 316.
 
-After having thus fixed the western coast of Greece, it was 
-necessary to determine the eastern coast. I have said that M. 
-de Chaberthad given the situation of Cape Doro, formerly the 
-promontory Capharasus, in the island of Eubcea, and that the 
-latitude of Athens had been deduced from his operations.' The 
-cities of Thebes and Negropont, or Chalcis, in Euboea, are 
-placed from a manuscript map of Attica, the coasts of which 
-were laid down by M. Raccord, and the interior filled up by 
-M. Fauvel. I could have wished to have been in possession of 
-this when I drew my map of Attica ; it certainly would have 
-been more perfect. But this map had not then arrived ; it has 
-since been brought by M. Felix, consul for the French Repub- 
-lic, at Salonichi. The city of Thebes is placed a Htde below 
-the latitude assigned to it by Vernon. Negropont is also 
+*) See above, p. 34.
 
-^ConnoUs. des Tempa for 1787, p. 316. ' See above, p. 3*. 
+*) Connoiss. des Temps for 1787, ibid.
 
-Temps for 1787, ibid- ' See above, p. SO, 75. 
-
-
-" Connoiss. des 
-
-placed about five minutes more to the south. Vernon gives 
-for the latitude of the latter 48° 31'.^ 
+*) See above, p. 30, 75.
 
 From this position of Negropont, or Chalcis, I have pro- 
 ceeded to fix the situation of Thermopylae. Strabo gives 530 
