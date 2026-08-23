@@ -1113,320 +1113,107 @@ After having thus fixed the western coast of Greece, it was necessary to determi
 
 *) See above, p. 30, 75.
 
-From this position of Negropont, or Chalcis, I have pro- 
-ceeded to fix the situation of Thermopylae. Strabo gives 530 
-stadia, for the navigation of the Euripus to Thermopylae ;^ and 
-it has been seen, in the former part of these Observations,™ that 
-he assigns 800 stadia for the distance from Thermopylae to the 
-bottom of the Gulf of Amb'racia. These two measures have 
-undergone some reduction in my new map ; but I have not 
-been able to make use of that of 508 stadia, which the same 
-author reckons from the bottom of the Gulf of Crissa to Ther- 
-mopylae, and which I had employed in my old maps,*" bpcause 
-it is too short. Thermopylae, however, remains nearly in the 
-same latitude ; and though I have been obliged to examine and 
-compare anew all the bearings of Wheler, there are few that I 
-have found erroneous. Lycoriais still due north by the com- 
-pass of the Acro-Corinthus, and south-by-west of Elatea.*^ 
+From this position of Negropont, or Chalcis, I have proceeded to fix the situation of Thermopylæ. Strabo gives 530 stadia, for the navigation of the Euripus to Thermopylæ;* and it has been seen, in the former part of these Observations,* that he assigns 800 stadia for the distance from Thermopylæ to the bottom of the Gulf of Ambracia. These two measures have undergone some reduction in my new map; but I have not been able to make use of that of 508 stadia, which the same author reckons from the bottom of the Gulf of Crissa to Thermopylæ, and which I had employed in my old maps,* because it is too short. Thermopylæ, however, remains nearly in the same latitude; and though I have been obliged to examine and compare anew all the bearings of Wheler, there are few that I have found erroneous. Lycoria is still due north by the compass of the Acro-Corinthus, and south-by-west of Elatea.*
 
-The distance from Thermopylae to the promontory of Sepias 
-is somewhat diminished ; yet the channel, or strait, which se- 
-parates the island of Euboea from Thessaly, retains the same 
-direction ; and the bottom of the Pagastic gulf is still adjusted 
-to the latitude of Pagasae, or the castle of Volo, as given by 
-Dapper .P This promontory of Sepias is placed more to the 
-west than it was in any former maps ; but it is no longer due 
-south of that of Posidium, in the peninsula of Pallene,** because 
-I have been obliged to remove the town of Salonichi or Therma 
-much more to the west. I have said that the northern part of 
-the Archipelago, or the u3Egean sea, has been laid down in my 
+The distance from Thermopylæ to the promontory of Sepias is somewhat diminished; yet the channel, or strait, which separates the island of Eubœa from Thessaly, retains the same direction; and the bottom of the Pagastic gulf is still adjusted to the latitude of Pagasæ, or the castle of Volo, as given by Dapper.* This promontory of Sepias is placed more to the west than it was in any former maps; but it is no longer due south of that of Posidium, in the peninsula of Pallene,* because I have been obliged to remove the town of Salonichi or Therma much more to the west. I have said that the northern part of the Archipelago, or the Ægean sea, has been laid down in my new General Map, from General Truguet's maps of those coasts, drawn in 1785, 1786, and 1787. These maps are extremely accurate. They were laid down geometrically: the latitudes were observed with care, and the longitude verified from distance to distance by the marine time-keeper. The positions of several points taken from these maps are inserted in the _Connoissance des Temps_; and it is, no doubt, in consequence of observations that the longitude of Salonichi, given by Father Feuillée, has been expunged, as it could not be reconciled with them.* In fact, leaving the bottom of the Gulf of Pieria given me by these maps, and following the distances indicated between Amphipolis on the Strymon, and Thessalonica, or Therma, by the Roman Itineraries, which all agree,* I have been obliged to throw Salonichi more to the west by about twenty minutes. I have retained it in the same latitude, but the change in its position has had an influence on that of all the surrounding parts.
 
+*) Journal de Vernon, p. 302.
 
+*) Strab. lib. 9. p. 429.
 
-^ Journal de Vernon, p. 302. » Strab. lib. 9. p. 429. " Sec above, p. 25. » Id. 
-ibid. ® Wheler's Journey, book 6. p. 44S and 462. p See above, p. 31 . ^ Id. p. 30. 
+*) See above, p. 25.
 
+*) Id. ibid.
 
-new General Map, from General Truguet'a maps of those 
-coasts, drawn in 1785, 1786, and 1787. These maps are ex- 
-tremely accurate. They were laid down geometrically : the 
-latitudes were observed with care, and the longitude verified 
-from distance to distance by the marine time-keeper. Tlie po- 
-sitions of several points taken from tliese maps are inserted in 
-the Connmssance des Temps : and it is, no doubt, in consequence 
-of observations that the longitude of Salonichi, given by Father 
-Feuillee, has been expunged, as it could not be reconciled with 
-them/ In fact, leaving the bottom of the Gulf of Pierla given 
-me by these maps, and following the distances indicated between 
-Amphipolis on the Strymon, and Tliessalonica, or Therma, by 
-the Roman Itineraries, which all agree," I have been obliged to 
-throw Salonichi more to the west by about twenty minutes. I 
-have retained it in the same latitude, but the change in its po- 
-sition has had an influence on that of all the surrounding 
-parts. 
+*) Wheler's Journey, book 6. p. 443 and 462.
 
-For the eastern coast of the Thermaic Gulf, I have con- 
-stantly followed the map of M. le Roi ;' but the western coast 
-has undergone some changes, as well as the interior of Thes- 
-saly ; and the gulfs between the peninsula of Pallene and 
-Mount Athos are contracted. As to the islands of Sciathos, 
-Scopelos, and the others in their vicinity, they have been laid 
-down according to observations taken by several vessels, and 
-particularly the ship named L.e Bayle, which visited those coasts 
-in 1735. The position of the island of Scyros has in like man- 
-ner been determined from a number of observations ; and M. 
+*) See above, p. 31.
 
+*) Id. p. 30.
 
+For the eastern coast of the Thermaic Gulf, I have constantly followed the map of M. le Roi;* but the western coast has undergone some changes, as well as the interior of Thessaly; and the gulfs between the peninsula of Pallene and Mount Athos are contracted. As to the islands of Sciathos, Scopelos, and the others in their vicinity, they have been laid down according to observations taken by several vessels, and particularly the ship named _Le Bayle_, which visited those coasts in 1735. The position of the island of Scyros has in like manner been determined from a number of observations; and M. de Chabert has fixed the longitude of its most elevated point at 22° 18′ 16′′ east of the meridian of Paris.* To return to the position of Therma, or Salonichi, the place it takes, with respect to longitude in my new map, greatly shortens the extent of the Egnatian way. We have seen that Polybius in Strabo gives for the measure of this road from Apollonia or Epidamnus to Thessalonica, two hundred and sixty-seven Roman miles;* and the Roman Itineraries reckon it at still more;* but, in my map, we find only one hundred and ninety-five of these same miles, in a right line, from Epidamnus to Therma. There must have been some high mountains within this space, or the road must have made very considerable windings.
 
-' Conooiss. ties Temps- for 1792, et annees suivaDtes. • Vetera RomanDrum Itioera, 
-edenle Wes»eling Amstel. 1735. in 4 to. p. 320, 330, 60+, & 605. Peutitig. Tab.segm, 7. 
-' Rdevements MaDuscrit8> 
+*) Connoiss. des Temps. for 1792, et années suivantes.
 
-de Chabert has fixed the longitude of its most elevated point at 
-22° 18' 16" east of the meridian of Paris." To return to the 
-position of Therma, or Salonichi,the place it takes, with respect 
-to longitude in my new map, greatly shortens the extent of the 
-Egnatian way. We have seen that Polybius in Strabo gives 
-for the measure of this road from Apollonia or Epidamnus to 
-Thessalonica, two hundred and sixty-seven Roman miles ;* and 
-the Roman Itineraries reckon it at still more ;^ but, in my map, 
-we find only one hundred and ninety-five of these same miles, 
-in a right line, from Epidamnus to Therma. There must have 
-been some high mountains within this space, or the road must 
-have made very considerable windings. 
+*) Vetera Romanorum Itinera, edente Wesseling Amstel. 1735. in 4to. p. 320, 330, 604, and 605. Peuting. Tab. segm. 7.
 
-The coasts of Thrace, from Mount Athos to Byzantium, are 
-laid do^vn from the maps of General Truguet ; as are also those 
-of Asia from the mouth of the Rhyndacus, in the Propontis, to 
-the entrance of the Gulf of Cyme. These maps likewise in- 
-clude the islands of Cyzicus, Lesbos, Tenedos, Imbros, Samo- 
-thrace, Lemnos, and even that of Nea, at present called Agio- 
-strati. These maps are adjusted to the observations of longitude 
-and latitude, made by M. Tondu, the astronomer, at the old 
-castle of Asia, of the Dardanelles, and atTarapia, in the strait 
-of Constantinople ; and the intermediary longitudes have 
-been determined by M. Truguet, by means of the marine time- 
-keeper. The longitude of the old castle of Asia of the Darda- 
-nelles, is given in the Connoissance des Temps for 1792, and the 
-following years, according to the observations of M. Tondu, at 
-23° 59' 15*, east of the meridian of Paris ; and the latitude at 
-40° 1'. Tarapia is set down in 26° 40' 28", east of the meridian 
+*) Relevements Manuscrits.
 
-" Notes Manuscrite*. 
-32S--- 605 et seq. 
+The coasts of Thrace, from Mount Athos to Byzantium, are laid down from the maps of General Truguet; as are also those of Asia from the mouth of the Rhyndacus, in the Propontis, to the entrance of the Gulf of Cyme. These maps likewise include the islands of Cyzicus, Lesbos, Tenedos, Imbros, Samothrace, Lemnos, and even that of Nea, at present called Agiostrati. These maps are adjusted to the observations of longitude and latitude, made by M. Tondu, the astronomer, at the old castle of Asia, of the Dardanelles, and at Tarapia, in the strait of Constantinople; and the intermediary longitudes have been determined by M. Truguet, by means of the marine time-keeper. The longitude of the old castle of Asia of the Dardanelles, is given in the _Connoissance des Temps_ for 1792, and the following years, according to the observations of M. Tondu, at 23° 59′ 15′′, east of the meridian of Paris; and the latitude at 40° 1′. Tarapia is set down in 26° 40′ 28′′, east of the meridian of Paris; and in latitude 41° 8′ 24′′.* That part of my map which is reduced from these maps is the most accurate; and I have made no other alteration than that of giving the configuration of the isle of Imbros in a more detailed manner, because that island had only been observed at a distance.
 
+*) Notes Manuscrites.
 
-* See above, p. 35- 
+*) See above, p. 35.
 
-, Itin. p. 31s, 
+*) Veter. Roman. Itin. p. 318, 329-605 et seq.
 
+M. Truguet has in like manner taken observations of the two gulfs in the eastern part of the sea of Marmara, anciently the Propontis; but, as I have said, his sudden departure for Spain deprived me of the benefit of this part of his labour. I have supplied this defect in the best manner I was able. I have laid down the Gulf of Astacus at present of Nicomedia, from the manuscript chart of M. Peisonnel, of which I have spoken in the former part of these Observations,* and which differs little in this part from the chart of the Sea of Marmara, by Bellin.* I have adjusted it to the point of Bous-bouroun, anciently the promontory of Posidium, given me likewise by the maps of M. Truguet; and to the latitude of Nicomedia, called in my maps Olbia; and which is stated in the _Connoissance des Temps_ for 1787 at 40° 46′.* This position, as well as many others, both in Italy and Turkey, given in the _Connoissance des Temps_, and of which I have cited several, appear to me to be taken from a voyage made in the seas; but all the longitudes are erroneous. The Gulf of Cius, at present Moudania, is taken from the chart of the Sea of Marmara, by Bellin, in which part it appears to be accurate; and I have adjusted it to the point of Bousbouroun, as given by M. Truguet, and to the coast on the south. The position of Ancore, or Nicæa, at present Isnick, is placed in the latitude given in the _Connoissance des Temps_, which is 40° 20′.* The Bosporus of Thrace is laid down from the particular plan which I have given of it, by adjusting it to the position of Tarapia; and the coasts of Asia on the Pontus Euxinus are the same as in my particular chart of that sea.*
 
-of Paris ; and in latitude 41° 8' 24'.' That part of my map 
-which is reduced from these maps is the most accurate ; and 
-I have made no other alteration than that of giving the con- 
-figuration of the isle of Imbros in a more detailed manner, 
-because that island had only been observed at a distance. 
+*) Connoiss. des Temps pour 1792, p. 298, 299. 318 and 319.
 
-M. Truguet has in like manner taken observations of the 
-two gulfs in the eastern part of the sea of Marmara, anciently 
-the Propontis ; but, as I have said, his sudden departure for 
-Spain deprived me of the benefit of this part of his labour. I' 
-have suppUed this defect in the best manner I was able. I have 
-laid down the Gulf of Astacus at present of Nicomedia, from 
-the manuscript chart of M. Peisonnel, of which I have spoken 
-in the former part of these Observations," and which differs little 
-in this part from the chart of the Sea of Marmara, by Bellin.*' 
-I have adjusted it to the point of Bous-bouroun, anciently the 
-promontory of Posidium, given me likewise by the maps of M. 
-Truguet ; and to the latitude of Nicomedia, called Jn my maps 
-Olbia ; and which is stated in the Connoissance des Temps for 
-1787 at 40° 46'.'' This position, as well as many others, both in 
-Italy and Turkey, given in the Connoissance des Temps, and of 
-which I have cited several, appear to me to be taken from a 
-voyage made in the seas ; but all the longitudes are erroneous. 
-The Gulf of Cius, at present Moudania, is taken from the chart 
-of the Sea of Marmara, by Bellin, in which part it appears to 
-be accurate ; and I have adjusted it to the point of Bousbou- 
-roun, as given by M. Truguet, and to the coast on the south. 
-The position of Ancore, or Nicaea, at present Isnick, is placed 
-in the latitude given in the Connoissance des Temps, which is 
+*) See above p. 39.
 
+*) Bellin, Carte reduite de la Mer de Marmara; publiée en 1772.
 
+*) Connoiss. des Temps pour 1787, p. 317.
 
-' ConnoUs- des Temps pour 1792, p. 298, 299. 318 and SI9. 
-^ Bellin, Carte reduiie de la Mer de Marmara; publi6e en 1772. 
-Temps pour 1787, p. 317. 
+The coast of Thrace, on the Pontus Euxinus, is likewise nearly the same as in my chart of the Palus Mæotis and Pontus Euxinus; but the interior of that province and of Macedonia, is very different from what it appears in former maps. This interior is laid down from the routes of travellers compared with the Roman Itineraries; and is also supported by the authority of a German manuscript map, which is very full and particular, of the road from Jagodin or Jagodna, to Constantinople, taken in 1719, by the time-keeper, and the compass, and for the communication of which I am indebted to the friendship of General Abancourt. This map has been very useful to me in fixing the details of the ancient geography of this country, which is very little known at present; but it might be wished that we had some astronomical observations on this road. I have adjusted it to the position of Selivrea, formerly Selymbria, on the Propontis, which has been determined by M. Truguet to be in 25° 50′ 48′′ longitude east of the meridian of Paris, and in 41° 4′ 35′′ of latitude;* and to the latitude of Semendria on the Danube, which is given in the _Connoissance des Temps_ for 1787 at 44° 50′.* I have taken the distance between Jagodin and Semendria, and afterwards the longitude of Semendria, from the best maps. M. d'Anville had in his portfolio a manuscript map, somewhat similar, of the road from Constantinople to Belgrade; but it is much less particular, and in several points differs essentially from this.
 
+*) Connoiss. des Temps pour 1787, p. 317.
 
-■ See above p. S9. 
-' Connoiss. dea 
+*) See above, p. 55, 59, 60.
 
+*) Connoiss. des Temps pour 1792, p. 319.
 
-40° 20'.'* The Bosporus of Thrace is laid down from the par- 
-ticular plan which I have given of it, by adjusting it to the po- 
-sition of Tarapia ; and the coasts of Asia on the Pontus Euxinus 
-are tlie same as in my particular chart of that sea.'' 
+*) Idem 1787, p. 316.
 
-The coast of Thrace, on the Pontus Euxinus, is likewise 
-nearly the same as in my chart of the Palus Maeotis and Pontus 
-Euxinus ; but the interior of that province and of Macedonia, 
-is very different from what it appears in former maps. This 
-interior is laid down from tlie routes of travellers compared 
-with the Roman Itineraries; and is also supported by the au- 
-thority of a German manuscript map, which is very full and 
-particular, of the road from Jagodin or Jagodna, to Constan- 
-tinople, taken in 1719, by the time-keeper, and the compass, 
-and for the communication of which I am indebted to i\\e 
-Jriendship o( General Abaucourt. This map has been very 
-useful to me in fixing the details of the ancient geography of 
-this country, which is very litde known at present; but it might 
-be wished that we had some astronomical observations on this 
-road. I have adjusted it to the position of Selivrea, formerly 
-Selymbria, on the Propontis, ^vhich has been determined by 
-M. Truguct to be in 3.5° 50' 48" longitude east of the meridian 
-of Paris, and in 41" 4' 35" of latitude ;' and to the latitude of 
-Semendria on the Danube, which is given in the Coimoissarice 
-des Temps for 17B7 at 44*' 50'.^ I have taken the distance be-- 
-tween Jagodin and Semendria, and afterwards the longitude of 
-Semendria, from the best maps. M. d'Anvillehad in his port- 
-folio a manuscript map, somewhat similar, of the road from 
-Constantinople to Belgrade ; but it is much less particular, and 
-in several points differs essentially from this. 
+Let us now return to the coast of Asia. The present city of Smyrna, which, as I have said,* is different from that in my maps, has its position assigned by the _Connoissance des Temps_ for 1792, and the following years, from the observations of MM. Tondu and Truguet, in 24° 46′ 33′′ of longitude east of the meridian of Paris, and in 38° 27′ 7′′ of latitude.* It is to this position that I have adjusted, in my new General Map, the plan of the Gulf of Smyrna, anciently the Hermæan Gulf, taken by M. le Roi, in 1738.* The figure of the Gulf of Cyme has been given from the chart of the Archipelago of the pilot Olivier,* in which it appears to be designed with sufficient accuracy. But the city of Phocæa, which was not on this gulf, as I have mistakenly supposed in the former part of these Observations, cannot be placed at the distance of two hundred stadia from Smyrna, according to the indication of Strabo.* The text of this author appears to be defective in this place, and it is probable that we ought to read three hundred instead of two hundred stadia. The position of the Isle of Chios has been determined by the observations of several navigators,* and the latitude of the town of Chio, observed on land by M. Beauchamp, to be 38° 22′ 30′′.*
 
-•■ Connoiss. des Tcmpa pour 1787, p. 317. * See above, p. 35, 51), 60. ' Con- 
+I have afterwards determined the longitude of the isles of Samos, Icaros, and the isles Corsiæ, from the track of the ship _l'Esperance_, commanded by M. d'Albert, which, in 1731, sailed from these islands to that of Chio.* Their latitude has been deduced by Niebuhr, from that he observed at sea, while passing between them.* The western point of the island of Samos is in about 37° 36′ latitude; the north east point of Icaros, at present Nicaria, in about 37° 44′; and the northernmost of the Corsiæ isles now the isles of Fournie, in about 37° 42′. The distance between the Isle of Samos and the Isle of Icaros is taken from Strabo, who reckons it eighty stadia.* The island of Samos has been laid down from a plan of that island in the _Voyage Pittoresque de la Grèce_;* but this plan has been adjusted to another in manuscript of the road of that island, taken in 1738 by M. le Roi, and which includes not only the whole southern coast of that island, but also the isles Corsiæ, Patmos, Hyetussa, and even the coast of the Continent from the promontory of Posidium to that of Trogilium. The position assigned to this latter cape somewhat contracts the breadth of the Ægean sea. We have seen that Strabo reckons 1600 stadia for the breadth of that sea from Cape Trogilium to Sunium in Attica. In my former general map this distance is 1480 in a right line,* but in the present only 1375. The islands on the south of Patmos, to Cos, are placed from several observations of different navigators,* compared with the bearings of those islands taken by Tournefort from his stations at Samos and Patmos.*
 
-aoin- des Terapa pour 1792, p. 319. * Idem 1787, p. 316. 
+*) See above, p. 41.
 
-Let US now return to the coast of Asia. The present city 
-of Smyrna, which, as I have said,** is dift'erent from that in my 
-maps, has its position assigned by the Connmssance des Temps 
-for 1792, and the following years, from the observations of 
-MM. Tondu and Truguet, in 24° 46' 33" of longitude east of 
-the meridian of Paris, and in 38° 37' 7" of latitude.' It is to 
-this position that I have adjusted, in my new General Map, the 
-plan of the Gulf of Smyrna, anciently the Herma;an Gulf, 
-taken by M. le Roi, in 1738." The figure of the Gulf of Cyme 
-has been given from the chart of the Archipelago of the pilot 
-Olivier,'' in which it appears to be designed with sufficient ac- 
-curacy. But the city of Phocaea, which was not on this gulf, 
-as I have mistakenly supposed in the former part of these 
-Observations, cannot be placed at the distance of two hundred 
-stadia from Smyrna, according to the indication of Strabo.i 
-The text of this author appears to be defective in this place, 
-and it is probable tliat we ought to read three hundred instead 
-of two hundred stadia. The position of the Isle of Chios has 
-been determined by the observations of several navigators,"" 
-and the latitude of the town of Chio, observed on land by M. 
-Beauchamp, to be 38" 22' 30"." 
+*) Connoiss. des Temps pour 1792, p. 301 and 305.
 
-I have afterwards determined the longitude of the isles of 
-Samos, Icaros, and the isles Corsiie, from the track of the ship 
-i'Esperance, commanded by M. d' Albert, which, in 1731, sailed 
-from these islands to that of Chio." Their latitude has been 
-deduced by Niebuhr, from that he observed at sea, while pass- 
+*) Strab. lib. 14. p. 639.
 
+*) Olivier, carte de l'Archipel, publiée in 1746.
 
+*) Strab. lib. 14. p. 663. See also above, p. 41.
 
-•■ See above, p. *1 . ' Connoiss. des Temps pour 1 792, p. 301 & 305. 'i Strob. lib. 
+*) Relévemens Manuscrits. Levanto, Specchio del Mare, p. 124.
 
-14. p. 639. "Olivier, carte del'Archipel, publiee in 1746. ' Slrab. lib. I*, p. 663. 
+*) Observ. de Beauchamp. Manuscr.
 
-See also above, p. +1 . " Relevemens Manuscrits. Levanto, Specchio del Mare, p. 1 2i. 
+*) Relévemens Manuscr.
 
-■ ObKry. de Peaucharap. Manuicr. ° Rel^vemeiu Mani^cr. 
+The promontory of Triopium, near Cnidus, now Cape Crio, has been tolerably well ascertained by M. de Chabert to be in 36° 38′ 30′′ latitude, and about 25° 2′ longitude east of the meridian of Paris.* The same navigator has in like manner determined the situation of several isles between that cape and the Island of Rhodes; but these positions depend on the observation which he took in the city of Rhodes itself. Near the Devil's Tower, which is the most northern castle of the ports of Rhodes, he found the latitude by observation to be 36° 26′ 38′′; and at the same time the longitude, by the marine time-keeper, 25° 49′ 34′′ east of the meridian of Paris.* In my first maps, I had placed this city too much to the north by about two minutes, relying on a calculation from the observations of M. de Chazelles, inserted in the Memoirs of the Academy of Sciences;* but M. Desplaces in his Ephemerides* gives this latitude, after the same M. de Chazelles, apparently by another calculation, at only 36° 26′, and this is precisely the same as it is made by the observation of Niebuhr, taken in the port of Rhodes.* This latitude may therefore be considered as sufficiently accurate. But what may appear very singular is, that the longitude which I had assigned to the city of Rhodes in my former maps from the voyages of navigators, and the measures given by ancient authors, is exactly the same with that determined by M. de Chabert.
 
+*) Niebuhr, Voyag. en Arabie, t. 1. page 29.
 
-ing between them.p The western point of the island of Samos 
-is in about 37' S6' latitude ; the north east point of Icaros, at 
-present Nicaria, in about 37° 44' ; and the northernmost of the 
-Corsiae isles now the isles of Fournie, in about 37° 42'. The 
-distance between the Isle of Samos and the Isle of Icaros is 
-taken from Strabo, who reckons it eighty stadia.'' The island 
-of Samos has been laid down from a plan of that island in the 
-Voyage Pittoresque de la Grdce ;' but this plan has been ad- 
-justed to another in manuscript of the road of that island, taken 
-in 1738 by M. le Roi, and which includes not only the whole 
-southern coast of that island, but also the isles Corsiie, Patmos, 
-Hyetussa, and even the coast of the Continent from the pro- 
-montory of Posidium to that of Trogilium. The position 
-assigned to this latter cape somewhat contracts the breadth of 
-the Mge-An sea. We have seen that Strabo reckons l600 
-stadia for the breadth of that sea from Cape Trogilium to 
-Sunium in Attica. In my former general map this distance is 
-1480 in aright line,' but in the present only 1375. The islands 
-on the south of Patmos, to Cos, are placed from several obser- 
-vations of different navigators,' compared with the bearings of 
-those islands taken by Tournefort from his stations at Samos 
-and Patmos." 
+*) Strab. lib. 14. p. 639.
 
-The promontory of Triopium, near Cnidus, now Cape Crio, 
-has been tolerably well ascertained by M. de Chabert to be in 
-36° 38' 30" latitude, and about 25° 2' longitude east of the meri- 
-dian of Paris." The same navigator has in Hke manner deter- 
-mined the situation of several isles between that cape and the 
+*) Choiseul Gouffier, Voyag. Pittor. de la Grèce, pl. 52. p. 97.
 
+*) See above, p. 42, 43.
 
+*) Relévemens Manuscrits.
 
-p Niebuhr, Voyag. en Arable, t. i. page 29. i Strab. lib. 14. p. 639. ' Choiseul 
+*) Tournefort, Voyag. t. 1. p. 436 and 441.
 
-Gouffier, Voyag. Pittor. de la Grece, pi. 52. p. 97. • See above, p. 42, +3. ' Relcve- 
-pens Manuacrid, " Tournefort, Voyag. t. i. p. 436 &44I- " Notes Manuicritei, 
+*) Notes Manuscrites.
 
+The island of Rhodes is laid down from a large manuscript chart of that island, and the neighbouring coasts of the continent, taken with sufficient accuracy by a French pilot named Lavalle, of whom I have already had occasion to speak, and which was communicated to me at the _Dépôt de la Marine_. I have adjusted it for the island of Rhodes, to the determination of the city of Rhodes, of M. de Chabert; and as the coasts of the continent are carried a little too far to the north, I have brought them back according to the latitude of the little island of Syme, at present Simia, which M. de Chabert observed to be 36° 30′ 42′′.* This chart has given me the coasts of Caria from the promontory Cynossema to Cragus, with a particularity before unknown; and the Gulf of Glaucus takes in it a very different figure from that which it has in the former maps. The remainder of the coast of Lycia is regulated by the distance of twenty-two leagues, which Levanto reckons from the most southern cape of the island of Rhodes, to the isle of Castel Rosso, anciently Cisthena;* and by the latitude of about 36° 15′, which M. d'Anville says had been observed near Cape Chelidoni.*
 
-Island of Rhodes ; but these positions depend on the observa- 
-tion which he took in the city of" Rhodes itself. Near the 
-Devil's Tower, which is the most northern castle of the ports of 
-Rhodes, he found the latitude by observation to be 36" 26' 38;" 
-and at the same time the longitude, by the marine time-keeper, 
-25" 49' 34" east of the meridian of Paris.' In my first maps, 1 
-had placed this city too much to the north by about two minutes, 
-relying on a calculation from the observations of M. de Cha- 
-zelles, inserted in the Memoirs of the Academy of Sciences ;, 
-but M. Desplaces in his Kphemerides" gives this latitude, after 
-the same M. de Chazelles, apparently by another calculation) 
-at only 56' 26', and this is precisely the same as it is made by 
-the observation of Niebuhr, taken in the port of Rhodes.'' This 
-latitude may therefore be considered as sufficiently accurate. 
-But what may appear very singular is, that the longitude which 
-I had assigned to the city of Rhodes in my former maps from 
-the voyages of navigators, and the measures given by ancient 
-authors, is exactly the same with that determined by M. de 
-Chabert. 
+*) Notes Manuscrites.
 
-The island of Rhodes is laid do^vn from a large manuscript 
-chart of that island, and the neighbouring coasts of the conti- 
-nent, taken with sufficient accuracy by a French pilot named 
-Lavalle, of whom I have already had occasion to speak, and 
-which was communicated to me at the D6p6t de la Marine. I 
-have adjusted it for the island of Rhodes, to the determination 
-of the city of Rhodes, of M. de Chabert ; and as the coasts of 
-the continent are carried a little too far to the north, I have 
-brought them back according to the latitude of the Httle island 
+*) See above, p. 42.
 
+*) Desplaces, Ephemerides, tom. 3. Supplement, p. 20.
 
+*) Niebuhr, Voyag. en Arabie, t. 1. p. 31.
 
-> Noiea >ranviKTite«. » See above, p. 42. • Deaplaces, Ep heme rides, torn. tii. 
-Supplement, p. xx. ■> Niebuhr, Vo;rag. en Arabic, t. i. p. SI, 
-
-
-of Syme, at present Simia, which M. de Chabert observed to be 
-36" 30" 42".'^ This chart has given me the coasts of Caria from 
-the promontory Cynossema to Cragus, with a particularity be- 
-fore unknown ; and the Gulf of Glaucus takes in it a very dif- 
-ferent figure from that which it has in the former maps. The 
-remainder of the coast of Lycia is regulated by tlie distance of 
-twenty-two leagues, which Levanto reckons from the most 
-southern cape of the island of Rhodes, to the isle of Castel 
-Rosso, anciently Cisthena ;'' and by the latitude of about 
-.36" 15', which M. d'Anville says had been observed near Cape 
-CKelidoni.^ 
-
-The distance from Rhodes to the promontory of Sanionium 
-in Crete, is stated by Strabo and Agathemerus at one thousand I 
-stadia / and this measure is employed in a right line in my new 
-General Map, reckoning from the town of Rhodes. In this 
-interval are found the islands of Carpathos and Casos, which 
-are placed nearly as in the former map.^ 
+The distance from Rhodes to the promontory of Samonium in Crete, is stated by Strabo and Agathemerus at one thousand  stadia;* and this measure is employed in a right line in my new General Map, reckoning from the town of Rhodes. In this interval are found the islands of Carpathos and Casos, which are placed nearly as in the former map.*
 
 The interior of Asia has been redrawn from the routes of 
 travellers, compared with the distances given by ancient au- 
