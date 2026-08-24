@@ -10,6 +10,12 @@
 
 ---
 
+# [Critical Observations on the Maps of Ancient Greece.]()
+
+## [Note relative to the Plate No. 19.]()
+
+## [Explanation of the Plate of Medals and Coins.]()
+
 ---
 
 # Critical Observations on the Maps of Ancient Greece;
@@ -1392,3 +1398,5 @@ No. 7. Is an obolus, or the sixth part of a drachma, worth 3 sous (or 3 halfpenc
 No. 9. Is a semi-obolus, worth 1 sou 6 deniers (3 farthings). --- For these five coins, see Table 14. Vol. 6. p. 334, _et seq._
 
 **The End.**
+
+[Link to Scans of the Plates on Flickr.](https://flic.kr/s/aHBqjCf3DB)
