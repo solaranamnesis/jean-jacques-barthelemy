@@ -1249,310 +1249,146 @@ The remainder of Italy is given from the map of the kingdom of Naples by Rizzi Z
 
 *) Notes Manuscrites.
 
-Sicily is laid down from a reduction of the map of that 
-island by Marshal Schmettau, made by the heirs of Homann,* 
-adjusting it to three determinations of longitude and latitude. 
-
-
-*) See above, p. 82. ' Slrab. lib. 6. p. 281. Strab. Epitom. lib. 6. p. 79; ap. Geogr. 
-Mb. GrffiC. t. ii. Plin, lib. 3. c 5.1. i. p. 149; c. 1 1, p. 166. Veter. Roman. Itin.p.489. 
-' Levanto Specchio del Mare, p. 95. " Id. ibid. ' Rcgni el Insula; Sicila:, Tabula 
-Geogrsphica ex archetypo grandiori in hoc conipendium redacia, studio Homanniarum 
-Heredum, 1747, one sheet. 
-
-The first is that of Palermo, which is found in the Comioissance 
-des Temps for the year 8.? The second is that of Trapana, in the 
-western part of this island, which, according to an observation 
-that I believe to have been taken by M. de Chabert, is situate 
-in 10" 15' longitude east from Paris, and in 38" 3' SO" of lati- 
-tude ; the third is that of Syracuse, situate in 12" 56' 12' longi- 
-tude east from Paris, and in 37° 3' north latitude.^ The island 
-of Malta is placed in the position assigned to it in tlie Connois- 
-sance des Temps for the year 8 (1800).' 
-
-I have given to this map the title of a General Map of 
-Greece and a great Part of the Grecian Colonies, as welt in Europe 
-as in Asia; because it was, in fact, in the southern part of 
-Italy, in Sicily, and on the coasts of Asia opposite to Greece, 
-that the principal Grecian colonies were established. It may, 
-however, perhaps be thought that I have not sufficiently dis- 
-tinguished those colonies on the coast of Asia and on that of 
-Thrace. But these colonies were then subject to the king of 
-Persia, and to Philip King of Macedon, and my object was 
-only to represent the countries inhabited by free Greeks at the 
-time when Anacharsis is supposed to have travelled. I shall 
-not enter into a more minute discussion relative to the divi- 
-sions of this map ; the note in page 45 may be consulted, in 
-which I think that I have explained myself sufficiently on this 
-subject. 
-
-
-r Connoissance des Temps pour I' An 8. p- 199. 
-det Temps pour I'An 8, p. 199- 
-
-
-
-* Notes Manuscrites- 
-
-These two pediments no longer exist, as we may say, at present; at least a very 
-small part of them only remains. They were destroyed in 1 687, during the siege of 
-the citadel of Athens by the Venetians, under General Koningsmark, by a bomb 
-that fell on the temple of Minerva, and demolished the whole roof/ Several tra- 
-vellers, however, had seen these pediments in the state in which we nowgive them, 
-and have given a description of them which is very interesting, but still insufficient, 
-because unaccompanied by a drawing.^ Nevertheless they all remark, that M. 
-Oilier deNointel, ambassador from France to the Porte in 1670, when he passed 
-through Athens in 1674, had caused drawings to be taken of all the bas-reliefs of 
-the temple of Minerva, and particularly of those of the pediments, by a Flemish 
-painter, and that this artist had employed fifteen successive days in taking them.^ 
-These drawings had been lost for a long time, but have lately been found in the 
-cabinet of prints of the national library, and the communication of them has in- 
-duced us to have them engraved in an additional plate, as an object which must 
-render the Travels of Anacharsis still more interesting. 
-
-Both French and English travellers have exhausted their invention in conjec- 
-tures, to restore one of these pediments ; and they have collected everything which 
-ancient authors, or travellers who had seen them, have said concerning them ; but 
-
-(a) FanelH Atene Atticalibro teno No. 660, 661, p. 308, 809, in 4to. VenesU, 1707. (h) Corn. Magni, 
-Viaggi per U Tarcbia, 1 686, in 19mo. t. ii. p. 499. Spon, Voyag. t. ii. p. 84. Wbder't Jouroey, book 5. p. Sti I . 
-(r) Corn. Magni, ibid. Spon, Ibid. t. p. 157. Wbdtr't Journey, book ii. p. 908. 
-
-
-their restoration is very far from the original. That of M. David Leroi^ is in gene- 
-ral very judipious ; that of Stuart is more conformable to the descriptions which 
-he followed ;^ but it is too complicated, and exhibits nothing of the great stile of 
-the ancients. We have also restored this pediment in plates 18 and 19, but 
-from the drawings of M. de Nointel, to which we have not added any figure. 
-
-Before we give an account of the bas-relief which adorns this pediment, it 
-will be proper to enter into the examination of a difficulty started by Stuart, with 
-respect to the principal entrance of this temple ; and the solution of which will 
-enable us to determine which was the anterior pediment, or that in the front of 
-the temple ; and which the posterior, or that at the back. 
-
-The two fagades of the Parthenon, or Temple of Minerva, front the one the 
-east, and the other the west. Stuart, in his great work, has given drawings not only 
-of what remains of the figures in the two pediments of these fagades, but also of al 
-the bas-reliefs of theTemplc of Minerva which were in existence in 1753, and these 
-drawings are made with the greatest care.^ In those of the frise of the interior 
-portico, he observes,^ that all the figures are turned towards the east, and that it is 
-towards the same side that the pomp or procession directs its march. In fact, in 
-that partof the frise which fronts theeast,** there are several figures in a sitting pos- 
-ture, larger than the rest, which Stuart takes,^ with much probability forgoddesses. 
-It is at these figures, which are placed in the middle of this front, that the prop or 
-procession' ends, and there is no other similar figure in all the rest of the frise.*" 
-Stuart hence concludes,* that the divinities being placed in the eastern part of the 
-frise, the principal entrance of the temple must have been on this side. This opinion 
-appears, at first view, very probable, but it is necessary to examine whether it agrees 
-with what ancient authors have said relative to the two facades of the temple. 
-
-Pausanius, after having entered the citadel of Athens, and described several of 
-its monuments, tells us," that " the figures on the pediment in the front of the tem- 
-ple represent every thing which has relation to the birth of Minerva ; and that on 
-the pediment behind is represented the dispute which took place between Nep- 
-tune and Minerva, to determine which of them should give a name to Attica." 
-Pausanius enters into no further particulars. 
-
-If we had all the figures of the two pediments of this temple, we might readily 
-discover the difi^erence of th^ subjects. But that which fronts the east has long 
-
-(r/) Leroi, Ruin«t de la Greece, i . i. pi. 90. (c) Stuart's Aodquitiet of Atbeot, t. ii. c. ] . pi. 8. and p. 1 1 . 
-
-(/) Id. ibid. pi. 9 to 30. (jf) Id. ibid. p. 14. (A) Id. Ibid. pi. 83, 94, 96, and 80. (i) Id. ibid, 
+Sicily is laid down from a reduction of the map of that island by Marshal Schmettau, made by the heirs of Homann,* adjusting it to three determinations of longitude and latitude. The first is that of Palermo, which is found in the _Connoissance des Temps_ for the year 8.* The second is that of Trapana, in the western part of this island, which, according to an observation that I believe to have been taken by M. de Chabert, is situate in 10° 15′ longitude east from Paris, and in 38° 3′ 30′′ of latitude; the third is that of Syracuse, situate in 12° 56′ 12′′ longitude east from Paris, and in 37° 3′ north latitude.* The island of Malta is placed in the position assigned to it in the _Connoissance des Temps_ for the year 8 (1800).*
 
-p. 19i IS, 14. (A) Staart*s Antiquities of Athens, pi. 30. (0 Id. ibid. p. 14. (m) Pausan. lib. l. 
+*) See above, p. 82.
 
-c. 14- p. 57* 
+*) Strab. lib. 6. p. 281. Strab. Epitom. lib. 6. p. 79; ap. Geogr. Min. Græc. t. 2. Plin. lib. 3. c. 5. t. 1. p. 149; c. 11. p. 166. Veter. Roman. Itin. p. 489.
 
+*) Levanto Specchio del Mare, p. 95.
 
-been mutilated, as ajipears by the eiiifraving which we have given of il; and the 
-fevi^ figures still visible are so throwD into the lateral angles, that they will not 
-enable us to discover the principal subject. Spon, however, thinks he can dis- 
-cover the head of a sea horse, and on that account considers this pediment as 
-that on which was represented tlie dispute between fieptuiie and Minerva." 
+*) Id. ibid.
 
-That which fronts the west on the contrary presents nothing which can have 
-any reference to this subject. It is known thatiu this contest Minerva caused an 
-olive tree to spring up ; but no tree is to be seen on this pediment, and all the 
-figures appear to be very tranquil. This pediment, before, cannot represent the 
-dispute of Neptune with Miitenia, and consequently cannot be the posterior pedi- 
-ment, or that at the back of the temple. It must, then, be the anterior one, or 
-that in front of the temple ; and the bas-relief on it must represent some subject 
-which hra a relation to the birth of Minerva, In fact, if we do not find there the 
-actual birth of Minerva, that is to say, Pallas issuing from the brain of Jupiter 
-completely armed, we at least find what must have followed her birth --- the 
-presentation which that god made of Minerva, in a decent habit, to the goddesses 
-of Olympus assembled, it is in this manner that Spon and Whelerhave already 
-described this bas-relief;" and though Stuart, in the restoration he has offered, 
-has represented Minerva completely armed, he has at the same time endeavoured 
-to restore this bas-relief in a manner nearly conformable to this idea.^ 
+*) Regni et Insulæ Sicilæ, Tabula Geographica ex archetypo grandiori in hoc compendium redacta, studio Homanniarum Heredum, 1747, one sheet.
 
-The facade of the temple of Minerva, which faces the west, was therefore the 
-principal, or that in front of the temple. In fact it was that which fronted the 
-propylaea; it was that which was first seen on entering the city on the side of the 
-Pireeus ; and we likewise knew that it was towards the facade that the Long 
-Walls took their direction, as has been proved by MM. Foucherot and Fauvel, 
-in 1781, and since by the remains of the said walls.i It cannot be supposed that 
-this should have been the position of the piisterior facade. It is therefore no 
-longer to be doubted that the anterior facade or front of the temple was that 
-which faced the west i and if, in the inteiior portico the figures of the gods are 
-found on the eastern side, as Stuart remarks,^ it is, no doubt, because it was 
-intended to imitate the usual dispositionof the statues within the temples, where 
-they were always placed in the most interior and farthest part.' 
+I have given to this map the title of a _General Map of Greece and a great Part of the Grecian Colonies, as well in Europe as in Asia_; because it was, in fact, in the southern part of Italy, in Sicily, and on the coasts of Asia opposite to Greece, that the principal Grecian colonies were established. It may, however, perhaps be thought that I have not sufficiently distinguished those colonies on the coast of Asia and on that of Thrace. But these colonies were then subject to the king of Persia, and to Philip King of Macedon, and my object was only to represent the countries inhabited by free Greeks at the time when Anacharsis is supposed to have travelled. I shall not enter into a more minute discussion relative to the divisions of this map; the note in page 45 may be consulted, in which I think that I have explained myself sufficiently on this subject.
 
-After having determined which was the anterior and which the posterior 
-ra(;ade of the temple of Minerva, or the Parthenon, we will now say a few words 
-on the bas-reliefs which decorated the pediments. 
+*) Connoissance des Temps pour l'An 8. p. 199.
 
+*) Notes Manuscrites.
 
+*) Connoiss. des Temps pour l'An 8. p. 199.
 
-(o) W. i 
+**End of the critical Observations on the Maps.**
 
+---
 
+## Note relative to the Plate No. 19.
 
-Id. p. S4. ^ 
+### Representing the Two Pediments of the Parthenon,
 
+#### In the state in which they were in 1674.
 
+These two pediments no longer exist, as we may say, at present; at least a very small part of them only remains. They were destroyed in 1687, during the siege of the citadel of Athens by the Venetians, under General Koningsmark, by a bomb that fell on the temple of Minerva, and demolished the whole roof.* Several travellers, however, had seen these pediments in the state in which we now give them, and have given a description of them which is very interesting, but still insufficient, because unaccompanied by a drawing.* Nevertheless they all remark, that M. Ollier de Nointel, ambassador from France to the Porte in 1670, when he passed through Athens in 1674, had caused drawings to be taken of all the bas-reliefs of the temple of Minerva, and particularly of those of the pediments, by a Flemish painter, and that this artist had employed fifteen successive days in taking them.* These drawings had been lost for a long time, but have lately been found in the cabinet of prints of the national library, and the communication of them has induced us to have them engraved in an additional plate, as an object which must render the Travels of Anacharsis still more interesting.
 
-(p) S..I.I 
+Both French and English travellers have exhausted their invention in conjectures, to restore one of these pediments; and they have collected everything which ancient authors, or travellers who had seen them, have said concerning them; but their restoration is very far from the original. That of M. David Leroi* is in general very judicious; that of Stuart is more conformable to the descriptions which he followed;* but it is too complicated, and exhibits nothing of the great stile of the ancients. We have also restored this pediment in plates 18 and 19, but from the drawings of M. de Nointel, to which we have not added any figure.
 
+*) Fanelli Atene Attica libro terzo No. 660, 661, p. 308, 809, in 4to. Venezia, 1707.
 
+*) Corn. Magni, Viaggi per la Turchia, 1685, in 12mo. t. 2. p. 499. Spon, Voyag. t. 2. p. 84. Wheler's Journey, book 5. p. 361.
 
-We have said that the pediment of the anterior facade exhibited the presenta- 
-tion of Minerva by Jupiter to the goddesses of Olympus. lo fact Jupiter is 
-found in the middle ofthis pediment ; and though this figure be a little mutilated, 
-the god is easily recognized by the majesty which the sculptor has given to his 
-countenance. On his right is a large female figure, which Spon and Wheler 
-take for a Victory,' and which is perhaps out of proportion, but is a fault of the 
-original, which it was thought proper to preserve. 
+*) Corn. Magni, ibid. Spon, ibid. t. p. 157. Wheler's Journey, book 2. p. 202.
 
-Next to Jupiter is the goddess Minerva, who is seated in a car drawn by two 
-horses. She is represented as a young maiden, decently attired, and whose 
-attitude has nothing in it which can alarm the divinities with whom she is soon 
-to he associated. Several parts of the car are wanting, because all these parts 
-were in entire relief;' but some of them are still to be seen. Behind the goddess 
-are several female figures, and a child, which is perhaps the little Bacchus ; and 
-next to these, in the angle of the pediment, are three figures, which still remain, 
-and ofwhich Stuart has given a drawing on a very large scale." Spon and Wheler 
-have thought the two first of these figures to be those of the Emperor Hadrian and 
-Sabina his wife ;" but Stuart observes that nothing can be less certain ;y and in fact 
-it is not very probable that the figures of Hadrian and his wife should be placed in 
-a pediment which does not even contain those of all the gods. For our part, we 
-believe that these figures may be those of Hercules, and Hebe the goddess of youth. 
+Before we give an account of the bas-relief which adorns this pediment, it will be proper to enter into the examination of a difficulty started by Stuart, with respect to the principal entrance of this temple; and the solution of which will enable us to determine which was the anterior pediment, or that in the front of the temple; and which the posterior, or that at the back.
 
-On the left of Jupiter ia a group of goddesses, to whom that god presents 
-Minerva. Spon and Wheler take this for the circle of the gods;' and on this single 
-expression, Stuart, in his restoration of this pediment, has thought himself author- 
-ized to place here all the gods and goddesses of Olympus.* But there are only 
-females, and some children in this group; and it appears probable from theordon- 
-nanceofthis bas-relief, that the Greeks separated the societies of the two sexes in 
-heaven, as well as among themselves. The figure nearest to Jupiter appears to us to 
-be Juno ; and next is Venus, who is seated . A part of this latter figure is wanting, 
-butthe goddess cannotbe mistaken, on account ofthe fish which she has at herfeet, 
-and which is the symbol of her origin. This fish might, at first, be taken for a 
-crocodile, but on a more careful examination finsmay be perceived ; and as Stuart,in 
-thispart of his restored design, has figured a dolphin,'' on the proof, as he tells us,* 
-of some mis-shapen vestiges which he found above the cornice, it cannot be doubted 
-that it is a dolphin. The figure which is behind Venus, holds two children in her 
+The two façades of the Parthenon, or Temple of Minerva, front the one the east, and the other the west. Stuart, in his great work, has given drawings not only of what remains of the figures in the two pediments of these façades, but also of all the bas-reliefs of the Temple of Minerva which were in existence in 1753, and these drawings are made with the greatest care.* In those of the frise of the interior portico, he observes,* that all the figures are turned towards the east, and that it is towards the same side that the pomp or procession directs its march. In fact, in that part of the frise which fronts the east,* there are several figures in a sitting posture, larger than the rest, which Stuart takes,* with much probability for goddesses. It is at these figures, which are placed in the middle of this front, that the prop or procession ends, and there is no other similar figure in all the rest of the frise.* Stuart hence concludes,* that the divinities being placed in the eastern part of the frise, the principal entrance of the temple must have been on this side. This opinion appears, at first view, very probable, but it is necessary to examine whether it agrees with what ancient authors have said relative to the two façades of the temple.
 
+Pausanius, after having entered the citadel of Athens, and described several of its monuments, tells us,* that "the figures on the pediment in the front of the temple represent every thing which has relation to the birth of Minerva; and that on the pediment behind is represented the dispute which took place between Neptune and Minerva, to determine which of them should give a name to Attica." Pausanius enters into no further particulars.
 
-Irr'i Journal, 1«>L 5, p«g. S6I. 
+If we had all the figures of the two pediments of this temple, we might readily discover the difference of the subjects. But that which fronts the east has long been mutilated, as appears by the engraving which we have given of it; and the few figures still visible are so thrown into the lateral angles, that they will not enable us to discover the principal subject. Spon, however, thinks he can discover the head of a sea horse, and on that account considers this pediment as that on which was represented _the dispute between Neptune and Minerva_.*
 
+*) Leroi, Ruines de la Greece, t. 1. pl. 20.
 
-.pi, 9. (.r) Spon. Vor»g. I. 
+*) Stuart's Antiquities of Athens, t. 2. c. 1. pl. 3. and p. 11.
 
+*) Id. ibid. pl. 9 to 30.
 
-.1. p.8«. WlKlt 
+*) Id. ibid. p. 14.
 
+*) Id. Ibid. pl. 23, 24, 25, and 30.
 
-i>. sea. (j,) stiun-i Aniiq. t ii. p. 1 1. 
+*) Id. ibid. p. 12, 13, 14.
 
+*) Stuart's Antiquities of Athens, pl. 30.
 
-(I) Spon. Vnyu;. t. ii. p. M.i. 
+*) Id. ibid. p. 14.
 
+*) Pausan. lib. 1. c. 14. p. 57.
 
-arms : these, probably, are Apollo and Diana in the arms of their mother Latona ; 
-and the next figure, which is covered to the feet, appears to us to be Ceres with 
-her daughter Proserpine on her knees. The other figures are, no doubt, the 
-attendants of the gods and goddesses. 
+That which fronts the west on the contrary presents nothing which can have any reference to this subject. It is known that in this contest Minerva caused an olive tree to spring up; but no tree is to be seen on this pediment, and all the figures appear to be very tranquil. This pediment, before, cannot represent _the dispute of Neptune with Minerva_, and consequently cannot be the posterior pediment, or that at the back of the temple. It must, then, be the anterior one, or that in front of the temple; and the bas-relief on it must represent some subject _which has a relation to the birth of Minerva_. In fact, if we do not find there the actual birth of Minerva, that is to say, Pallas issuing from the brain of Jupiter completely armed, we at least find what must have followed her birth --- the presentation which that god made of Minerva, in a decent habit, to the goddesses of Olympus assembled, it is in this manner that Spon and Wheler have already described this bas-relief;* and though Stuart, in the restoration he has offered, has represented Minerva completely armed, he has at the same time endeavoured to restore this bas-relief in a manner nearly conformable to this idea.*
 
-We shall say nothing of the beauty of this bas-relief in general : the engraving 
-will enable every one to form a suitable judgment. All the figures are seen a 
-little shortened, because, as Spon has observed, the painter who designed them was 
-obliged to delineate them looking up at them from below, and without a scafibld.^ 
+The facade of the temple of Minerva, which faces the west, was therefore the principal, or that in front of the temple. In fact it was that which fronted the propylæa; it was that which was first seen on entering the city on the side of the Piræus; and we likewise knew that it was towards the façade that the Long Walls took their direction, as has been proved by MM. Foucherot and Fauvel, in 1781, and since by the remains of the said walls.* It cannot be supposed that this should have been the position of the posterior façade. It is therefore no longer to be doubted that the anterior façade or front of the temple was that which faced the west; and if, in the interior portico the figures of the gods are found on the eastern side, as Stuart remarks,* it is, no doubt, because it was intended to imitate the usual disposition of the statues within the temples, where they were always placed in the most interior and farthest part.*
 
-We shall not give any description of the posterior pediment, or that at the 
-back of the temple, because it does not present any great number of figures. It 
-will be sufficient to observe, that it contained one more figure in the time of M. 
-de Nointel than when it was designed by Stuart, in 1753. 
+After having determined which was the anterior and which the posterior façade of the temple of Minerva, or the Parthenon, we will now say a few words on the bas-reliefs which decorated the pediments.
 
-Nothing now remains but to give due praise to the exertions of M. Bourgeois, 
-who has taken the greatest care accurately to engrave these pediments from the 
-originals of M. de Nointel, and who has spared no pains to restore one of them 
-agreeably to those designs in the plates No. 18 and 19. 
+*) Spon. Voyag. t. 2. p. 85.
 
-(/i) Spon, Vojag. t. ii. p. 85. 
+*) Id. ibid. p. 84. Wheler's Journey, book v. p. 361.
 
-EXPLANATION 
+*) Stuart's Antiquities of Athens, t. 2. c. 1. p. 11, pl. 3.
 
-OF 
+*) Foucherot et Fauvel. Notes Manuscrites.
 
+*) Stuart, ibid. p. 14.
 
-THE PLATE OF MEDALS AND COINS- 
+We have said that the pediment of the anterior façade exhibited the presentation of Minerva by Jupiter to the goddesses of Olympus. In fact Jupiter is found in the middle of this pediment; and though this figure be a little mutilated, the god is easily recognized by the majesty which the sculptor has given to his countenance. On his right is a large female figure, which Spon and Wheler take for a Victory,* and which is perhaps out of proportion, but is a fault of the original, which it was thought proper to preserve.
 
+Next to Jupiter is the goddess Minerva, who is seated in a car drawn by two horses. She is represented as a young maiden, decently attired, and whose attitude has nothing in it which can alarm the divinities with whom she is soon to he associated. Several parts of the car are wanting, because all these parts were in entire relief;* but some of them are still to be seen. Behind the goddess are several female figures, and a child, which is perhaps the little Bacchus; and next to these, in the angle of the pediment, are three figures, which still remain, and of which Stuart has given a drawing on a very large scale.* Spon and Wheler have thought the two first of these figures to be those of the Emperor Hadrian and Sabina his wife;* but Stuart observes that nothing can be less certain;* and in fact it is not very probable that the figures of Hadrian and his wife should be placed in a pediment which does not even contain those of all the gods. For our part, we believe that these figures may be those of Hercules, and Hebe the goddess of youth.
 
-No. 1 . A medallion, in silver, of the city of Tarentum. Taras, the founder of 
-the city, is represented on a dolphin : his name is written from right to left. On 
-the reverse is the same Taras, seated, and his name. See Chap. hi. Vol. ii. 
-page 44. 
+On the left of Jupiter is a group of goddesses, to whom that god presents Minerva. Spon and Wheler take this for the circle of the gods;* and on this single expression, Stuart, in his restoration of this pediment, has thought himself authorized to place here all the gods and goddesses of Olympus.* But there are only females, and some children in this group; and it appears probable from the ordonnance of this bas-relief, that the Greeks separated the societies of the two sexes in heaven, as well as among themselves. The figure nearest to Jupiter appears to us to be Juno; and next is Venus, who is seated. A part of this latter figure is wanting, but the goddess cannot be mistaken, on account of the fish which she has at her feet, and which is the symbol of her origin. This fish might, at first, be taken for a crocodile, but on a more careful examination fins may be perceived; and as Stuart, in this part of his restored design, has figured a dolphin,* on the proof, as he tells us,* of some mis-shapen vestiges which he found above the cornice, it cannot be doubted that it is a dolphin. The figure which is behind Venus, holds two children in her arms: these, probably, are Apollo and Diana in the arms of their mother Latona; and the next figure, which is covered to the feet, appears to us to be Ceres with her daughter Proserpine on her knees. The other figures are, no doubt, the attendants of the gods and goddesses.
 
-No. 2. A medallion, in bronze, of Athens ; on one side the head, with a 
-helmet, of Minerva, the tutelar divinity of Athens : on the other the citadel of 
-Athens, in which is seen the stair-case that led up to it, as also the statue and 
-temple of Minerva. In the rock is the grotto of the god Pan. See Chap. xii. 
-Vol. II. page 173. 
+*) Spon, Voyag. fom. 2. page 84. Wheler's Journal, book 5. page 361.
 
-No. 3. A medallion, in silver, of the ancient city of Dancle or Zancle, now 
-Messina, in Sicily. On one side is the name of the city in ancient Greek 
-characters, and a dolphin : on the other, a shell in an area divided into several 
-compartments. See Note in. Vol. iv. p. 466. 
+*) Spon, Voyag. t. 2. page 8.
 
-No. 4. A medallion, in silver, of Arcadia : on one side is the head of Jupiter, 
-sumamed the Lycsean, from Mount Lycaeus, iu Arcadia : on the other, a mona- 
-gram composed of the Oreek letters APR, the initials of the word Arcadia, or 
-Arcadians; and the god Pan^ seated on Mount Lycaeus, otherwise called Olym- 
-pus, the name of which is indicated by the letters OATM. See Chap. lii. 
-Vol. IV. p. 129. 
+*) Stuart's Antiquities of Athens, t. 2. c. 1. pl. 9.
 
-No. 5. A medallion, in bronze, struck at Cnidus, representing the Venus of 
-Praxiteles. The statue is described in this work. Chap, lxxii. Vol. v. p. 
-379. The same subject is represented on an engraved gem of the cabinet of the 
-Duke of Orleans. 
+*) Spon, Voyag. t. 2. p. 84. Wheler's Journal, book 5. p. 362.
 
-No. 6, A medallion, in bronze, struck at Samos. It represents a statue of 
-Jupiter between two peacocks in a temple. See Chap, lxxiv. Vol. vi. p. 460, 
+*) Stuart's Antiq. t. 2. p. 11.
 
-No. 7, 8, 9, 10, 11. Silver coins of Athens : they all bear on one side the head 
-of Minerva^ with a helmet ; and on the other the beginning of the word Athenians, 
-and an owl, the bird ^consecrated to Minerva. 
+*) Spon, Voyag. t. 2. p. 85. Wheler's Journal.
 
+*) Stuart's Antiq. t. 2. pl. 8.
 
-No. 8. Is a tetradrachm, struck before the age of Pericles, and worth 4 
-drachmas of that time^ or a little more than 3 livres 14 sous (or 3s. Id.) 
+*) Id. ibid. t. 2. pl. 11.
 
-No. 10. Is a less ancient tetradrachm, equivalent to 4 drachmas^ such as the 
-following No. 11, and worth 3 livres 12 sous (or 3 shillings). On the reverse, as 
-in No. 11, the owl is placed on a reverted vase. After the initials A0E, are the 
-names of two magistrates. The whole is within a crown of olive. 
+*) Id. ibid. p. 11.
 
-No. 11. Is a drachma, worth 18 sous (or 9 pence). 
+We shall say nothing of the beauty of this bas-relief in general: the engraving will enable every one to form a suitable judgment. All the figures are seen a little shortened, because, as Spon has observed, the painter who designed them was obliged to delineate them looking up at them from below, and without a scaffold.*
 
-No. 7. Is an obelus, or the sixth part of a drachma, worth 3 sous (or 3 
-halfpence). 
+We shall not give any description of the posterior pediment, or that at the back of the temple, because it does not present any great number of figures. It will be sufficient to observe, that it contained one more figure in the time of M. de Nointel than when it was designed by Stuart, in 1753.
 
-No. 9. Is a semi-obolus^ worth 1 sou 6 deniers (3 farthings). --- For these five 
-coins, see Table xiv. Vol. vi. p. 334, et seq. 
+Nothing now remains but to give due praise to the exertions of M. Bourgeois, who has taken the greatest care accurately to engrave these pediments from the originals of M. de Nointel, and who has spared no pains to restore one of them agreeably to those designs in the plates No. 18 and 19.
 
+*) Spon, Voyag. t. 2. p. 85.
 
-THE END. 
+---
+
+## Explanation of the Plate of Medals and Coins.
+
+No. 1. A medallion, in silver, of the city of Tarentum. Taras, the founder of the city, is represented on a dolphin: his name is written from right to left. On the reverse is the same Taras, seated, and his name. See Chap. 3. Vol. 2. page 44.
+
+No. 2. A medallion, in bronze, of Athens; on one side the head, with a helmet, of Minerva, the tutelar divinity of Athens: on the other the citadel of Athens, in which is seen the stair-case that led up to it, as also the statue and temple of Minerva. In the rock is the grotto of the god Pan. See Chap. 12. Vol. 2. page 173.
+
+No. 3. A medallion, in silver, of the ancient city of Dancle or Zancle, now Messina, in Sicily. On one side is the name of the city in ancient Greek characters, and a dolphin: on the other, a shell in an area divided into several compartments. See Note 3. Vol. 4. p. 465.
+
+No. 4. A medallion, in silver, of Arcadia: on one side is the head of Jupiter, surnamed the Lycæan, from Mount Lycæus, in Arcadia: on the other, a monagram composed of the Greek letters ΑΡΚ, the initials of the word _Arcadia_, or _Arcadians_; and the god Pan, seated on Mount Lycæus, otherwise called Olympus, the name of which is indicated by the letters ΟΛΥΜ. See Chap. 52. Vol. 4. p. 129.
+
+No. 5. A medallion, in bronze, struck at Cnidus, representing the Venus of Praxiteles. The statue is described in this work, Chap. 72. Vol. 5. p. 379. The same subject is represented on an engraved gem of the cabinet of the Duke of Orleans.
+
+No. 6. A medallion, in bronze, struck at Samos. It represents a statue of Jupiter between two peacocks in a temple. See Chap. 74. Vol. 6. p. 450.
+
+No. 7, 8, 9, 10, 11. Silver coins of Athens: they all bear on one side the head of Minerva, with a helmet; and on the other the beginning of the word _Athenians_, and an owl, the bird consecrated to Minerva.
+
+No. 8. Is a tetradrachm, struck before the age of Pericles, and worth 4 drachmas of that time, or a little more than 3 livres 14 sous (or 3s. 1d.)
+
+No. 10. Is a less ancient tetradrachm, equivalent to 4 drachmas, such as the following No. 11, and worth 3 livres 12 sous (or 3 shillings). On the reverse, as in No. 11, the owl is placed on a reverted vase. After the initials ΑΘΕ, are the names of two magistrates. The whole is within a crown of olive.
+
+No. 11. Is a drachma, worth 18 sous (or 9 pence).
+
+No. 7. Is an obolus, or the sixth part of a drachma, worth 3 sous (or 3 halfpence).
+
+No. 9. Is a semi-obolus, worth 1 sou 6 deniers (3 farthings). --- For these five coins, see Table 14. Vol. 6. p. 334, _et seq._
+
+**The End.**
