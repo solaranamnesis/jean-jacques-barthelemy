@@ -2,7 +2,7 @@
 
 Public Domain Works of Jean-Jacques Barthélemy (1716-1795).
 
-## Maps, Plans, Views and Coins, illustrative of the Travels of Anacharsis the Younger in Greece.
+## Maps, Plans, Views and Coins, illustrative of the Travels of Anacharsis the Younger in Greece. (By Barbié du Bocage.)
 
 [English - Plain Text](anacharsis-maps-plans-views-coins/full-text-english.md)  
 English - PDF | Biolinum | Atkinson | Cursive | Kerkis | Custom  
