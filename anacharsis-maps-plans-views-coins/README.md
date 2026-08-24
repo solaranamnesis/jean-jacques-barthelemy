@@ -1,4 +1,4 @@
-# Maps, Plans, Views and Coins, illustrative of the Travels of Anacharsis the Younger in Greece.
+# Maps, Plans, Views and Coins, illustrative of the Travels of Anacharsis the Younger in Greece. (By Barbié du Bocage.)
 
 [English - Plain Text](full-text-english.md)  
 English - PDF | Biolinum | Atkinson | Cursive | Kerkis | Custom  
