@@ -180,9 +180,7 @@ Tripolizza is at present the capital of the Morea, or Peloponnesus, and the resi
 
 *) Xenoph. Hist. Græe. lib. 6. p. 607.
 
-*) Chandler's Travels in Greece, c. 76. p. 294.
-
-*) Foucherot, Voyag. Manuscr.
+*) Chandler's Travels in Greece, c. 76. p. 294. Foucherot, Voyag. Manuscr.
 
 To place Olympia in my maps, its distance from Argos, however, was not sufficient; it was necessary also to obtain its latitude. This has been deduced from that of Zante or Zacynthus, in the island of the same name; observed, as I have already said, by M. de Chazelles: which observation, taken in the harbour, directly to the east of the castle,* fixes the latitude of Zante at 37° 46′ 32′′.*
 
