@@ -10,11 +10,11 @@
 
 ---
 
-# [Critical Observations on the Maps of Ancient Greece.]()
+# [Critical Observations on the Maps of Ancient Greece.](#critical-observations-on-the-maps-of-ancient-greece-1)
 
-## [Note relative to the Plate No. 19.]()
+## [Note relative to the Plate No. 19.](#note-relative-to-the-plate-no-19-1)
 
-## [Explanation of the Plate of Medals and Coins.]()
+## [Explanation of the Plate of Medals and Coins.](#explanation-of-the-plate-of-medals-and-coins-1)
 
 ---
 
