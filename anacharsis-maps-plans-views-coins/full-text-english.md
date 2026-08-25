@@ -426,7 +426,7 @@ An observation taken by M. Foucherot, at Thermopylæ, of the bearing of that par
 
 Several maps make this cape bear due north of the promontory of Sepias, now Cape St. George; and the chart of Gautier places the latter directly south of the point of Cassander, anciently the promontory of Posidium, in the peninsula of Pallene. The distance from the promontory of Posidium to Sepias appears to me to be about thirty-five Italian miles; Gautier makes it more; but it cannot much exceed this, for the latitude of the promontory of Posidium is determined by that of Therma, now Salonichi, at the bottom of the Thermaic Gulf. The whole coast from that city to the promontory of Canastræum, now Canonistro, is laid down from a chart taken geometrically, in 1738, by M. le Roi, an engineer who accompanied the Marquis d'Antin. The map of M. le Roi has also furnished me with the mouths of the Axius, and even the coast of Thessaly, though the latter is only laid down from estimation.
 
-The longitude and latitude of Salonichi have been observed by Father Feuillée.* It is situate 20° 48′ east of Paris, and in latitude 40° 41′ 10′′ N. From the position of this place I have determined the longitude of all Greece, in my General Map.
+The longitude and latitude of Salonichi have been observed by Father Feuillée.* * It is situate 20° 48′ east of Paris, and in latitude 40° 41′ 10′′ N. From the position of this place I have determined the longitude of all Greece, in my General Map.
 
 *) Mem. de l'Acad. des Sciences, ann. 1702, p. 9.
 
