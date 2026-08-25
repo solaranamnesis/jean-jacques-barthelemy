@@ -641,9 +641,7 @@ The army of the Persians, being more numerous, presented a very wide front; and 
 
 *) Id. ibid.
 
-*) Id. ibid.
-
-*) Plutarch. Simpos. lib. 1. quæs. 10. t. 2. p. 628.
+*) Id. ibid. Plutarch. Simpos. lib. 1. quæs. 10. t. 2. p. 628.
 
 *) Herodot. ibid. c. 113.
 
