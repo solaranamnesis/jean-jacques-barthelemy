@@ -236,7 +236,7 @@ From Tænarum it was not difficult for me to gain the promontory of Malea. M. Ve
 
 *) Plin. lib. 4. cap. 5. t. 1. p. 193.
 
-In the interior part of Peloponnesus, Lacedæmon, or Sparta, is laid down from its distance from Megalopolis Pausanias says that from Sparta to Olympia the distance is six hundred and sixty stadia;* and Livy informs us that the road passed through Megalopolis. We have seen that the table of Peutinger reckons in two distances, thirty-four Roman miles from Olympia to Megalopolis. These thirty-four miles make two hundred and seventy-two Olympian stadia; which, subducted from six hundred and sixty, leave three hundred and eighty-eight stadia for the distance from Megalopolis to Sparta. The distance in my maps, in a right line, is three hundred and thirty stadia; and Sparta is placed in the latitude of 37° 10′ N. according to the observation of Vernon.* *
+In the interior part of Peloponnesus, Lacedæmon, or Sparta, is laid down from its distance from Megalopolis Pausanias says that from Sparta to Olympia the distance is six hundred and sixty stadia;* and Livy informs us that the road passed through Megalopolis.* We have seen that the table of Peutinger reckons in two distances, thirty-four Roman miles from Olympia to Megalopolis. These thirty-four miles make two hundred and seventy-two Olympian stadia; which, subducted from six hundred and sixty, leave three hundred and eighty-eight stadia for the distance from Megalopolis to Sparta. The distance in my maps, in a right line, is three hundred and thirty stadia; and Sparta is placed in the latitude of 37° 10′ N. according to the observation of Vernon.* *
 
 *) Coronelli, Descript. de la Morée, p. 82: Paris, 1687, in fol.
 
