@@ -4,6 +4,8 @@
 
 ### Sixth Edition. Accurately re-engraved from those of the last Paris Edition.
 
+#### Printed for C. and J. Rivington; J and W. T. Clarke; Longman, Hurst, Rees, Orme, Brown, and Green; T. Cadell; J. and A. Arch; John Richardson; J. Mawman; W. Ginger; J. Booker; R. Scholey; T. Tegg; Baldwin, Cradock, and Joy; J. Bohn; R. Saunders; E. Edwards; J. Duncan; G. B. Whittaker; Simpkin and Marshall; T. and J. Allman; Harding, Triphook, and Lepard; C. Taylor; C. Smith; J. Wicksteed; and F. Mason.
+
 ### London.
 
 #### 1825.
