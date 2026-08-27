@@ -1215,7 +1215,7 @@ The island of Rhodes is laid down from a large manuscript chart of that island, 
 
 [^435]: Niebuhr, Voyag. en Arabie, t. 1. p. 31.
 
-The distance from Rhodes to the promontory of Samonium in Crete, is stated by Strabo and Agathemerus at one thousand  stadia;[^439] and this measure is employed in a right line in my new General Map, reckoning from the town of Rhodes. In this interval are found the islands of Carpathos and Casos, which are placed nearly as in the former map.[^440]
+The distance from Rhodes to the promontory of Samonium in Crete, is stated by Strabo and Agathemerus at one thousand stadia;[^439] and this measure is employed in a right line in my new General Map, reckoning from the town of Rhodes. In this interval are found the islands of Carpathos and Casos, which are placed nearly as in the former map.[^440]
 
 The interior of Asia has been redrawn from the routes of travellers, compared with the distances given by ancient authors, and Ephesus is placed nearly in the latitude assigned to it in the _Connoissance des Temps_ for 1787, which is that of 38 degrees, precisely.[^441]
 
