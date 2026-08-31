@@ -75,3 +75,12 @@ English - PDF
 Greek - PDF | Biolinum | Atkinson | Cursive | Kerkis | Custom  
 French - Plain Text  
 French - PDF  
+
+## Travels of Anacharsis the younger in Greece. Vol 8.
+
+English - Plain Text  
+English - PDF  
+Greek - Plain Text  
+Greek - PDF | Biolinum | Atkinson | Cursive | Kerkis | Custom  
+[French - Plain Text](travels-anacharsis-younger-greece-08/full-text-french.md)  
+French - PDF  
