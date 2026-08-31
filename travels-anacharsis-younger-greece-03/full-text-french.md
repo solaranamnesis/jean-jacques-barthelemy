@@ -2,7 +2,7 @@ CHAPITRE XIV.
 
 Dm Gouvernement actuel et Athènes» 
 
-Je passerai quelquefois d^un sujet à un au* 
+Je passerai quelquefois d'un sujet à un au* 
 tresans en ayertir. Je dois justifier ma marche. 
 
 Athènes était le lieu de ma i*ésidence ordi- 
@@ -17,9 +17,9 @@ lequel j'ajoutais au récit de mes voyages', et à
 
 celui des événemens remarquables , les éclair- 
 eissem^ns que je preuais sur certaines matiè- 
-res. J^avais commencé par Texameti du gou- 
-▼emement des Athéniens ; dans mon intro- 
-duction , je me suis contenté d*èn développer 
+res. J'avais commencé par Texameti du gou- 
+vemement des Athéniens ; dans mon intro- 
+duction , je me suis contenté d'èn développer 
 les principes ; j'enti^e ici dans de plus gprands 
 détails , et je le considère avec les changemeiks 
 et les abus que de malheureuses circonstances 
@@ -31,19 +31,19 @@ ou districts , qui , par leurs différentes réu-
 nions, forment dix tribus^ Tous les citoyens, 
 ceux mcme qui résident à Athènes, appar- 
 'tiennent à Tim de ces districts, sont obligés 
-•de faire inscrire leurs noms dans ses registres, 
+de faire inscrire leurs noms dans ses registres, 
 et se trouvent par là naturellement classés dans 
 wie des tribus. 
 
 Le S«Dat. 
 
 Tous les ans, vers les dei*niers jours de 
-Tannée, les ti'ibus s^assembient séparément 
+Tannée, les ti'ibus s'assembient séparément 
 pour former un sénat composé de cinq cents 
 députés, qui doivent être âgés au moms de 
-t^enle ans. Chacmie d^entre elles en présenté 
+t'enle ans. Chacmie d'entre elles en présenté 
 cinquante , et leur en donne pour adjoints cin- 
-qiunte attire»,  à remplir les place» 
+qiunte attire», à remplir les place» 
 ((M hi mort ou rirré^ariié ée conduite peut 
 laitter irtcftAtes. Les uns d les autre» sont 
 tirëft att sort. 
@@ -69,7 +69,7 @@ l'espace de trente-six jours pour les quatre
 pi*emiéres classes, de ti'ente^cinq pour les 
 antres. 
 
-Celle qui est & la tête des autres s^appeUe 
+Celle qui est & la tête des autres s'appeUe 
 la clause des prftanes. Elle est entretenue aux 
 dépens du piÂilic , dans un lieu nommé le Pry- 
 
@@ -92,7 +92,7 @@ intervalle de son exercice , le sceau de la rér
 publique , les clefs de la citadelle , et celles du 
 trésor de Minerve. 
 
-Ces arrange. ■ .^ys divers , toujours dirigés 
+Ces arrange. .^ys divers , toujours dirigés 
 par le sort , ont pour objet de maintenir )a 
 plus parfaite égalité paçpyi les citoyens , et la 
 plus grande sûreté dans TEtat. Il n'y a point 
@@ -111,7 +111,7 @@ sions , ces neuf présidens portent les décrets
 du sénat à l'assemblée de la nation , et c'est 
 le premier d'entre eux qui appelle le peuple 
 aux suffrages ; en d'autres , ce soin regai*de 
-le chef des prytanes , ou Tuu de ses assistons ■ . 
+le chef des prytanes , ou Tuu de ses assistons . 
 Le sénat se renouTclle tous les ans. 11 doit 
 exclure , pendant le temps de son exercice , 
 ceux de ses membres dont la conduite est ré» 
@@ -136,7 +136,7 @@ d41ibérj«uoii9). Comme Ureproiente les tribus ,
 il est représenté par les prytanes , qm , ton* 
 jours réunis en un même endroit , sont à por- 
 tée de Teiller sans .coase sur les dangers qui 
-Qienaoent la république , e^ d*en instruire lo 
+Qienaoent la république , e^ d'en instruire lo 
 aénat. 
 
 Àuembl^ du peuple. 
@@ -180,7 +180,7 @@ sont en plus grand nombre que les riches, ce
 qui entre mieux dans Tesprit des démocraties 
 actuelles t 
 
-Qutre ces assemblées, il s'eu tient d^cx- 
+Qutre ces assemblées, il s'eu tient d'cx- 
 traordmaires , lorsque VEtat est menacé d'un 
 proche dangei'. Ce sont quelquefois les pry- 
 tanes , et plus souvent encore les cbe& des 
@@ -198,7 +198,7 @@ semblée. Les hommes au dessous de^ingt ans
 n'en ont pas encore le di*oit. On cessç d'en 
 jouir quand on a une tache d'infamie ; et un 
 étranger qui Tusurperait serait puni de mort, 
-parce qu'Û serait censé ^m*per la puissance 
+parce qu'Û serait censé ^m'per la puissance 
 souveraine y ou pouvoir ti*ahir le secret de 
 TEtat. 
 
@@ -225,7 +225,7 @@ ceînte purifiée par le sang des victimes, un
 héraut se lève et récite une formule de -voeux 
 qu'on prononce aussi dans le sénat toutes les 
 fois qu'on y fait quelque délibération. A ces 
-▼œux adressés au eiel pour la prospérité de 
+vœux adressés au eiel pour la prospérité de 
 la nation , sont faiélées des imprécations ef- 
 firayantes contre Torateur qui aurait reçu des 
 présens pour tromper le peuple , ou le sénat , 
@@ -287,7 +287,7 @@ penses a ceux qui ont serri la patrie / etc.
 
 Le sénat est le eonseil perpétuel du peuple. 
 Ceux qui le composent sont communément des 
-gen« éclairéa* L^examen qu'ils ont subi avant 
+gen« éclairéa* L'examen qu'ils ont subi avant 
 que d'entrer ten place prouve du moins que 
 lièur coittluite parait irréprodiable» et fait pré- 
 «iuner }a droiture de leurs intentions. 
@@ -307,7 +307,7 @@ niiéres à l'expérience.
 Les décrets , en sortant de leurs mains , et 
 avant le eonsentement du i>euple, ont par eux- 
 
-*■ V^yes la qous 6 à U fin du volume. 
+* V^yes la qous 6 à U fin du volume. 
 
 
 
@@ -320,7 +320,7 @@ autorîté durable.
 Tel eât le règlement de Selon , dont l'inten- 
 tion était que le peuple ne pût rien faire sanft 
 le sénat, et que leiu-s démarches fussent tel- 
-lement concertées, qu'où en vit naître les j^us 
+lement concertées, qu'où en vit naître les j'us 
 grands biens avec les moindres divisions pos- 
 sibles* Mais, pour pi*oduire et conserver cette 
 heureuse harmonie, il faudrait que le sénat 
@@ -381,12 +381,12 @@ renonçadt à toute autte occupatioii, consa-
 creDt tout leur temps k TadininistnitMa de 
 TEtat. ^ft 
 
-Us.ooiiimeiicent pour ror<nfe|« a s^ets&yer 
-dans les ti*ibunaux de justice ; m quand ik s^y 
+Us.ooiiimeiicent pour ror<nfe|« a s'ets&yer 
+dans les ti*ibunaux de justice ; m quand ik s'y 
 distinguent par le talent de la pai-ole, alors | 
 sous prétexte de servir leur patrie > mais le 
 ]Jus sotiYent pour servir leur ambition , ils 
-entrent dans une plus noble carrière > et *• 
+entrent dans une plus noble carrière > et * 
 chargent du soin pénible d'éclairer le sénat et 
 de conduire le peuple. Leur profession, à iû* 
 quelle ils se dévouent dans un Âge très peu 
@@ -406,11 +406,11 @@ ennemies ; de démêler enfin les vrais intérêts
 
 
 
-D^AIIAGHAIISIS. i5 
+D'AIIAGHAIISIS. i5 
 
 éû la patrie à traTctts une ^Mile êe eoiBhinai- 
 sons et de rapports ; il faut encore fiôre Ta- 
-loir en public les {grandes Térités dont «m s^eat 
+loir en public les {grandes Térités dont «m s'eat 
 pénétré dans le pailiculier, n étre^mu ni des 
 menaces ni des applaudissemens du peuple , 
 afironter la haine des riches en les soumeltani 
@@ -511,7 +511,7 @@ nent la gloire et l'avantage de conduire le
 
 peuple le plus éclairé de la Grèce et de Tuni- 
 
-▼ers. 
+vers. 
 
 De là ces inti'igues et ces divisions qui fer- 
 mentent sans cesse dans le sein de la républi- 
@@ -543,13 +543,13 @@ D'AlfAGHARSlS. 19
 petits moyens qui font si souTent échouer une 
 pièce au théâti'e de Bacchus. 
 
-C*68t en 'vain que depuis quelque temps une 
+C'68t en 'vain que depuis quelque temps une 
 des dix tribus , tirée au sort à chaque assem- 
 blée , se range auprès de la ti'ibune pour em<* 
 pécher la confusion et venir au secours des lois 
 violées ; elle-même est entraînée par le tor-r 
 rent qu'elle voudrait aiTçter ; et sa vaine ré- 
-sistance ne sert qu'à prouver la grandeur d*ua 
+sistance ne sert qu'à prouver la grandeur d'ua 
 mal entretenu non-seulement par la nature du 
 gouvernement , mais encore par le cai^ctère 
 des Athéniens. 
@@ -578,7 +578,7 @@ projets qu^on lui communique , trop impatient
 pour en écouter les détails et en préiroir les 
 suites; faisant trembler ses magistrats dans 
 Tinstant même qu^il pardonne à ses plus cruels 
-ennemie ; passant avec la rapidité d^un éclair 
+ennemie ; passant avec la rapidité d'un éclair 
 de la fureur à la pitié , du découragement k 
 rinsolence , de Finjustice au repentir ; mobile 
 suilout f et fi'iYole , au point que , dans les 
@@ -589,13 +589,13 @@ accident, pourvu qu^il soit inopiné, suffît poiu*
 le distraire de ses craintes ou le détoui*ner de 
 son intérêt. 
 
-C^est ainsi qu on vît autrefois presque toute 
+C'est ainsi qu on vît autrefois presque toute 
 une assemblée se lever et courir aprè^ un petit 
 oiseau qu'Alcibiade jeune encore , et parlant 
 pour la première fois en public , avait par mé- 
 garde laissé échapper de son sebi. 
 
-C^cst ainsi que , vers le même temps , Fo- 
+C'cst ainsi que , vers le même temps , Fo- 
 rateui' Cléon, devenu Tidole des Athéniens 
 qui ne Teslimaieut guère , se jouait impuné- 
 ment de la faveur, qu'il avait acquise . Ils étaient . 
@@ -608,9 +608,9 @@ ration à un autre jour, p^xe que , devant don-
 D'ANACHARSIS. ti 
 
 ner à dinei* à quelques étrangers de set 
-amis , il n^avait pas le loisir de s'occuper des 
+amis , il n'avait pas le loisir de s'occuper des 
 affaires de TEtat. Le peuple se leva , battit 
-des mains, et Torateur n*en eut que plus de 
+des mains, et Torateur n'en eut que plus de 
 crédit. 
 
 Je Fai vu moi-même un jour très Inquiet de 
@@ -643,7 +643,7 @@ t4 VOYAGE
 
 ffi*en ont |km moins à redouter la seconde , 
 
-<|n*on appelle accusation pour cause d'illé- 
+<|n'on appelle accusation pour cause d'illé- 
 
 galHé. 
 
@@ -738,7 +738,7 @@ parties , l'une pour celui qui attaque, l'autre
 pour celui qui se défend , la troisième, quand 
 elle a lieu, pour statuer sur la peine. 
 
-■ Qoaire cent cinqiaanie livrM. 
+ Qoaire cent cinqiaanie livrM. 
 
 
 
@@ -777,7 +777,7 @@ tent en partie , outi'e celles de Solon qui ser-
 
 a8 VOYAGE 
 
--vent de base au droit civil , il s^cn est glissé 
+-vent de base au droit civil , il s'cn est glissé 
 
 plusieurs autres que les circonstances ont fait 
 
@@ -786,7 +786,7 @@ naître, ou que le crédit des orateurs a (ait
 adopter. 
 
 Dans tout gouvernement, il devrait être 
-dilicile de supprimer une loi ancienne , et d^en 
+dilicile de supprimer une loi ancienne , et d'en 
 établir une nouvelle ; et cette difficulté devrait 
 être plus grande chez un peuple qui , tout à la 
 fois sujet et souverain , est toujours tenté d'a- 
@@ -811,7 +811,7 @@ devoir être révoquée , les pr jtanes renvoient
 
 
 
-D^ANACHARSIS. i^ 
+D'ANACHARSIS. i^ 
 
 raffàire à rassemblée , qui se tienl ordinaire- 
 ment dix-neuf joui*s après', et Ton nomme d'a- 
@@ -846,7 +846,7 @@ eux-mêmes , ou la présentent au peuple , qui
 3o VOYAGE 
 
 lui imprime par ses suffrages le sceau de l'au- 
-torilé. L^orateur qui a occasioné ce change- 
+torilé. L'orateur qui a occasioné ce change- 
 ment peut être poursuivi , non pour avoir fait 
 supprimer une loi devenue inutile , mais pour 
 en avoir introduit une qui peut être perni- 
@@ -857,7 +857,7 @@ posées et discutées de la même manière. Ce-
 pendant , malgré les formalités dont je viens 
 de parler, malgré Tobligation où sont certains 
 magistrats de faire tous les ans une révision 
-exacte des lois , il s^en est insensiblement 
+exacte des lois , il s'en est insensiblement 
 glissé dans le Code un si grand nombre de 
 conti'adictoires ei. d'obscures , qu'on s'est va 
 forcé , dans ces derniers temps , d'établir une 
@@ -928,7 +928,7 @@ tribunaux ordinaires des accusés qu'ils vou-
 laient perdre * . 
 
 * Pour appuyer ce fait , j'*ai cite' Aristole , qjii , par 
-discre'tion , ne nomme pas la république d^Athènes ; 
+discre'tion , ne nomme pas la république d'Athènes ; 
 mais il est visible qu''il la désire en cet endroit. 
 
 
@@ -998,13 +998,13 @@ D'ANACHARSIS. 35
 
 jours, et qu'ils aient porté les armes pour le 
 serrice de la patrie. Ils jurent ensuite de main- 
-tenir les lois, et d^étre inaccessibles aux pré- 
+tenir les lois, et d'étre inaccessibles aux pré- 
 sens ; ils le jui*ent sur les originaux mêmes 
 des lois, jnie Ton conserve ayec un respeôt 
 religieuxcTTn ncHiveau motif devrait rendit co 
 serment plus inviolable : en soi*tant de place, 
-ils ont Tespoir d^éti^e, après un autre examen, 
-reçus au sénat de TAréopage; c^est le plus 
+ils ont Tespoir d'éti^e, après un autre examen, 
+reçus au sénat de TAréopage; c'est le plus 
 baul degi'é de fortune pour une âme vertueuse. 
 
 Leur personne, comme celle de tous les 
@@ -1094,12 +1094,12 @@ ont reçues , ceux-là pour justifier leurs opé-
 
 38 VOYAGE 
 
-ratioikSy d^auti^es enfih pour montrer seule- 
-ment cpHls n^ont rieu à i*edouter de la cen- 
+ratioikSy d'auti^es enfih pour montrer seule- 
+ment cpHls n'ont rieu à i*edouter de la cen- 
 sure. 
 
 Ceux qui refusent de comparaître ne peu- 
-yent ni tester , ni s^expa trier, ni remplir une 
+yent ni tester , ni s'expa trier, ni remplir une 
 seconde magistrature , ni recevoir de la part 
 du public la couronne qu^il décerne à ceux 
 qui le servent avec zélé ; ils peuvent même 
@@ -1116,12 +1116,12 @@ voyée aux tribunaux ordinaii*es.
 
 
 
-D^ANACHARSIS. 
+D'ANACHARSIS. 
 
 CHAPITRE XVI. 
 Des Trthvmaux de justice à Athènes. 
 
-Le droit de protéger rîmioceiice ne s*ac> 
+Le droit de protéger rîmioceiice ne s'ac> 
 quiert point ici pai* la naissance ou par les 
 richesses; c'est le privilège de chaque ci- 
 toyen. Comme ils peuvent tous assister à Tas^ 
@@ -1155,7 +1155,7 @@ pour exercer les fonctions de la justice. Le
 sort décidé tous les ans du tribunal où il doit 
 se placer. 
 
-C^est par cette Toie que les tribunaux sont 
+C'est par cette Toie que les tribunaux sont 
 remplis. On en compte dix principaux ^ : 
 quatre pour les meurti'cs ^ six pour les autres 
 causes» tant criminelles que civiles. Parmi 
@@ -1164,16 +1164,16 @@ lontaire ; le sçcond, du meurtre commis dans
 le cas d'une juste défense ; le troisième , du 
 
 ' Huit cent dix mille livres. Voici le calcul du scho» 
-liaste d^Aristophane ( in vesp. v. 66 1 ) : Deux moi» 
+liaste d'Aristophane ( in vesp. v. 66 1 ) : Deux moi» 
 e'iaient consacres aux fêtes. Les tribunaux nVtaienI 
 donc ouveris tiue pendant dix mois , ou trois cent» 
 jours. Il en coûtait chaque jour dit^uit mille oboles , 
-c^est-à-dire trois mille drachmes ou un demi-talent , 
+c'est-à-dire trois mille drachmes ou un demi-talent , 
 et par conséquent quinze talens par mou , cent cin> 
 quante par an. Samuel Petit a attaqué ce calcul ( leg. 
 aitic. p. 3a 5). 
 
-* Voyes la table des tribunaux et magistrats d^A- 
+* Voyes la table des tribunaux et magistrats d'A- 
 thènes. 
 
 
@@ -1184,10 +1184,10 @@ flMmrtre dmt Taiiteur , atqMtra^ant baimi de
 sa patrie pour ce délit , n'adrait pas encore 
 purgé le diécret qui Ten éloignait ; le quatrième 
 CBjBn, du meuitre oceasioué par la chute 
-d^une pierre » d'un arbre , et par d'autres ac- 
+d'une pierre » d'un arbre , et par d'autres ac- 
 cidens de même nature. On verra dans le cha- 
 piti*e suivant que TAréopage connail de Tho* 
-■acide prémédité. 
+acide prémédité. 
 
 Tant de juridictions pour un tnéme crime 
 se prouvent pas qu'il soit k pi*ésent plus com- 
@@ -1244,7 +1244,7 @@ tient plusieurs autres articles moins essentiels.
 
 
 
-D*ANACHARS1S. 43 
+D'ANACHARS1S. 43 
 
 Si , dans ce chapitre et dans les suivaiis^ je 
 Youlais suivre les détails de la jurisprudence 
@@ -1418,18 +1418,18 @@ présence une femme accusée d'empoisonae-
 ment : elle avait voulu s'attacher un homme 
 qu elle adorait, par un philtre dont il mou<* 
 rut. On la renvoya parce qu'elle était plus 
-malheureuse que coupable ■ . 
+malheureuse que coupable . 
 
 * Voyez la noie c à la fin du volame. 
 
 
 
-D^ANACHARSIS. 49 
+D'ANACHARSIS. 49 
 
 Des eorapagnies , pour prix de leurs servi- 
 ees y obtiemient du peuple une couronne et 
 d'autres marques d'hcmneur. Celle dont je 
-parle n W demande point et n^en doit pas sol- 
+parle n W demande point et n'en doit pas sol- 
 liciter. Rien ne la cÛstingue tant que de n'a- 
 voir pas besoin des distinctions. A la naissance 
 de la comédie , il liit permis à tous les AtLé* 
@@ -1463,7 +1463,7 @@ u^employait les châtimens qu^aprés les avis et
 les menaces, il se fit aimer en exerçant le 
 pouvoir le plus absolu. 
 
-L^éducation de la jeunesse devint le pre« 
+L'éducation de la jeunesse devint le pre« 
 mier objet de ses soins. Il monti>ait aux eniàns 
 des citoyens la carrière qu41s devaient pai'cou- 
 lôr, et leur donnait des guides pour les y con- 
@@ -1478,7 +1478,7 @@ vernement.
 
 Celte institution , trop belle pour subsister 
 long-temps, ne dura qu'envii'on un siècle. 
-Périclès entreprit d^afTaiblir une autorité qui 
+Périclès entreprit d'afTaiblir une autorité qui 
 contraignait la sienne. Il eut le malheur de 
 réussir ; et dès ce moment il n'y eut plus de 
 censews dans TËtat, ou plutôt tous les ci- 
@@ -1490,8 +1490,8 @@ atteinte fatale.
 
 D'ANACHARSIS. 5i 
 
-L* Aréopage n*exerce à présent une juridio- 
-tion proprement dite qu*à l^égard des blessures 
+L' Aréopage n'exerce à présent une juridio- 
+tion proprement dite qu*à l'égard des blessures 
 et des homicides prémédités, des incendies , 
 de l'empoisonnement, et de quelques délits 
 moins graves. 
@@ -1502,7 +1502,7 @@ porte à TAi'éopage, se mêle parmi les juges,
 et prononce avec eux les peines que prescri- 
 Tent des lois gravées sur une colonne. 
 
-Quand il s^agit d'un crime qui intéresse 
+Quand il s'agit d'un crime qui intéresse 
 TEtat ou la religion , son pouvoir se borne à 
 instruire le procès. Tantôt c'est de lui-même 
 qu'il fait les infoimations, tantôt c'est le peu- 
@@ -1524,7 +1524,7 @@ mêmes et contre leurs familles. Elles prennent
 
 5» VOYAGE 
 
-à'towiin las redoutables Euin^nides qui , d^un 
+à'towiin las redoutables Euin^nides qui , d'un 
 
 temple yoîain où elles sont honorées, semblent 
 
@@ -1597,7 +1597,7 @@ sait plus cligne d'une si honorable commission .
 Le peuple nomma Hypéride. 
 
 11 est beau que T Aréopage , dépouillé de 
-prescpie toutes ses fonctions , n^ait perdu ni 
+prescpie toutes ses fonctions , n'ait perdu ni 
 sa réputation ni son intégrité, et que , dans sa 
 disgrâce même , il force encore les hommages 
 du public. J'en citerai un autre exemple qui 
@@ -1626,7 +1626,7 @@ immodérés. Alors un citoyen distingué s'étant
 
 D'ANACHARSIS. 55 
 
-levé , ft^écria : N^ayez-Tous pas de honte , 
+levé , ft^écria : N'ayez-Tous pas de honte , 
 Athéniens , de tous livrer à de pareils excès 
 en présence des Aréopagites ? Le peuple ré- 
 pondit qu'il connaissait les égards dus à la 
@@ -1660,7 +1660,7 @@ S ^agit-il de ceux de la première espèce , tout
 citoyen peut seporter pour accusateur ; de ceux 
 de la seconde , la personne lésée en a seule le 
 droit. Dans les premières, on conclut souvent 
-à la mort : dans les auti*es il n^est question que 
+à la mort : dans les auti*es il n'est question que 
 de dommages et de satisfactions pécuniaires. 
 
 Dans une démocratie plus que dans tout 
@@ -1668,7 +1668,7 @@ autre gouveinement , le tort qu'on fait à TEtat
 devient pei'sonnel à chaque citoyen , et la vio- 
 lence exercée contre un particulier est un 
 crime contre TEtat. On ne se contente pas ici 
-d*attaquer publiquement ceux qui trahissent 
+d'attaquer publiquement ceux qui trahissent 
 leur patrie ou qui sont coupables d'impiété , 
 de sacrilège et d'incendie : on peut poursui- 
 
@@ -1692,7 +1692,7 @@ tions qui tendent spécialement à détruire la
 nature du gouvernement ou la sûreté des ci^ 
 toyens. 
 
-Les contestations élevées à Toecasion d*un 
+Les contestations élevées à Toecasion d'un 
 héritage , d'un dépôt violé , d'une dette incer- 
 taine, d'un dommage qu'on a reçu dans ses 
 biens, tant d'autres qui ne concernent pas 
@@ -1701,7 +1701,7 @@ entre les personnes intéressées.
 
 Les procédures varient en quelques points, 
 tant pour la difierence des tribunaux que pour 
-celle des délits. Je ne m^attacberai qu'aux 
+celle des délits. Je ne m'attacberai qu'aux 
 formalités essentieUes. 
 
 Les actions publiques se portent quelque- 
@@ -1713,7 +1713,7 @@ Les actions publiques se portent quelque-
 fois dcTant le sénat ou devant le peuple , qui, 
 après un premier jugement , a soin de les ren- 
 voyer à Tune des cours supérieures ; mais pour 
-Tordinaire raccusateur s^adresse à Tun des 
+Tordinaire raccusateur s'adresse à Tun des 
 principaux magisti*ats , cpii lui fait subir un 
 interrogatoire , et lui demande s'il a bien ré- 
 fléchi sur sa démai*che; s'il est prêt, s'il ne 
@@ -1817,7 +1817,7 @@ miiiée par un nouYeau jugement aucpiel on
 procède tont de suite. 
 
 Celui qm, ayant intenté une accusation , 
-ne la poursuit pas, ou n^obtient pas la cin- 
+ne la poursuit pas, ou n'obtient pas la cin- 
 quième partie des suffivges est communément 
 condamné à une amende de mille drachmes > . 
 Mais , comme rien n'est si facile ni si dange- 
@@ -1836,7 +1836,7 @@ tions qu'ils présentent aux cours supérieures.
 11 y a des causes qu'on peut poursuivre au 
 
 ' Neuf cents livres. Cette somme ëtah très considé- 
-«•Me qusnd la loi fut établie. 
+«Me qusnd la loi fut établie. 
 
 
 
@@ -1844,7 +1844,7 @@ tions qu'ils présentent aux cours supérieures.
 
 civil par une accusalicn particiilière , et au 
 cnmiiiel par une action publique. Telle est 
-celle de Tinsulte faite à la personne d^un ci- 
+celle de Tinsulte faite à la personne d'un ci- 
 toyen. Les lois qui ont voulu pourvoir à sa 
 sûreté , autorisent tous les autres à dénoncer 
 publiquement Tagresseur ; mais eUes laissent 
@@ -1918,7 +1918,7 @@ lence.
 
 Les Athéniens sont moins effrayés que les 
 étrangers des vices de la démocratie absolue. 
-L^extréme libei*té leur parait un si grand bien, 
+L'extréme libei*té leur parait un si grand bien, 
 qu'ils lui sacrifient jusqu'à leur repos. D'ail- 
 leurs, si les dénonciations publiques sont un 
 sujet de terreur pour les uns , elles sont , pour 
@@ -1950,7 +1950,7 @@ pareils monnmens pouvaient se mul^ilier au
 point d'ofli'ir l'échelle exacte de tous les dé- 
 lits , et celle des peines correspondantes , on 
 Tenait plus d'équité dans les jugemens et 
-moins de crimes dans la société. Mais on n^ti. 
+moins de crimes dans la société. Mais on n'ti. 
 essayé nulle part d'évaluer chaque &ute en 
 particulier y et partout on se plaint que la pu- 
 nition des coupables ne suit pas une régie uni- 
@@ -1973,7 +1973,7 @@ téréts , quoique Taccusateur ait proposé la
 plus forte et la plus conforme à sa haine : les 
 orateurs les discutent Tune et Taulre , et les 
 juges , faisant en quelque manière la fonc- 
-tion d*arbitres , cherchent à rapprocher les 
+tion d'arbitres , cherchent à rapprocher les 
 parties , et mettent entre la ÊLUte et le châ- 
 timent le plus de proportion qu^il est pos- 
 sible. 
@@ -2006,7 +2006,7 @@ les-gifmnases, quand même la somme serait
 extrêmement modique. 
 
 C'est avec la corde , le fer et le poison qu*oa 
-Ole pour Tordinaire la '▼ie aux coupables ; quet- 
+Ole pour Tordinaire la 'vie aux coupables ; quet- 
 quefeû on les fidt expirer sous le bâton ; d'au- 
 tres fois on les jette dans la mer ou dans un 
 gouffre bérissé de pointes trancbantes pour 
@@ -2027,21 +2027,21 @@ cauti<His ; en d'autres, ceux qu'on y renferme
 sont cbargés de liens qui leur ôtent l'usage de 
 tous leurs mouvemens. 
 
-■ Plus de cpiarante-cinq livre*. 
+ Plus de cpiarante-cinq livre*. 
 
 
 
 6» VOYAGE 
 
 s«ia peur u» AlhémeBy ^It ne fctronre 
-■uU« part kft a^éstcns ide sa pairie , et que 
+uU« part kft a^éstcns ide sa pairie , et que 
 les ressources de ramitié ne peuT«Bft jMkmcip 
 son infinrlune. Ua eitoyea <faà lui «kamerait 
 ub asile sevait sujet à la mme peine. 
 
 GeiU pvoseriplion a lieu dans deux gîtcob»* 
 Uwcea vemarcpialille». !<> Us komme aèsous 
-4 W meurtre inWoBtalre doit s^altoeater pen- 
+4 W meurtre inWoBtalre doit s'altoeater pen- 
 dant une année entière ,. et ne reyenir à Athèf- 
 ne» (pi^sqMres avoir donné des aatislaetions aux 
 parens du mort, qu^après s'être purifié par 
@@ -2086,7 +2086,7 @@ pation aux choses saintes ; (pielquefois eUe lui
 défend de paraître dans la place publique on 
 de -voyager on certains pays ; d'autres fois, eii 
 le dépouillant «de tout et le faisant monnr ci- 
-vilement y elle ne kâ laisse que le poids d^ une 
+vilement y elle ne kâ laisse que le poids d' une 
 vie sans attraits et d'une liberté sans «xereiee. 
 C'est une peine très grave et très salutave 
 dans une démocratie y parce que les privilèges 
@@ -2097,7 +2097,7 @@ dans une démocratie y parce que les privilèges
 
 qae la, dégradation fiaiit perdre étant plus im- 
 portans et plus considérés que partout ailleurs, 
-rien n^est si humiliant que de se trouver au des- 
+rien n'est si humiliant que de se trouver au des- 
 sous de ses égaux. Alors un particulier est 
 comme un citoyen détrôné ,' qu^on laisse dans 
 la société pour y sei'vir d'exemple. 
@@ -2137,7 +2137,7 @@ Iroui^ait dans son état. Ainsi, en éloignant des
 charges et des emplois celui qui a maltraité 
 les auteurs de ses jours , celui qui a lâchement 
 abandonné son poste ou son bouclier, eOes les 
-couvrent publiquement d^une infiimie qui les 
+couvrent publiquement d'une infiimie qui les 
 force à sentir le remords. 
 
 
@@ -2182,7 +2182,7 @@ bnuusans wérnàtent treMe-<Miq coups, aux-
 ifté» «on a doaiié les noms des dieux , des 
 princes, des kéros, «te ..Les uns font perdre, 
 lesaaftres gagner. Le pkis fevonMe de tous' 
-est celui qu'on appelle de Vénus ; c*est lors* 
+est celui qu'on appelle de Vénus ; c'est lors* 
 <pK les qualrc «ôselets présentent les quatre 
 DOnbres <lif!ei*ens. 
 
@@ -2221,7 +2221,7 @@ Quelquefois on réunit ce dernier jeu à ce-
 lui des dés. Le jouem* règle la marche des 
 pions ou des dames sui* les points quHl amène. 
 Il doit prévoir les coups qui lui sont avanta- 
-geux ou funestes ; et c*est à lui de profiter 
+geux ou funestes ; et c'est à lui de profiter 
 des faveurs du sort ou d'en corriger les ca- 
 prices. Ce jeu , ainsi que le précédent , exi- 
 gent beaucoup de combinaisons : on doit les 
@@ -2248,14 +2248,14 @@ de la Tille jouw de Textréme pureté de Tair
 et des aspects cliarmans qui s'offrent de tous 
 côtés ; mais pour Tordinaire on se rend à la 
 place publique , qui est Tendroit le plus fré- 
-quenté de la Tille. Comme c^est là que se 
+quenté de la Tille. Comme c'est là que se 
 tient souTent rassemblée générale , et que se 
 trouTent le palais du sénat et le tribuiud du 
 premier des archontes , presque ton» j sont 
 entraînés par leurs affaires , ou par celles de 
 la république. Plusieurs y Tiennent aussi , 
 parce qu'ils ont besoin de se distraire, et 
-d^autres parce qu'ils ont besoin d§ s^occuper. 
+d'autres parce qu'ils ont besoin d§ s'occuper. 
 A certaines heui*es , la place , déliTrée des 
 embarras du marché , offre un champ libre à 
 ceux qui Teulent jouir du spectacle de la 
@@ -2319,7 +2319,7 @@ Des oljete plus doux occupent le» Athéniens
 pendant la paix. Counne la plupart font Takifr 
 Leurs terres, ils partent le malin à charal; dy 
 après avoir dirigé les travaux de leurs eaek« 
-▼es y ils reviennent le soir à la ville. 
+ves y ils reviennent le soir à la ville. 
 
 Leurs aïoiaen» sont <pKelquefois rtanfH» par 
 la chasse et par lesexercioesdugymnase.Ottlre 
@@ -2333,7 +2333,7 @@ la promenade , presque toujours avant le re-
 pas. Us en sortent parfumés d'essences $ et 
 ces odeurs se mélem avee celles dont il» ona 
 soin de pénéti'cr leurs habits » qui prennent 
-divers noms , suivant la d^Gsrenee de leur» 
+divers noms , suivant la d'Gsrenee de leur» 
 ibrmes et de leurs couleurs. 
 
 La pliqian se conlentent de mettre, par 
@@ -2408,9 +2408,9 @@ elles ne sont destinées qu'aux vétemens dcmt
 
 
 
-•• VOYAGB 
+ VOYAGB 
 
-QB co«n*t^ les atatucs dies ^tsva., ou dont ks 
+QB co«n't' les atatucs dies ^tsva., ou dont ks 
 
 Le» aeleur»fle perest smr le tlbéâlre. Poiur ht 
 
@@ -2429,7 +2429,7 @@ et^ suivant cpie leur taille l'exige , elles por>-
 lent des chaussures plus ou moins hautes. 
 
 Renfermées dans leur appartement , elles: 
-aeok privées, du plûsir de partager et d*aug- 
+aeok privées, du plûsir de partager et d'aug- 
 ment«*ragrénieiitdes sociétés que leurs époux 
 rassemblent. La loi ne lem* peimet de sortir* 
 pendant le jour qu'en certaines eircousinncesy 
@@ -2479,7 +2479,7 @@ III. 6
 
 
 
-8y • VOYAGE 
+8y VOYAGE 
 
 diflSrentes : « Leucippe est belle, rien n'est 
 
@@ -2496,7 +2496,7 @@ un mari surprenait son rival au moment que
 celui-ci le déshonore , il sei'ait en droit de lui 
 ôter la vie , ou de Tobliger par des tourmens 
 à la racheter ; mais il ne peut en exiger qu'une 
-amende décernée par les juges , si la femme n*a 
+amende décernée par les juges , si la femme n'a 
 cédé qu'àlafoi*ce. On a pensé avec raison que 
 dans ces occasions la violence est moins dan- 
 gereuse que la séduction. 
@@ -2513,15 +2513,15 @@ vrir d'opprobres.
 
 
 
-D*ANACHARSIS. 93 
+D'ANACHARSIS. 93 
 
 Un mari obligé de répudier sa femme doit 
-auparaTant s* adresser à un tribunal auquelpré- 
+auparaTant s' adresser à un tribunal auquelpré- 
 side un des principaux magistrats. Le même 
 tribunal reçoit les plaintes des femmes qui veu- 
 lent se séparer de leurs maris. G*est là qu*a- 
 pres de longs combats entre la jalousie et Ta- 
-mour, comparut autrefoisrépouse d^ Alcibiade, 
+mour, comparut autrefoisrépouse d' Alcibiade, 
 la Tertueuse et trop sensible Hipparète. Tan- 
 dis que d'ime main tremblante eÛe présentait 
 le placet qui contenait ses griefk^ Alcibiade 
@@ -2551,7 +2551,7 @@ delajoliMiuo 110 serriSDt ffakleaÛmusur, Les
 sàlhéDieimes , éloignées é» afikires pubUqttes 
 pur la eonslitiiCtoa du igonTernement , «t por^ 
 tées à la volupté par Tinfluenee du climal» 
-n*onl souTenl d'autre ambitioB que celle d'éfti>e 
+n'onl souTenl d'autre ambitioB que celle d'éfti>e 
 aimées, d'autre soin que celui de leur parure, 
 dVutre venu ^e la crainte du déshonneur, 
 ilittentives, pour la plupart » à se coiivrii* de 
@@ -2560,18 +2560,18 @@ rendues fameuses par leurs galanteries.
 
 Cette célébrité est réservée aux courtisan- 
 nés . Les lois Les protègent, pour corriger peut- 
-•être des vieesiÂus odieux; et les mœurs ne 
+être des vieesiÂus odieux; et les mœurs ne 
 ' -sont pas assez alarmées des outrages qu'elles 
 en reçoivent : Tabus va au point de blesser 
 ouvertement la bienséance et la raison. Une 
-épouse n*est destinée qu'à veiller sur l'intérieur 
+épouse n'est destinée qu'à veiller sur l'intérieur 
 de la maison, et qu'à perpétuer le nom d'une 
 fonitte, en donnant des enfims à la république . 
 Les jeunes gens qui entrent dans le moiïde, 
 des hommes d'un certain âge, des magistrats, 
 des philosophes, presque tous' ceux qui jouis- 
 sent d'un revenu honnête, réservent leurs com- 
-plaisanees et leurs attentions pour des m^i- 
+plaisanees et leurs attentions pour des m'i- 
 iresses qu'ils «ntretàeanent» chez qui ils pas- 
 
 
@@ -2584,7 +2584,7 @@ eonibiidant avee leurs enfuis légitimes.
 
 Qnelques-imes, éleYéesdansFartde séduire 
 par des fenmes qn joignent TeieiBple aux le^ 
-eoDs , s^empressent k Tenri de surpasser leurs 
+eoDs , s'empressent k Tenri de surpasser leurs 
 modèles. Les agrémens de la %iire et de la 
 jemessc, les grâces touchante» répandues sur 
 toute leur personne , Téléganee de ht parure , 
@@ -2600,13 +2600,13 @@ ner le reste de leur TÎe dans Topprehre et dans
 les regrets. 
 
 Malgré Tempire qu'exercent les eourtisan- 
-■es f dies ne peuvent paraître dans les mes 
+es f dies ne peuvent paraître dans les mes 
 a^ec des hijcmx précieux , et les gens en place 
 n-osent se montrer en publie arec elles. 
 
 Outre cet éèueil , les jeune» gens ont encore 
 à regretter le tempe qu'ils passent dans ces 
-■misooi fttaks, eu rm demie k jouer, ou se 
+misooi fttaks, eu rm demie k jouer, ou se 
 
 
 
@@ -2647,7 +2647,7 @@ D'ANACHARSIS. «7
 
 maiaons. Onlii sur les uns : maibor AYmmÊM, 
 
-MAISON A, LOUER : SUT d*auU*eS : C^KST L4 MàttOR 
+MAISON A, LOUER : SUT d'auU*eS : C'KST L4 MàttOR 
 
 d'un tel, que bien de mauvais h^bnteb céans. 
 Il m'en coûtait pour satisfaire 0|ette petite cu- 
@@ -2677,7 +2677,7 @@ d'une manière si barbare, qu'on les joue quel-
 
 
 
-•ff VOYAGE 
+ff VOYAGE 
 
 qaeSbm «ur k; théâtre; et îk aimetit le TÎn au 
 point qttBf poiH* dire : Boire à Texcès, on dit î 
@@ -2685,16 +2685,16 @@ Boire comme un Scythe,
 
 Le peuple est naturellement frugal ; les sa- 
 laisons et les légumes font sapi-incipale nour- 
-ritoire. Tous ceux qui n^ont pas de quoi -virre, 
+ritoire. Tous ceux qui n'ont pas de quoi -virre, 
 «oit qu^ils aient été blessés à ta guerre, soit 
 qoe Wors maux les l'endent incapàiiles de tra* 
 iviUer, reçoivent tous les jour» du trésor pu- 
-•Uio une ou deux oboles, que leur aecoûrde 
+Uio une ou deux oboles, que leur aecoûrde 
 rassemblée de la nation. De temps en temps 
 on examina dans le sénat le rôle de ceux qui 
 reçoivent ce bienfait, et Ton en exclut ceux 
 qui n'ont plus le même tilre pour le receroir. 
-Les pauvres obtiennenl encore d^autres soula- 
+Les pauvres obtiennenl encore d'autres soula- 
 gemens à leur misère : à chaque nouvelle lune, 
 les riche» exposent dans les carrefours, en 
 rhonneur de la déesse Hécate, des repas qu^on 
@@ -2705,12 +2705,12 @@ denrées, je l'ai perdue : je me rappeUe seule-
 ment que le prix ordînûre du blé était de cinq 
 drachmes par médirane >. Un bœuf de la 
 
-■ QvMire livre» dîx sous. En meitiAt U drachme à 
+ QvMire livre» dîx sous. En meitiAt U drachme à 
 diB^hnii sont , «t leasédimne à an peu plot <li»4|«ttre 
 
 
 
-O'AMACHAIISIS. S^ 
+O'AMACHAIISIS. S' 
 
 BKBUtfv tyinlitft 'VMMt myiTQii qiuitr6*^iii||^ 
 di^clmies * , un mouten , la dnquième purtM? 
@@ -2721,7 +2721,7 @@ On eoneoit aisément que ces prix liaussent
 dans les tenfisde disette. On a yu qudqiiefois 
 le médinine de froment meiiter de cinq aradk- 
 mes qui est son prix ordinaire, jusqu'à sôae 
-drachmes $ et celui de l*orge, jusqu'à dix-liuit. 
+drachmes $ et celui de l'orge, jusqu'à dix-liuit. 
 indépendumnent de cette cause passa^re, on 
 a-vait obsenré , lors de mon séjour à Athènes , 
 que, depuis environ soixante-dix ans, les den- 
@@ -2743,7 +2743,7 @@ livres.
 
 * Environ qaAtone livres bnit sont. 
 
-' Neuf livres. Yoyes la note • à la fin du volume. 
+' Neuf livres. Yoyes la note à la fin du volume. 
 
 
 
@@ -2773,7 +2773,7 @@ s'estime lui-même, et cette politesse qui fait
 ci'oire qu'il estime les autres. La bonne com- 
 pagnie exige de la décence dans les expres- 
 sions et dans l'extérieur : elle sait proportion- 
-ner aux t^nps et aux personnes les égards par 
+ner aux t'nps et aux personnes les égards par 
 
 ' Le ulem valait cinq mille quatre cents livres. 
 ' Neuf mille livres. Voyci la noie/ à la fin du vol. 
@@ -2815,21 +2815,21 @@ nerie; car chaque société a son ton parlicu-
 
 9» VOYAGE 
 
-lier. Cekâde la bonne compagnie s^est formé 
+lier. Cekâde la bonne compagnie s'est formé 
 presque de notre temps. 11 suffit , pour sVn 
 convaincre, de €ompai*er Tancien dwâtre avec 
-le MNireaa. 11 n^y a guère plus d*im demi-' 
-ûèele ({ue les comédies-étaient pleines d^injures 
-grossières et d^obcénifés révoltantes, qvCon ne 
+le MNireaa. 11 n'y a guère plus d'im demi-' 
+ûèele ({ue les comédies-étaient pleines d'injures 
+grossières et d'obcénifés révoltantes, qvCon ne 
 souf&rirait pas aujourd'hui dans la bouche des 
 acteurs. 
 
 Ou frouve dans cette vifle plusieurs sociétés 
-ànnt les membres s^engagent à s'assister mu-* 
+ànnt les membres s'engagent à s'assister mu-* 
 tueUement. L'un d'eux est-il traduit en jus- 
 tâce, est-il poursuivi par des créanciers, il im^ 
 piore le secours de ses associés. Dans le pre- 
-■near cas, il» raccompagnent au tribunal, et 
+near cas, il» raccompagnent au tribunal, et 
 kii servent, quand ils en Sont requis, d'avo- 
 cats ou de témoins } dans le second, ils lui avan- 
 cent les fonds nécessaires sans en exiger le 
@@ -2848,14 +2848,14 @@ fois des raotifoBoblea et généreux , ne se soir-
 D'ANÂCHAfiSlS. 93 
 
 lieutieiit awjoord'hui qo» p«r l'iajualke «t par 
-rintérét* Le riche s^y néle a^ec les pauvres» 
+rintérét* Le riche s'y néle a^ec les pauvres» 
 pour les en^pager à se parjurer en sa iaveiir; 
 le pauvre avec les riches , pour avoir qudqae 
 droit à leur protectioB. 
 
 Parmi ces sociétés, il s'en est étaUi une dont 
 riHÛque objet est de recueillir toutes les espè- 
-ces de ridicules , et de s^amuser par des sail- 
+ces de ridicules , et de s'amuser par des sail- 
 lies et des bons raote« lU sout au nombre de 
 -soixaute , tous gens fort gais et de beaucoup 
 xi'esprit; ils se réuniaseia de temps eu temps 
@@ -2889,10 +2889,10 @@ les ; ils se font remarquer par un manteau gros-
 sier, une cbaussm'e simple, une longue barbe, 
 un gros bâton , une démai*che lente, et , si je 
 Tose dire , par tout Tappareil de la modestie . 
-Les efibrts des premiers, bornés à s^ attirer Fat- 
+Les efibrts des premiers, bornés à s' attirer Fat- 
 iention , révoltent encore moins que ceux des 
 seconds, qui en veulent directement a notre 
-estime. J^ai vu des gens d^esprit traiter d^in- 
+estime. J'ai vu des gens d'esprit traiter d'in- 
 solence cette feusse simplicité. Ils avaient rai- 
 son. Toute prétention est une usurpation ; 
 car nous avons pour prétentions les droits des 
@@ -2959,12 +2959,12 @@ Le culte de ces dcraièrs diffère essentiell»-
 joent de celui des dieux , tant par l'objet qu'on 
 M propose que par les cérémonies qu'on j 
 pratique. Les Grecs se prosternent devant la 
-Divinité pour reconnaître leur dépendance ■, 
+Divinité pour reconnaître leur dépendance , 
 implorer sa protection , ou la i^emercier de ses 
 
 
 
-D*ANACHARS1S. 97 
+D'ANACHARS1S. 97 
 
 bien&its* Ih consacrent des temples , des au- 
 tels, des bois, et célèbrent des fêtes et des 
@@ -2978,7 +2978,7 @@ ne sont , à propremenl parler, adressés qu'aux
 dieux des enfers. 
 
 On enseigne des dogmes secrets dans les 
-mystères d*£leusis , deBacchus, et de quel- 
+mystères d'£leusis , deBacchus, et de quel- 
 ques autres diidnités. Mais la religion domi-^ 
 nante consiste toute dans Textérieur. Elle ne 
 présente aucun corps de doctrine , aucune ins- 
@@ -2992,7 +2992,7 @@ intervalLcs quelques actes de religion , conmie,
 par exemple , de paraître dans les temples aux 
 fêtes solennelles, et de présenter ses homma- 
 ges sur les autels publics. 
-• Le peuple fait uniquement consister la pieté 
+ Le peuple fait uniquement consister la pieté 
 
 
 
@@ -3005,7 +3005,7 @@ purifications.
 Des Prières. 
 
 Les particuliers adressent leurs prières aux 
-dieux au commencement d^une entreprise. Ils 
+dieux au commencement d'une entreprise. Ils 
 leur en adressent le malin, le soir, au lever 
 et au coucher du soleil et de la lune. Quelque- 
 fois ils se rendent au temple les yeux baissés 
@@ -3050,7 +3050,7 @@ rémonies. Le spectacle en est imposant. La
 place qui précède le temple, les portiques 
 qui Fenlourent sont remplis de monde. Les 
 prêtres s'aTancent sous le Testibule près de 
-Fautel. Après que Tofficiant a dit d*une toîx 
+Fautel. Après que Tofficiant a dit d'une toîx 
 sonora : « Faisons les libations et prions , » 
 un des ministres ^ubaltei*nes , pour exiger de 
 la part des assistans TaTcu de lem*s déposi- 
@@ -3073,7 +3073,7 @@ C>.»
 
 t«o T0TA6E 
 
-det l^mnes stères . Leurs voix sont sî toiiclMa»- 
+det l'mnes stères . Leurs voix sont sî toiiclMa»- 
 tes , et tellement secondées par le talent du. 
 |MMte 9 aUentif à choisir des sujets propices k 
 émouvoir, que la plupart des assistans fondent 
@@ -3094,7 +3094,7 @@ et À leurs plaisirs. Ces piières sont regardées
 comme des blasphèmes par quelques pfailoeo** 
 |dies, qui , persuadés que les hommes ne sont 
 paft assez éclairés sur leurs vivais intérêts, vo«^ 
-«Iraient qu'ils s^en rapportassent uniquement 
+«Iraient qu'ils s'en rapportassent uniquement 
 à la bonté des dieux , ou du moins qu'ils ne 
 leur aditessassent que cette espèce de formule 
 consignée dans les écrits d'un ancien poète : 
@@ -3115,7 +3115,7 @@ Amrefeîs OD ne présentait am dieux qne
 les frûts de la terre; ci Ten Toit encore 
 dans la Gi*éce plusieurs autels sur lesqnek 
 il n'est pas permîsd'inimoler des yietinies. Les 
-sacrifices sanglans s*introduinreiit aTee peine» 
+sacrifices sanglans s'introduinreiit aTee peine» 
 L'homme avait horreur de porter le fer dans 
 le sein d'un animal destiné au lahourage et 
 devenu le compagnon de ses travaux : une loi 
@@ -3171,10 +3171,10 @@ et auxquels on fait pailiciper les i
 
 D>MACHAASIS. io3 
 
-La ooimaissanee d^uue foule de pratiques ei 
+La ooimaissanee d'uue foule de pratiques ei 
 de détails coustitue le saToir des pi'étres. Tan- 
 tôt on répand de l'eau sur Fauiel ou sur la 
-tête de la victime ; tantôt c^est du miel ou de 
+tête de la victime ; tantôt c'est du miel ou de 
 l'huile. Plus communément on les aiTOse avec 
 du vin ; et alors on brûle sur Tautel du bois 
 de figuier, de myrte ou de vigne. Le choix de 
@@ -3242,13 +3242,13 @@ peuples , et ils le acmi encore aujouixi'hai cImx
 ^pielques^-ims d'entre eux. Ils cessèrent enfin, 
 parce que les cruautés absurdes et inutUea 
 eédenl tôt ou tard à la nature et à la raison. 
-Ce qui subsistera plus lon^emps , c^est Fa» 
-▼eugle oonlianoe que Ton a dans les actes-ex- 
+Ce qui subsistera plus lon^emps , c'est Fa» 
+veugle oonlianoe que Ton a dans les actes-ex- 
 térieurs de .religion. Les boomies iijnstes , les 
 scélérats mêmes osent se flatter de cori'ompre 
 les dieux par des présens , et de les tromper 
-par les d^ors de la piété. En vain les pbîlo- 
-sopbes s^élèvent conti*e une errem* si dauge<* 
+par les d'ors de la piété. En vain les pbîlo- 
+sopbes s'élèvent conti*e une errem* si dauge<* 
 reuse : elle sera toi^ours chère à la plupart 
 des hommes , parce cpi'il sei*a toujours plus 
 aisé d'aToir des irictimes (pie des vertus. 
@@ -3283,13 +3283,13 @@ Des Liutrations.
 Gomme Teau purifie le corps , on a pensé 
 qu^elle purifiait aussi Tâme , et qu^elle opérait 
 eet effet de deux manières , suit en la délivrant 
-de ses taches , soit en la disposant à n*en pas 
+de ses taches , soit en la disposant à n'en pas 
 contracter. De là deux sortes de lustrations , 
 les unes expiatoires, les autres préparatoires. 
 Par les premières, ou implore la clémence 
 des dieux ; par les secondes , leur secours. 
 
-On a soin de purifier les enfàns d^ abord 
+On a soin de purifier les enfàns d' abord 
 après leur naissance ; ceux qui entrent dans 
 les temples ; ceux qui ont commis un nfeurti-e, 
 même involontaire ; ceux qui sont affligés de 
@@ -3300,9 +3300,9 @@ rendre agréables aux dieux.
 
 
 
-D*AI<fACHARSlS. 107 
+D'AI<fACHARSlS. 107 
 
-Cette cérémoDÎe s^est insensîbleBieiit ap- 
+Cette cérémoDÎe s'est insensîbleBieiit ap- 
 pliquée aux temples y aux autels, a tous les 
 Heux que la di^rinité doit honorer de sa pré- 
 sence ; aux -villes, aux rues , aux maisons , aux 
@@ -3315,7 +3315,7 @@ le 6 du mois thargélion. Toutes les fois que
 le ceuiToux des dieux se déclare par la fami- 
 ne , par une épidémie ou d'autres fléaux , on 
 tâi^ de le détourner sur un homme et sur une 
-fènune du peuple , entretenus par l*£tiait pour 
+fènune du peuple , entretenus par l'£tiait pour 
 être, au besoin, des victimes expiatoires, 
 chacun au nom de son sexe. On les pi^oméne 
 dan» les rues au son des instrumeus; et, après 
@@ -3374,13 +3374,13 @@ D'AflACHAKSIS. 109
 <pi*ift fiilffit d'y plonger te^d fbki sa ièl« : la 
 pfaqMLil se eoiitentent de tremp«r lenra mains 
 «bas Teau lustrale , ou d'en recevoir Tasper- 
-sirni par les mams d^un prêtre , <{ui se tient 
+sirni par les mams d'un prêtre , <{ui se tient 
 poiEor eet effi^ k la porte du temple.' 
 
 Chaque particulier peut ofii-ir des sacri- 
 fices sur un autel placé à la poilé de sa mai- 
 son» 9a. dans une chapelle domesticpie. C'est 
-là que j*aî vu souvent un père vertueux , en** 
+là que j'aî vu souvent un père vertueux , en** 
 touré de ses enfans , conibodre leur hommage 
 avec le sien , et former des vœux dictés par 
 la tendresse et dignes d'être exaucés. Cette 
@@ -3390,7 +3390,7 @@ fallu établir des ministres pour le culte {ndblic .
 
 Des Prè<rei. 
 
-■ il n'est point de villes où Ton trouve autant 
+ il n'est point de villes où Ton trouve autant 
 de prêtres etdepréti'esses qu'à Athènes, parce 
 qu'il n'en est point oVi Ton ait élevé une si 
 grande quantité de temples , où l'on oâcbre 
@@ -3423,7 +3423,7 @@ la première des prétresses.
 On confie à des laïques des fonctions moins 
 saintes et relatives au service des temples. 
 Les uns sont chargés du soin de la fabrique 
-et de la gainie du trésor ; d^ autres assistent , 
+et de la gainie du trésor ; d' autres assistent , 
 comme témoins et inspectews , aux sacrifices 
 solennels. 
 
@@ -3440,9 +3440,9 @@ D'ANACHARSIS. m
 ndilesse dn maintien , le son de la toîx , et 
 surtout par les attributs de la divinité dont ils 
 sont les ministres. C'est ainsi que la prétresse 
-de Cérès parait couronnée de paTols et d*épis, 
+de Cérès parait couronnée de paTols et d'épis, 
 et celle de Minerve avec Té^e , la cuirasse 
-et un casque suimonté d^ aigrettes. 
+et un casque suimonté d' aigrettes. 
 
 Plusieurs sacei*doces sont attachés à des mai- 
 sons anciennes et puissantes , où ils se trans- 
@@ -3451,7 +3451,7 @@ par le peuple.
 
 O9 n'en peut remplir aucun sans im examen 
 qui roule sur la personne et sur les mœurs. Il 
-fiiut que le nouveau ministi'e n^ait aucune dif- 
+fiiut que le nouveau ministi'e n'ait aucune dif- 
 formité dans la figure , et que sa conduite ait 
 toujours été irrépi<ocliable. Â Tégard des lu- 
 mières, il suffit qu'il connaisse le rituel du 
@@ -3537,14 +3537,14 @@ mes, dépositaires des sciences, et surtout des
 
 ii4 VOYAGE 
 
-secrets cle la médecine ^ ils jouissent d*tin pou- 
+secrets cle la médecine ^ ils jouissent d'tin pou- 
 voir sans bornes , puisqu'ils gourement à leur 
 gré les préjugés et les feiblesses des honsnes. 
 Ceux de la Grèce ont obtenu des honneurs , 
 tels que des places <Ëstinguées aux spectacles^ 
 Tous pourraient se borner aux fonctions de 
 leur ministère , et passer leurs jours 'duis une 
-douce oisÎTeté. Cependant plusieurs d^entre 
+douce oisÎTeté. Cependant plusieurs d'entre 
 eux , empressés de mériter par leur zèle les 
 égai<ds dus à leur cai*actère > ont rempli tes 
 charges onéreuses de la république , et Tont 
@@ -3553,7 +3553,7 @@ seryie , soit dans les ai'mées , soit dans les am-
 
 
 Ils ne forment point un corps particulier et 
-indépendant. Nulle relation d^intérétenti*e les 
+indépendant. Nulle relation d'intérétenti*e les 
 ministi'es des diflërens temples; les causes mê- 
 me qui les regardent personnellement sont por^ 
 tées aux tribunaux oi'dinaires. 
@@ -3564,7 +3564,7 @@ toujours à la tête des cérémonies religieuses.
 Le second , connu sous le nom de Roi , est 
 chargé de poursuivre les délits contre la reli- 
 gion , de présider aux sacrifices publics , et 
-de juger les contestations qui s^ élèvent dans 
+de juger les contestations qui s' élèvent dans 
 les familles sacerdotales au sujet de quelque 
 
 
@@ -3593,7 +3593,7 @@ tées quelquefois k un prix excessif, que dé-
 pendent souvent les révoli^tious des gouver» 
 nemens et les opérations d'une campagne. On 
 en trouve dans toute la Grèce ; mais ceux de 
-l*£lide sont les plus renommés. Là, depuis, 
+l'£lide sont les plus renommés. Là, depuis, 
 plusieurs siècles , deux ou trois familles se 
 transmettent de père en fils Tart^de prédire 
 les événemens et de suspendre les maux dei. 
@@ -3613,7 +3613,7 @@ du ciel , auraient poursuivi en justice la mort
 de leur père coupable d'un meuilre. 
 
 Il parut il y a deux ou trois siècles des 
-hommes qui , n^ ayant aucune mission de la 
+hommes qui , n' ayant aucune mission de la 
 part du gouvernement , et s'érigeant en inter- 
 prètes des dieux , nourrissaient parmi le peu- 
 ple une crédulité qu^ils avaient eux-mêmes , 
@@ -3634,7 +3634,7 @@ Le peuple découvre des signes frappans de la
 
 
 
-D^ANACHARSIS. 117 
+D'ANACHARSIS. 117 
 
 Tolouté des dieux en tous temps , en tous lieux, 
 dans les éclipses , dans le bruit du tonnerre , 
@@ -3650,7 +3650,7 @@ mais<», élevez un autel dans le lieu même.
 Voyez -vous un milan planer dans les airs , 
 tombez vite à ;genoux. Yoti'e imagination est- 
 elle troublée par le chagrin ou parla maladie, 
-c^est Eupusa qui vous apparaît, c*est un fan- 
+c'est Eupusa qui vous apparaît, c'est un fan- 
 tôme envoyé par Hécate, et qui prend toutes 
 soi-tes de formes pour tourmenter les malheu- 
 reux. 
@@ -3681,7 +3681,7 @@ d'Orphée et de Musée.
 
 Des femmes la lie du peuple font le même 
 trafic. Elles vont dans les maisons pauvres dis- 
-tribuer une espèce d^initiation ; elles répandent 
+tribuer une espèce d'initiation ; elles répandent 
 deTeausur rinitié , le frottent avec de la boue 
 et du son, le couvrent d'une peau d'animal , et 
 accompagnent ces cérémonies de formules 
@@ -3713,7 +3713,7 @@ dieux P II est peimis de regarder Jupiter com-
 me un usurpateur qui a chassé son père du 
 Irone de Tunivers » et qui en sera chassé un 
 joui' par sou iils. Cette doctrine , soutenue . 
-parla secte des prétendus disci{des d^Orphée, 
+parla secte des prétendus disci{des d'Orphée, 
 Eschyle n'a pas craint de Tadopter dans une 
 tragédie que le gouTcmement n'a jamais em- 
 pêché de représenter et d'applaudir. 
@@ -3741,7 +3741,7 @@ nions licencieuses , <{se les jeunes gens em-
 brassèi<ent avec avidité} mais leurs auteurs 
 devinrent Tobjet de la haine publique. Le 
 peuple disaivqu'ils n'avaient scîcoué le joug 
-de la religion que pour s^abandom^r plus li- 
+de la religion que pour s'abandom^r plus li- 
 brement à leurs passions ; et le goirvememeni 
 se crut obligé de sévir contre eux. Voici com- 
 ment on justifie son intolérance. 
@@ -3760,7 +3760,7 @@ plaisanteries indécentes sur les actions qu'on
 leur attribue ; mais ils poui*suivent et fout pu- 
 nir de mort ceux qui parlent ou qui écrivent 
 contre leur existence , ceux qui brisent avec 
-m^ris leivs statues > ceux enfin qui violent 
+m'ris leivs statues > ceux enfin qui violent 
 
 
 
@@ -3786,10 +3786,10 @@ résulterait nécessairemeiit la ruine du culte
 tre cas , ils sont poûi'Siiivis comme coupables 
 d'impiété. 
 
-Cette accusation est d*autant plus redouta- 
+Cette accusation est d'autant plus redouta- 
 blepourFinnocence, qu'elle a servi plus d'une 
 fois d'instrument à la haine , et qu^elte enflaror 
-me aisément la fureur d*un peuple dont le zèle 
+me aisément la fureur d'un peuple dont le zèle 
 est {dus cruel eiioore que celui des magistrats 
 et de» prêtres. 
 
@@ -3809,8 +3809,8 @@ le sénat en pi'end connaissance , à moins que
 Taccusé ne se poui*vote devant lesËumolpides: 
 car cette femille sacerdotale , attachée de tout 
 ten^ au temple de Gérés, conserre une ju- 
-ridiction qui ne s*exei*ce que sur la profana- 
-tion des mystères , et qui est d^une extrême 
+ridiction qui ne s'exei*ce que sur la profana- 
+tion des mystères , et qui est d'une extrême 
 sévérité. Les Ëumolpides procèdent suivant 
 des lois non écrites » dont ils sont les interprè- 
 tes , et qui livrent le coupable non seulement 
@@ -3836,7 +3836,7 @@ màat ^ers Toocideiit , et , secouant leun robes
 de poui'pi*e , ils dévouent aux dieux infernaux 
 le coupable et sa postérité. On est persuadé 
 que les fîuîes s ^emparent alors de son cœur , 
-et que leur rage n^est assouvie que lorsque 
+et que leur rage n'est assouvie que lorsque 
 sa raee est éteinte. ^ 
 
 La fiunille sacerdotale des Eumolpides mon- 
@@ -3848,7 +3848,7 @@ les tribunaux de justice. Cependant il làut
 dire à leur louange qu'en certaines occasions, 
 Icnn de seconder la ftffeur du peuple prêt à 
 massacrer sur-le-champ des particuliers ac- 
-cusés d^ avoir profané les mystères , ils ont 
+cusés d' avoir profané les mystères , ils ont 
 exigé que la condamnation se fît suivant les 
 lois. Parmi ces lois , il en est une qu'on a 
 quelcpiefois exécutée , et qui serait capable 
@@ -3865,12 +3865,12 @@ puix jugemens que les tribunaux d'Athènes
 
 194 VOYAGE 
 
-ont prononcés contre le crime d^impiété de- 
+ont prononcés contre le crime d'impiété de- 
 puis environ un siècle. 
 
 Le poète Eschyle fiit dénoncé pour avoir, 
 dans une de «es tragédies , révélé la doctrine 
-des mystéi'cs. Son frère Aminias tâcha d^é* 
+des mystéi'cs. Son frère Aminias tâcha d'é* 
 mouvoir les juges en montrant les blessures 
 qu'il avait reçues à la bataille de Salamine. Ce 
 moyen n'aurait peut-être pas suffi, si Eschyle 
@@ -3898,13 +3898,13 @@ cigufi pour avoir avancé que les hommes
 
 
 
-D^ANACHARSIS. ii5 
+D'ANACHARSIS. ii5 
 
 aTaient mis au rang des dieux les êtres dont 
 ils retiraient de Futilité , tels que le soleil , la 
 lune , les fontaines , etc. 
 
-La làctiou opposée à Pcriclès , n*osant l'at- 
+La làctiou opposée à Pcriclès , n'osant l'at- 
 taquer ouvertement, résolut de le perdi^e par 
 une Toie détournée. Il était ami d'Anaxagore, 
 qui admettait une intelligence suprême. En 
@@ -4034,11 +4034,11 @@ lieui*eux pays. Conune elles ont entre elles
 beaucoup de traits de conformité , on me re- 
 prochera peut-être de retracer les mêmes ta- 
 bleaux. Mais ceux qui décrivent les guerres 
-des nations n^ exposent-ils pas à nos yeux une 
+des nations n' exposent-ils pas à nos yeux une 
 suite unifoi'me de scènes meurtrières ? Et 
 quel intérêt peut-il résulter des peintures qui 
 ne présentent les honmies que dans les con- 
-vulsions de la fureur ou du désespoir ? N^est- 
+vulsions de la fureur ou du désespoir ? N'est- 
 il pas plus utile et plus doux de les suivre 
 dans le sein de la paix et de la liberté , dans 
 ces combats où se déploient les talens de Tes- 
@@ -4054,7 +4054,7 @@ sir tous ses attraits ?
 Ces instans de bonheur, ménagés adroite- 
 ment pour suspendre les di'visions des peu- 
 ples, et arracher les pai*ticuUer8 au sentiment 
-de leurs peines : ces instans , goûtés d^avance 
+de leurs peines : ces instans , goûtés d'avance 
 par Tespoir de les voir renaître , goûtés, après 
 qu'ils se sont écoulés , par le souyenir qui les 
 perpétue, j'en ai joui plus d'une fois ; et, je 
@@ -4075,17 +4075,17 @@ l'istlmie de Gorinthe ; et , noas étant embar-
 qués à, Pagœ , nous entrâmes dans le golfi» 
 de Oissa , le jour même où commençait la 
 
-' Au çpmmencement d^arril de Pan 36 1 avant J. C. 
+' Au çpmmencement d'arril de Pan 36 1 avant J. C. 
 
 
 
 D'ANACHARSIS. t3i 
 
-fêle ■ . Précédés et suItû d'un grand nombre 
+fêle . Précédés et suItû d'un grand nombre 
 de bâtimeo^ légers , nous abordâmes à Qrrba, 
 petite y'ûïe située au pied du mont Cirpbis. 
-Entre ce mont et le Parnasse , s*étond une 
-▼allée où se font les courses des cbevaux et 
+Entre ce mont et le Parnasse , s'étond une 
+vallée où se font les courses des cbevaux et 
 des chars. Le Plistus y coule à travers des 
 prairies riantes , que le printemps parait de 
 ses couleurs . Après avoir visité TH^podrome, 
@@ -4100,13 +4100,13 @@ rens plans , à travers les édifices qui embel-
 lissent la ville. L'or dont la plupart sont cou- 
 vertes, frappé des rayons naissans du soleil , 
 briUait d'un éclat qui se répandait au loin. En 
-même temps, on voyait s* avancer lentement 
+même temps, on voyait s' avancer lentement 
 dans la plaine et sur les collines des proces- 
 sions composées déjeunes garçons et de jeunes 
 
 < Ces jeux se célébraient dans la ironième ann^ de 
 chaque olympiade , yers les premiers jours du mois 
-munychion , qui , dans Tannée que j^ai choisie , com- 
+munychion , qui , dans Tannée que j'ai choisie , com- 
 menoail au 1 4 avril. 
 
 
@@ -4116,7 +4116,7 @@ t3> VOYAGE
 fiUes qw semblaient se disputer le prix de la 
 niAgiiificenee et de la beauté. Du bantdes 
 montagnes , des ri-vages de la mer, un peuple 
-inmenae s^empressait d^arriver à Delphes ; et 
+inmenae s'empressait d'arriver à Delphes ; et 
 la aérémté du jour» jointe à la douceur de 
 Tair cpi'on respre en ce climat , prétait de 
 BOUTeaux ekarmes aux impressions que nos 
@@ -4178,7 +4178,7 @@ marqualiles de l'histoire , et <pie l'art de la
 
 i34 VOYAGE 
 
-sculpture brille avec plus d^éclat que dans tous 
+sculpture brille avec plus d'éclat que dans tous 
 
 les autres cantons de la Grèce. 
 
@@ -4304,7 +4304,7 @@ ples et les particuliers ont porté des sommes
 
 ' Dix-sept pteds. 
 
-" Cest Alexandre !«', un des prédécesseurs d^A- 
+" Cest Alexandre !«', un des prédécesseurs d'A- 
 lexandre<le-G rand . 
 
 
@@ -4331,7 +4331,7 @@ autres singularités, un livre en or qu' avait
 présenté une femme nommée Aristomaque , 
 qui avait remporté le prix de poésie aux jeux 
 isthmiques. Nous vîmes dans celui des Siph- 
-niens une grande quantité d*or provenu des 
+niens une grande quantité d'or provenu des 
 mines qu'ils exploitaient autrefois dans leui* 
 île ; et dans celui des habitans d'Acanthe, des 
 obélisques de fer présentés par la couinisane 
@@ -4353,7 +4353,7 @@ PHOCÉENS, DES TDESSALIENS ; LES ORNÉATES , DES
 
 siCTONiENS, etc. Ces inscriptions furent tracées 
 avec le sang de plus de cent mille Gi*ecs ; le 
-dieu n^est entouré que des monumens de ses 
+dieu n'est entouré que des monumens de ses 
 fureurs ; et vous êtes étonné que ses prêtres 
 aient accepté Thommage d'une courtisane ! 
 
@@ -4372,7 +4372,7 @@ racle , fut si content de sa réponse , qu'il fît
 porter à Delphes, 1° cent dix-sept demi plin- 
 
 ' Les cratères étaient de grands vases en forme de 
-coupes , où Ton faisait le mélange du vin et de l^eau. 
+coupes , où Ton faisait le mélange du vin et de l'eau. 
 
 * Voyez , tant pour cet article que pour les suivans, 
 la note g qui se trouve à la fin du volume. 
@@ -4381,7 +4381,7 @@ la note g qui se trouve à la fin du volume.
 
 i4o VOYAGE 
 
-thés I d'or épaisse» d*uo palme, la plupart lon- 
+thés I d'or épaisse» d'uo palme, la plupart lon- 
 gues de six palmes et larges de trms, pesant 
 chacu&e deux talens , à rexception de quatre, 
 qui ne pesaient chacune qu'un talent et demi. 
@@ -4410,7 +4410,7 @@ l'auti'c mk argent.
 50 Une statue en or représentant, à ce qu'on 
 
 ^ On entend communément par plinthe un membre 
-d^archiiecture ayant U forme d^unepeii^ lable carrée. 
+d'archiiecture ayant U forme d'unepeii^ lable carrée. 
 
 
 
@@ -4421,16 +4421,16 @@ prince. Cette statue a trois coudées de hau-
 teur, et pèse huit talens. 
 
 6^ A ces richesses Crésus ajouta quantité 
-de lingots d^ argent , les colliers et les ceintures 
-de son épouse , et d^autres présens non moins 
+de lingots d' argent , les colliers et les ceintures 
+de son épouse , et d'autres présens non moins 
 précieux. 
 
 Gléon nous montra ensuite un cratère en 
-• ôr que la ville de Rome en Italie avait envoyé 
+ ôr que la ville de Rome en Italie avait envoyé 
 k Delphes. On nous fit voir le coUim* d'Hélè- 
 ne. Nous comptâmes , soit dans le temple , soit 
 dans les difiëreus trésors , trois cent soixante 
-fioles d W pesant chacune deux mines * • 
+fioles d W pesant chacune deux mines * 
 
 Tous ces trésors réunis avec ceux dont je 
 nVi point fait mention montent à des sommes 
@@ -4484,7 +4484,7 @@ Gomme nous parûmes douter de ce fait ,
 D'ANACHAHSIS. i43 
 
 déon ajouta , pour le conflrmer : Cette colon- 
-ne placée auprès de la statue d^Hiérouy i*oi de 
+ne placée auprès de la statue d'Hiérouy i*oi de 
 Syracuse , ne fot^elle pas renversée le jour 
 même de la mort de ce prince P Les yeux de 
 la statue de ce Spai*tiate ne se détachèrent-îls 
@@ -4575,8 +4575,8 @@ mais le fî'ontispice est de marbre de Pai*os.
 ' Yen Pan 4 13 avant J. C. 
 
 » Celaient de» dëpniës de difTà^te» ville» qui 
-•^assemblaient tons les ans à Delphes, et qui avaient 
-Pinspection du temple. J^en parlerai dans la suite. 
+^assemblaient tons les ans à Delphes, et qui avaient 
+Pinspection du temple. J'en parlerai dans la suite. 
 
 3 Un million six cent mille livres : mais le talanl 
 eUit alors plus fort qu'ail ne le fut dans la suite ; on 
@@ -4586,10 +4586,10 @@ peut ajouter quelque chose à celle évaluation.
 
 i46 VOYAGE 
 
-Deux sculpteurs d* Athènes ont représenté sur 
+Deux sculpteurs d' Athènes ont représenté sur 
 le fronton Diane , Latone , Apollon , les Mu- 
 ses , Bacchus f etc. Les chapiteaux des co- 
-lonnes sont chai'gés de plusieurs espèces d*ar^ 
+lonnes sont chai'gés de plusieurs espèces d'ar^ 
 mes dorées, et suilout de boucliers qu'offri- 
 rent les Athéniens en mémoire de la bataille 
 de Marathon. 
@@ -4619,7 +4619,7 @@ couvrent un sens profond. 11 signifie, en effet.
 
 D'ANACHARSIS. 147 
 
-vous ÂTE8. C^est Taveu de notre néant, et un 
+vous ÂTE8. C'est Taveu de notre néant, et un 
 hommage digne de la diTÎnité, à qui seule 
 Texistence appartient. 
 
@@ -4627,9 +4627,9 @@ Dans le même endroit nous lames , sui* une
 tablette suspendue au mur , ces mots tracés 
 en gros caractères : que PERsortifs n' approche 
 
-DE CES LIEUX, S^IL n\ P4S LES MAINS PURES. 
+DE CES LIEUX, S'IL n\ P4S LES MAINS PURES. 
 
-Je ne m^arréteind point à décrire les ri- 
+Je ne m'arréteind point à décrire les ri- 
 cHesses de T intérieur du temple ; on peut en 
 juger par celles du dehon. Je dirai seulement 
 <{u'on y voit une statue colossale d'Apollon en 
@@ -4664,7 +4664,7 @@ prédictions , et la vapeur de l'antre pour un
 souffle divin qui dévoile r avenir V 
 
 Plusieurs ministres sont employés dans le 
-temple. Le, premier qui s^ offre aux yeux des 
+temple. Le, premier qui s' offre aux yeux des 
 étraogers, est un jeune homme, souvent éle- 
 vé à Tombre des autels , toujours obligé de 
 vivre dans la plus exacte continence, et char- 
@@ -4694,18 +4694,18 @@ sont dans l'enceinte sacrée .
 Les prophètes exercent un ministère plus 
 relevé : ils se tiennent auprès de la Pythie , 
 reeueillent ses réponses , les arrangent , les 
-interprètent , et quelquefois les confient à d^ au- 
+interprètent , et quelquefois les confient à d' au- 
 tres ministres qui les mettent en vers. 
 
 Ceux qu'on nomme les saints partagent les 
 fonctions des prophètes. Ils sont au nombre 
 de cinq. Ce sacerdoce est perpétuel dans leur 
 Êimille , qui prétend tirer son origine de 
-Deucalion. Des femmes d*un certain âge sont 
+Deucalion. Des femmes d'un certain âge sont 
 chargées de ne laisser jamais éteindre le feu 
 sacré , qu'elles sont obligées d'entretenir avec 
 du bois de sapin. Quantité de sacrificateurs « 
-d'augures , d'aruspices et d* officiers subalter- 
+d'augures , d'aruspices et d' officiers subalter- 
 nes , augmentent la majesté du culte , etne su^ 
 fisent qu'à peine à l'empressement des étran- 
 gei's qui viennent à Delphes de toutes les parties 
@@ -4713,7 +4713,7 @@ du monde.
 
 Outi'e les sacrifices offerts en actions de 
 grâces, ou pour expier des fautes, ou pour 
-implorer là protection du dieu , il en est d^au- 
+implorer là protection du dieu , il en est d'au- 
 très qui doivent précéder la réponse de Tora- 
 
 
@@ -4727,7 +4727,7 @@ Pendant qu'on nous infitruisaitde ces détails,
 nous vîmes arriver au pied de la montagne , et 
 dans le chemin qu^on appelle la voie sacrée , 
 une grande quantité de chariots remplis d'hom- 
-mes , de femmes et d*enfans , qui , ayant mis 
+mes , de femmes et d'enfans , qui , ayant mis 
 pied à terre , formèrent leurs rangs , et s'a- 
 vancèrent vers le temple en chantant des 
 cantiques. Ils venaient du Péloponése offrir 
@@ -4918,7 +4918,7 @@ mes dans le temple la tête couronnée de lau-
 i56 VOYAGE 
 
 riei*, et tenant dans nos mains un rameau en- 
-touré d^une bandelette de laine blanche. C'est 
+touré d'une bandelette de laine blanche. C'est 
 avec ce symbole que les supplians approchent 
 des autels. 
 
@@ -4971,7 +4971,7 @@ peur qui l'oppressait , ni s'élancer du trépied
 où les prêtres la retenaient , elle déchira son 
 bandeau; et-, au milieu des hurlemensles phis 
 afireux, elle prononça quelques paroles que 
-les prêtres s*empressèrent de recueillir. Us les 
+les prêtres s'empressèrent de recueillir. Us les 
 mirent tout de suite en ordre, et nous les don- 
 nèrent par écrit. J'avais demandé si j'aurais 
 le malheur de survivre à moit ami. Philotas, 
@@ -5013,10 +5013,10 @@ couvrent leur suffit pour les exclure ; et Ton
 
 
 
-D^ANACHARSIS. 169 
+D'ANACHARSIS. 169 
 
 a vu des aruspices mercenaires fouiller dans 
-les entrailles d^un animal , en enlever des par- 
+les entrailles d'un animal , en enlever des par- 
 ties intégi*antes , et faire recommencer le sa- 
 ciifice. 
 
@@ -5081,7 +5081,7 @@ rible : « Que les particuliers, que les peuples
 D'ANACHARSIS. i6« 
 
 -« qui oseront enfreindre ce serment , stMent 
-« exécrables aux yeux d^ Apollon et des autres 
+« exécrables aux yeux d' Apollon et des autres 
 « divinités de Delphes ! que leurs terres ne 
 « {Ibrtent point de fruits ! que leurs femmes 
 «et leurs troiq»eaux ne produisent que des 
@@ -5106,21 +5106,21 @@ le milieu de la carrière.
 Les courses étant achevées , nous remon-^ 
 iâmes à Delphes pour être témoins des hon- 
 neurs funèbres que la théorîe des Enianes 
-devait rendre aux mânes de Néoptolème ,• et 
+devait rendre aux mânes de Néoptolème , et 
 de la cérémonie qui devait les pi>écéder. Ce 
 
 
 
 pQUfkle» qui mot AchiUe a« m)iiibre.de ««0 ai»- 
 mens XX»» f fQt^'hQQQre spéciaUoneot la mé- 
-iBoive de ce jbérqs et deaoa iUs D^éi^ptolènie , 
+iBoive de ce jbérqs et deaoa iUs D'éi^ptolènie , 
 liabîte aufHiès du monijtcQEta , dans ia Thes^ 
 MJUe. Il enircÂe lou^ les quati« aos une dépu- 
 tatioa à Delphes , jocm-^eulement pour offrir 
 des saenfices.auiL.dWmités de ces ueux , mais 
 encore |x>ur foire des libations et des prières 
 sur le tombeau de Néoptoléme , qui périt ici 
-«u pied des autels , .par la main d^Oreste , fils 
+«u pied des autels , .par la main d'Oreste , fils 
 d'Agamemnon. Elle s'était acquittée la Teille 
 <du .premier de ses devoirs y elle allait s'acquit- 
 . ier du second. 
@@ -5135,7 +5135,7 @@ tlvement de.cent boeufs , dont les uns avaient
 les cornes dorées, et dont les autres étaient 
 ornés de couronnes. et de guirlandes de fleurs. 
 Ils. étaient conduits par autant de Xhessaliens 
-▼etus de hlanc et tenant des haches sur leurs 
+vetus de hlanc et tenant des haches sur leurs 
 épaules. D'autres victimes suivaient , et Tan 
 avait «plaoé par intervalles des mumens qui 
 
@@ -5149,7 +5149,7 @@ trûts attiraient tous les pegasds. filles TDaa>
 cbaient d'iin pas i^glé, chantant des liymnes 
 on rbonneur de Thétis « mère d'Atihille , et 
 portant dansleurs mains ou sur leurs tâtes des 
-corbeilles remplies de fleurs , de fiiiite et d*a- 
+corbeilles remplies de fleurs , de fiiiite et d'a- 
 imoïjaiBXes précieux iieUes étaient suivies de .ci»- 
 quaate jeunes Tbessaliens montés sur des cbe^ 
 yaux su^rbes , .qui blancbissaieut leurs mors 
@@ -5222,7 +5222,7 @@ mer. Ici , c'est Hélène accompagnée de deux
 de ses femmes , entourée de plusieurs Troyens 
 blessés dont elle a causé les malheurs , et de 
 plusieurs Grecs qui semblent contempler en- 
-core sa beauté. Plus loin , c^est Cassandre 
+core sa beauté. Plus loin , c'est Cassandre 
 assise par terre au milieu d'Ulysse , d'Ajax , 
 d'Agamemnon et de Ménélas, immobiles et 
 debout auprès d'un autel : car , en général , 
@@ -5246,13 +5246,13 @@ tnt¥aillak pour un lieu voifliii dit tombeau è&
 On épl'Ottvo fortemeiift les impresnons de- 
 là terreup et de la' pitié> quand on considère 
 le' corps de Priam et eeux- de ses- principaux 
-chefs ,• étendus couvert8«de blessures et aban»- 
+chefs , étendus couvert8«de blessures et aban»- 
 donnés au milieu des ruines d'une yille autre- 
 fois si florissante : on lètf éprouve à Taspeot 
 de clBt enfent qui, entre les bras d'iui' vieilt 
 esclave, porte sa- main* devant ses yeux pour 
 se caoker rhorrenr dont il est environné ; de 
-oet autre enâuit qui, saisi d^épçuvante , court' 
+oet autre enâuit qui, saisi d'épçuvante , court' 
 embrasser un autel; de ces femmes troyennes* 
 qui y assises par ten« et presque entassées hes 
 unes sur les^autres, paraissent succomber mur 
@@ -5262,17 +5262,17 @@ heureuse Andromacpie tenant son fils sur ses
 genoux. Le peintre nous a laissé voir la doth 
 leur de la plus jeune des pHncessest On ne 
 peut juger de celle des deux autres; leur tête 
-est couverte d^un voile. 
+est couverte d'un voile. 
 
 Eir ce moment nous nous^rappelâmes qu^ott' 
 faisait un mérite à Timanthe d'avoir, dans son* 
-sacrifice d^Ipbigéftie y voilé la tête d*Agametti- 
+sacrifice d'Ipbigéftie y voilé la tête d'Agametti- 
 
 
 
-D*ANA€HA'RSIS. Hi? 
+D'ANA€HA'RSIS. Hi? 
 
-dob; Gén» iuia^ avait déjà été «m^b^ée* par 
+dob; Gén» iuia^ avait déjà été «m'b^ée* par 
 Ekiripide , <{ùi' FaVait sans doulJè eih]praiitée de 
 Polfgnote. Quoi<{u'il en soit, dbtis un des 
 coiifts du tableau cjue je TÎëtis ât décrii<e , on 
@@ -5283,7 +5283,7 @@ eat en i^ets , comme le sont presque toutes
 ceHeS qui doivent éteitiiber les tomJi ou les 
 ftil»célébi^. 
 
-S^ le nnir epposé, Poljrghote a peint la 
+S' le nnir epposé, Poljrghote a peint la 
 deKeenre d'Ulysse aux enfelrs , confonnéméril 
 aiûBCtétAti d'Homère et dés aul!res poètes. La 
 l>arque de Garon , l'éVocatlbn de Tombre de 
@@ -5297,7 +5297,7 @@ et il fe ftdt étrangler pai* «on père. J'observai
 encore qu'aux tourtnens de Tantkle, il en ajoù- 
 taiv un'^i tietit ce malheut^ux prince dans un 
 effroi) eotadutiel: c'est un' rocKl^r énorme tou- 
-jours près de tôtaber sur sa t^te; mais celle 
+jours près de tôtaber sur sa t'te; mais celle 
 idée , il Pavait plîse du pôëte ArcbiloqUe. 
 
 
@@ -5372,7 +5372,7 @@ i^tt VOYAGE
 
 endtei*. Il est si vaâtè, cjue , lots de rex|>édi^ 
 tion de Xereès , là plupart dés habitîatiis de 
-Delphes prirent le parti de s^y réUlgier. Oh 
+Delphes prirent le parti de s'y réUlgier. Oh 
 nous montra' dut environs quantit» de grottes 
 qui excitëiit là vénéradoti des peuples ; eardiaiis 
 ces lieux solitaires tout' est sacré et peuplé de 
@@ -5384,7 +5384,7 @@ des yallées agréables , des bouquets dé pins ,
 des terres suseeptible^-de cultui^ , desrocbers' 
 qui ihenaçkient nos tétés-, des précipices qui 
 settiblaient s'ouvrit:' sous nos pas ; quelquefois 
-des pointas dé vue , d*où nos regards tombaient 
+des pointas dé vue , d'où nos regards tombaient 
 à une ti*és gk'ande profondeur sur les campa*- 
 gnes voisines. Nous entrevîmes auprès de Pa- 
 nopée, ville située sur les confms de la Pho- 
@@ -5404,14 +5404,14 @@ D'âNÀGHâRSIS. 171
 
 hts esôèâ^auxquel»'«lleft se ]iir»eAtiie sur- 
 prendront point ceux qsà àavent combien il est* 
-aisé d^exalter FimagiiâitiotiTive et ardente dtei^ 
+aisé d'exalter FimagiiâitiotiTive et ardente dtei^ 
 femmes grecques. On en a Vu plus d'uue ibilt 
 un grand nonàire se répandre ccmuÉie des tor* 
 rens dans les villes et dams déâ prôVuioeséU^ 
 liéres , toutes échevelées eV à demi nues , tOur 
 te» poussant des hurlemens ef&ô^^ables. Il nV 
 yaife ihllu qu'une étiucelle ^Ur ]^rôduire ees- 
-embrasemens. Quelcpies^unes d^ebtre ellb^, 
+embrasemens. Quelcpies^unes d'ebtre ellb^, 
 saisies «out à coup d'un esprit de vertige', M 
 oroyaieUt poussées pap Uûe inspiration divine, 
 et fkisaient passer ces frénétiques transports à 
@@ -5507,10 +5507,10 @@ aviMmit lait .une ûruptiaD dans leur pays , ils
 consUwsicem wi gnÂd Jbûcheir> aupsès duquel 
 ib pAacèi^eQt les feiïmes , les eoÊms , -For, l'as» 
 gçtnt , et les .iQeid>les les plus précieux ; ils en 
-coniiéreut la j^arde à trente de leurs guerriers, 
+coniiéreut la j'arde à trente de leurs guerriers, 
 «lyec ordre , eu cas .de défaite , d'égorger le» 
 CWQoes elles eittos , de jeter dans les flammes 
-les e^^ coi;ifiés à leurs soins, de s^€ntre4.uer 
+les e^^ coi;ifiés à leurs soins, de s'€ntre4.uer 
 eiliL-Qiéniies , ou de venir sur le chanq> de ba- 
 tiôUe pàrir avec le reste de la nation. Le com- 
 bat fut long, le massacre borrible : les Thes- 
@@ -5532,16 +5532,16 @@ dôme» Guerre sociale.
 
 
 VxKDkHT que nous étions aux jeux py^- 
-ques , nous entendîmes plus d*une fois parier 
-de lademiére expédition .d^Agésilas : à notre 
-Détour, nous apprîmes sa pnort ■ . 
+ques , nous entendîmes plus d'une fois parier 
+de lademiére expédition .d'Agésilas : à notre 
+Détour, nous apprîmes sa pnort . 
 
 Tachos , roi d'Egypte , prêt à<(àipe une ir- 
 ruption en Perse , assembla une armée de 
 quatre-TÎngt mille hommes , et voulut la sou- 
 tenir par un corps de dix mille Grecs, parmi 
 ^escpiels se trouyérent mille lAoédémoniens 
-•commandés par Agésilas. On fut étonné de 
+commandés par Agésilas. On fut étonné de 
 voir ce prince , à Tage de plus dequatre-yingls 
 
 * Dans la 3' sonée de U 4* olympiade , laquelle 
@@ -5552,7 +5552,7 @@ rc^nd aux années 36s et 36 1 ayant J. C.
 i7« VOYAGE 
 
 ans , se transporter au loin pour se mettre à la 
-solde d^une puissance étrangère. Mais Lacé- 
+solde d'une puissance étrangère. Mais Lacé- 
 démone voulait se venger delà protection cpie 
 le roi de Perse accordait aux Messéniens ; elle 
 prétendait avoir des obligations à Tachos ; elle 
@@ -5564,7 +5564,7 @@ des prétextes poui* Agésilas, se joignaient des
 considérations qui lui étaient personnelles. 
 Comme son âme active ne pouvait supporter 
 ridée d'une vie paisible et d'une mort obscure, 
-il vit tout à coup une nouvelle carriéi'e s^ ouvrir 
+il vit tout à coup une nouvelle carriéi'e s' ouvrir 
 à ses talens ; et il saisit avec d'autant plus de 
 plaisir l'occasion de relever Téclat de sa gloi- 
 re , terni pai* les exploits d'Epaminondas , que 
@@ -5574,7 +5574,7 @@ dement de toute l'armée.
 Il partit. Les Egyptiens l'attendaient avec 
 impatience. Au bruit de son arrivée , les prin- 
 cipaux de la nation , mclés avec la multitude , 
-s'empressent de se rendre auprès d^un héros 
+s'empressent de se rendre auprès d'un héros 
 qui , depuis un si grand nombre d'années » rem- 
 plissait la terre de son nom. Ils trouvent sur le 
 rivage un petit vieillard d'une figure ignoble , 
@@ -5733,10 +5733,10 @@ Macédoine : .le ;génie de Philippe le contrait.
 .La nation^p^rsyadée que., de ra^euiméme des 
 .dieux , .celui-4à seul dayait la gQuveroer ^i 
 pouvait la déiCcYldrc » lui remit Fautorité souve- 
-raine , dont elle dépQuilla.le j^ de Perdiccas. 
+raine , dont elle dépQuilla.le j' de Perdiccas. 
 
 .Encouro^é par ce choix > ^ .réuoit'une par- 
-tie, de la Péonie à la M^icédoine , battit les IJ- 
+tie, de la Péonie à la M'icédoine , battit les IJ- 
 lyriens^ ct^es irenfenna dans leurs anciennes 
 iimites. 
 
@@ -5754,7 +5754,7 @@ i8a VOYAGE
 que Philippe savait colorer de prétextes spé- 
 cieux. 
 
-Mais rien n^augmenta plus sa puissance que 
+Mais rien n'augmenta plus sa puissance que 
 la découverte de quelques mines d'or qu'il fit 
 exploiter, et dont il retira par an plus de mille 
 talens '. Il s'en servit dans la suite pour cor- 
@@ -5789,7 +5789,7 @@ tait la jalousie. Le trait suivant donnera une
 idée de ses talens militaires. Il était sur le 
 point d'être vaincu par Agcsilas. Les troupes 
 qui étaient à sa solde avaient pris la fuite , et 
-celles d^ Athènes s'ébranlaient pour les suivre. 
+celles d' Athènes s'ébranlaient pour les suivre. 
 Dans ce moment , il leur ordonne de mettre 
 un genou en terre et de se couvi-ir de leurs 
 boucliers , les piques en avant. Le roi de La- 
@@ -5927,7 +5927,7 @@ nomme chorége, doit être âgé au moins de
 quarante ans. II choisit lui-même ses acteurs , 
 qui , pour Tordinairb , sont pris dans la classe 
 des cnfans et dans celle des adolescens. Son 
-intérêt est d*avoir un excellent joueur de flûte 
+intérêt est d'avoir un excellent joueur de flûte 
 
 
 
@@ -5939,7 +5939,7 @@ régler leurs pas et leurs gestes. Comme il est
 .^re les concurrens , et c[ue ces dquf institu- 
 teurs décident «cuvent de la victoire^, un des 
 premiers .msLgistrats de la république les fait 
-.tirer au sort, en présence des d^^érei^tes 
+.tirer au sort, en présence des d'^érei^tes 
 .U'oupes et de différens choréges. 
 
 .Quelques mois avant Jes fêtes , on com- 
@@ -5956,7 +5956,7 @@ d'Aristide, d'Epaminondas et des plus grands
 hommes , qui se sont (ait un honneur de les 
 remplir; mais elles sont si dispendieuses, 
 qu'on voijt plusieurs citoyens refuser le dan- 
-gereux honneur de sacrifier une partie de l^urs 
+gereux honneur de sacrifier une partie de l'urs 
 biens à l!espéra;^Qe incertaine de s'élever ^par 
 cejmoyen aux premières magistratures. 
 
@@ -5968,10 +5968,10 @@ chorége ; alors c'est l'Etat qui se charge de
 D'ANACITARSIS. 189 
 
 tous lès frais , ou <}ui ordonne à deux citoyens 
-de s^associer pour en supjiorter le poids , ou 
-qui permet au chorége d*une tribu de con- 
-duire le chœur de l^aùtre. J'ajoute que chaque 
-tribu s^empresse d'avoir le meilleur poète 
+de s'associer pour en supjiorter le poids , ou 
+qui permet au chorége d'une tribu de con- 
+duire le chœur de l'aùtre. J'ajoute que chaque 
+tribu s'empresse d'avoir le meilleur poète 
 pour composer les cantiques sacrés. 
 
 Les chœurs paraissent dans les pompes ou 
@@ -6019,7 +6019,7 @@ Minerve , rétablies par Thésée , en mémoii-e
 de la réunion de tous les peuples de TAttique , 
 elles reviennent tous les ans ; mais , dans la 
 cinquième année , elles se célèbrent avec plus 
-de cérémonies et d^éclat. Voici l'ordre qu'on 
+de cérémonies et d'éclat. Voici l'ordre qu'on 
 y suit, tel que je le remarquai la première fois 
 que j'en fus témoin. 
 
@@ -6040,9 +6040,9 @@ dont la plupart montaient à cheval : ils posaient
 le pied gauche sur une espèce de crampon at- 
 taché à la partie inférieure de leur pique , et 
 s'élançaient avec légèreté sur leurs coursiers. 
-Non loin de là, je vis d^ autres jeunes gens con- 
+Non loin de là, je vis d' autres jeunes gens con- 
 courir pour le prix de la lutte et des difierens 
-exercices du corps. J'allai à FOdéum, et j*y 
+exercices du corps. J'allai à FOdéum, et j'y 
 vis plusieurs musiciens se livrer des combats 
 plus doux et moins dangereux. Les uns exécu- 
 taient des pièces sur la flûte ou sur la cithare ; 
@@ -6064,8 +6064,8 @@ avait accordé cette marque d'honneur.
 
 191 VOYAGE 
 
-J^allai aux Tiiîleries, potu* voir passer la 
-pompe qui s^élait formée hors des murs, et-qiu 
+J'allai aux Tiiîleries, potu* voir passer la 
+pompe qui s'élait formée hors des murs, et-qiu 
 commençait à défiler. EHe était composée dé 
 plusieurs classes de citoyens couronnés de 
 fleurs', et remarquables par leur Beauté. C'é- 
@@ -6095,7 +6095,7 @@ leurs mères. En effet, les mis et les autres por-
 
 D'ARACHARSIS. 19) 
 
-iaâeat sur leurs épaules des rases icuyfa d*eau 
+iaâeat sur leurs épaules des rases icuyfa d'eau 
 et de miel pour faire les libations. 
 
 Ils étaient suivis de huit inusieiens, dont 
@@ -6107,10 +6107,10 @@ valles , représentaient , au son de la flûte , le
 combat de Minerve contre les Titans. 
 
 On voyait ensuite paraître un vaisseau qui 
-•emblait glisser sur la terre au gré des vents 
-et d*une infinité de rameurs , mais qui se mqth 
+emblait glisser sur la terre au gré des vents 
+et d'une infinité de rameurs , mais qui se mqth 
 vait par des machines roifermées dans son 
-sein. Sur le vaisseau se déployait un voile d^une 
+sein. Sur le vaisseau se déployait un voile d'une 
 étofie légère , oîk de jeunes filles avaient re- 
 présenté en broderie la victoire de Minerve 
 contre ces mêmes Titans. Elles y avaient aussi 
@@ -6177,7 +6177,7 @@ Grandes Dionysiaques.
 Plusieurs jours de Tannée sont consacrés 
 au culte de Baccbus. Son nom retentit tour à 
 tour dans la ville , au port du Pirée , dans la 
-campagne et dans les bourgs. J'ai vu plus d^une 
+campagne et dans les bourgs. J'ai vu plus d'une 
 fois la ville entière plongée dans Tivrasse la 
 plus profonde ; j'ai vu des troupes de bacchans 
 et de bacchantes coiUTOunés de lierre , de fe- 
@@ -6198,9 +6198,9 @@ La ville se remplit alors d'étrangers : ils y
 
 I9« VOYAGE 
 
-▼ieBii«Bten foule pour apporter les trilmts des 
+vieBii«Bten foule pour apporter les trilmts des 
 iles Bouinkes aux Athéniens, pour ywr leg noih- 
-▼elles pièces (pi^on donne sur le théâtre , pour 
+velles pièces (pi^on donne sur le théâtre , pour 
 être témoins des jeux et des spectacles, mais 
 surtout d'une procession qui représente le 
 triomphe de Bacchus. On y voit le même cor- 
@@ -6273,11 +6273,11 @@ poursuite contre un débiteur est interdite. Les
 jours suivans , les délits et les désordres qu^on 
 y a commis sont punis avec sévérité. 
 
-Les femmes seules participent aux fêtes d^ A- 
+Les femmes seules participent aux fêtes d' A- 
 donis, et à celles qui, sous le nom de Thes- 
 mopbories , se célèbrent en Tbonneur de Gé- 
 rés et de Proserpinc : les unes et les autres 
-sont accompagnées de cérémonies que j^ai dé- 
+sont accompagnées de cérémonies que j'ai dé- 
 jà décrites pbis d'une fois. Je ne dirai qu^un 
 mot des dernières ; elles reviennent tous les 
 ans au mois de puanepsion ' , et durent plu- 
@@ -6308,10 +6308,10 @@ brillante où Tair retentissait de vos chants,
 couduisiez-vous tme grande corbeille sur un 
 - char attelé de quatre chevaux blancs ? — Elle 
 renfermait, entre autres choses, des grains 
-dont nous devons la culture à Gérés : c^est 
+dont nous devons la culture à Gérés : c'est 
 ainsi qu^aux fêtes de Minerve nous portons des 
 corbeilles pleines de flocons de laine , parce 
-que c^est elle qui nous apprit à la filer. Le 
+que c'est elle qui nous apprit à la filer. Le 
 meilleur moyen de reconnaître un bienfait, 
 est de s'en souvenir sans cesse , et de le rap-< 
 peler quelquefois à son auteur. 
@@ -6359,7 +6359,7 @@ Vèbeaadre, On a pris le parti d'aligner les
 mes , de séparer les nouvelles maisons en 
 deux corps de logis , d'y placer au rez-de- 
 chaussée les appartemens du mari et de la 
-femme, et de les rendi-e plus commodes par • 
+femme, et de les rendi-e plus commodes par 
 de sages distributions', et plus brillantes par 
 les omemens qu'on y multiplie. 
 
@@ -6476,7 +6476,7 @@ munication à plusieurs chambres ou salles , la
 
 D'ANACHARSIS. «oS 
 
-l^npart décorées avec soîn. L*or et l'ÎToin 
+l'npart décorées avec soîn. L'or et l'ÎToin 
 rdûnusaient TécUt 4leg meubles : les plafonds 
 et les murs étaient ornés de pcinlures : les por- 
 tières et les tapis fobriqués à Babylone repré* 
@@ -6518,7 +6518,7 @@ tout à coup y (pioiqu'il n'eût pas été prié. Il
 avait de Tesprit , des talens agréables ; il fut 
 accueilli avec transport de toute la compagnie . 
 Nous passâmes dans la salle à manger : on 
-y brûlait de l'encens et d^autres odeurs. Sur 
+y brûlait de l'encens et d'autres odeurs. Sur 
 le buffet , on avait étalé des vases d'argent et 
 de vermeil , quelques-uns enrichis de pierres 
 précieuses. Des esclaves répandirent de Teau 
@@ -6568,7 +6568,7 @@ des œufs frais , soit de poules , soit de paon :
 ces derniers sont plus estimés ; des andouilles, 
 des pieds de cochon , un foie de sanglier, une 
 tête d'agneau , de la fraise de veau ; le ventre 
-d*une truie , assaisonné de cumin , de vinaigre 
+d'une truie , assaisonné de cumin , de vinaigre 
 
 
 
@@ -6620,7 +6620,7 @@ posa de déployer les connabsances que nous
 avions sur le choix des mets les plus agréa- 
 bles au goùt^ sur Fart de les préparer, sur la 
 facilité de se les procurer à Athènes. Cîomme 
-il s^agissait de représenter les banquets des 
+il s'agissait de représenter les banquets des 
 sages, il fut dit que chacmi parlerait à son 
 tour, et traiterait son sujet avec beaucoup de 
 gravité , sans s'appesantir sur les détaib , sans 
@@ -6646,10 +6646,10 @@ plus délicate , et qu^ils destinaient à ce travail
 ceux de leurs ennemis que le sort des armes 
 faisait tomber entre leurs mains : mais je 
 ne dis pas que , pom- ôter à ces malheureux 
-la liberté de s^échapper, on les privait de la 
+la liberté de s'échapper, on les privait de la 
 vue. 
 
-Après d*autres particularités que je sup-^ 
+Après d'autres particularités que je sup-^ 
 prime, Léon, prenant la parole, dit: On re- 
 proche sans cesse aux Athéniens leur fruga- 
 lité : il est vrai que nos repas sont , en géné- 
@@ -6671,7 +6671,7 @@ admirent les monumens qui décorent cette
 
 D'AMACHARSIS. an 
 
-▼ille : Athènes offre ànmes yeux un aTontage 
+ville : Athènes offre ànmes yeux un aTontage 
 plus i*éel ; c'est l'abondance dont on y jouit 
 toute Tannée; c'est ce marché où viennent 
 cha({ue jour se réunir les meilleures produc- 
@@ -6730,8 +6730,8 @@ croit que tout est estimable dais un objet es-
 timé. Pour nous , qui analysons le méiile jus- 
 que dans les moindres détails , nous choisirons 
 
-' C'est le poisson conno •parmi nous sous le nom 
-. d^espadon \ en Italie , sous edni de pesée ^tada. 
+' C'est le poisson conno parmi nous sous le nom 
+. d'espadon \ en Italie , sous edni de pesée ^tada. 
 
 
 
@@ -6770,7 +6770,7 @@ proches que leur faisait un Lacédémonien qui»
 
 »i4 VOYAGE 
 
-n^ayant jamais vu ce coquillage , prit le parti 
+n'ayant jamais vu ce coquillage , prit le parti 
 de le porter à sa l>ouche et d'en dévorer les 
 pointes timnchantes. 
 
@@ -6795,7 +6795,7 @@ cure aux poires et à la plupart de nos fruits
 
 
 
-* Les Grecs d^ Athènes les appellent encore aujour- 
+* Les Grecs d' Athènes les appellent encore aujour- 
 dliui du même nom \ et le grand «seigneur les fait 
 toutes retenir pour sa table ( Spon , voyag. t. a , 
 
@@ -6860,7 +6860,7 @@ gent dans les vignes.
 
 En prononçant ces mots , Phrlorâde s'em- 
 
-' C^étaient des espèces d Wblies TCasaub. in Athen . 
+' C'étaient des espèces d Wblies TCasaub. in Athen . 
 p. »3.). 
 
 ' -Espèce de bei^ets. 
@@ -6869,8 +6869,8 @@ p. »3.).
 
 D'ANACHARSIS. 217 
 
-para d^une tourte de raishis et d* amandes qa*on 
-venait d^ apporter, el ne voulul plus reprendre 
+para d'une tourte de raishis et d' amandes qa*on 
+venait d' apporter, el ne voulul plus reprendre 
 son discours. 
 
 Notre attention ne fut pas long^temps sus- 
@@ -6886,7 +6886,7 @@ Numénius d'Héracléc , Hégémon de Tliasos ^
 daricus de Sicyone. J'en pourrais citer plu- 
 ^urs autres , car j'ai tous leurs ouvi*ages dans 
 tna bibliothèque ; et celui que je préféré h. tous 
-est la Gastronomie d^Archcstrate. Cet auteur, 
+est la Gastronomie d'Archcstrate. Cet auteur, 
 qui fut Tarai d'un des fils de Périclès, avait 
 parcouru les terres et les mers pour connaître 
 par lui-même ce qu'elles produisent de meil- 
@@ -6907,14 +6907,14 @@ res , et ne conlient pas un vers qui ne soit un
 précepte. 
 
 C'est dans ce code que plusieurs cuisiniers 
-ont puisé les principes d^un art qui les a ren- 
-dus immortels , qui depuis long-temps s^est per- 
+ont puisé les principes d'un art qui les a ren- 
+dus immortels , qui depuis long-temps s'est per- 
 fectionné en Sicile et dans TElide , que parmi 
 nous Thimbron a porté au plus haut point de 
 sa gloire. Je sais que ceux qui Texercent ont 
 souvent, par leurs prétentions, mérité d'être 
 joués sur notre théâtre ; mais sHIs nVvaient 
-pas l'enthousiasme de lem* profession, ils n* en 
+pas l'enthousiasme de lem* profession, ils n' en 
 aui'aient pas le génie. 
 
 Le mien, que j'ai -fait venir tout récemment 
@@ -6959,7 +6959,7 @@ de meilleurs dans d'auti'es climats. Yoti*e huile
 est excellente , ainsi que votre vinaigre de Dé- 
 célie : votre miel du mont Hymette mérite la 
 préférence sur celui de Sicile même. Outre 
-ces matériaux , nous employons dans l^s ra- 
+ces matériaux , nous employons dans l's ra- 
 goûts les œufs , le fi*omage , le raisin sec , le 
 silphium , le persil , le sésame , le cumin , les 
 câpres , le cresson , le fenouil , la menthe , la 
@@ -6973,14 +6973,14 @@ f»)antes aronatiqiies dont nous faifson» un si
 grand usage ; telles que l'origan ' , et Texcel- 
 lent thym du mont Hymette. Voilà , pour ainsi 
 dire, les forces dontnn artiste peut disposer, 
-mais quHl ne doit jamais prodiguer. S*il me 
+mais quHl ne doit jamais prodiguer. S'il me 
 tombe entre les mains un poisson dont la eliair 
 ëêt ferme , j'ai soin de le saupoudrer de fro- 
-mage râpé , et de Tarroser de vinaigre ; s^tl 
+mage râpé , et de Tarroser de vinaigre ; s'tl 
 est délicat, je me contente de jeter dessus une 
 pincée de sel, et quelques gouttes d'huile : 
-d^autres fois , après Tavoir orné de feuSles 
-d^origan , je Tenveloppe dans une feuille de 
+d'autres fois , après Tavoir orné de feuSles 
+d'origan , je Tenveloppe dans une feuille de 
 figuier, et le fais cuire sous les cendres. 
 
 Il n'est permis de multiplier les moyet» 
@@ -7004,7 +7004,7 @@ DAfVACHARSIS. aai
 4Mice , 'VOUS emploierez le miel, les dattes , 
 le «umin « el dVutres ingrédiens de même aa- 
 4Nre. Mais ces assortimens oe doivent point 
-■elfe abandonnés au caprice d'un artiste igno> 
+elfe abandonnés au caprice d'un artiste igno> 
 rimt. 
 
 Je dis la même chose des farces que Ton 
@@ -7023,7 +7023,7 @@ art tient à toutes les sciences ^ , et plus immé-
 diatement encore à la médecine. Ne dois-je 
 pas connaître les herbes qui , dans chaque sai- 
 
-■ On peut comparer les propos que les comiques 
+ On peut comparer les propos que les comiques 
 grecs meUent dans \fi bouche des cuisiniers de leur 
 l«nps à ceux que Moniaigne rapporte, en peu de mois, 
 du maiu^e-d'hdlel du cardinal Carafle , liv. i , cb. 5 1 . 
@@ -7070,10 +7070,10 @@ tringente. En généi*al , on trouve une chair
 moins succulente dans les animaux sauvages 
 que dans les domestiques , dans ceux qui se 
 nourrissent de fruits que dans ceux qui se noui^ 
-rissent d^herbes , dans les mâles que dans les 
+rissent d'herbes , dans les mâles que dans les 
 femelles , dans les noirs que dans les blancs , 
 dans ceux qui sont velus que dans ceux qui ne 
-le sont pas. Cette doctiône est d^Hippocrate. 
+le sont pas. Cette doctiône est d'Hippocrate. 
 
 Chaque boisson a de même ses propriétés. 
 Le vin est chaud et sec :il a dans ses principes 
@@ -7123,7 +7123,7 @@ Phénicie surprend d'abord par la quantité de
 pariiuns dont il est pénétré. J'en ai une bonne 
 provision ; cependant je le mets fort au des- 
 sous de celui de Lesbos , qui est moins par- 
-fumé , et qui s^isfait mieux le goût. Désirez- 
+fumé , et qui s'isfait mieux le goût. Désirez- 
 
 
 
@@ -7131,10 +7131,10 @@ D'ANACHARSIS. i)5
 
 TOUS une boisson agréable et salutaire , associez 
 des Tins odoriférans et moelleux avec des Tins 
-d^une qualité opposée. Tel est le mélange du 
+d'une qualité opposée. Tel est le mélange du 
 TÎn d'Erythrée avec celui d'Héraclée. 
 
-L^eau de mer mêlée avec le vin aide -, dit- 
+L'eau de mer mêlée avec le vin aide -, dit- 
 on , à la digestion , et fait que le vin ne porte 
 point à la tcte ; mais il ne ^ut pas qu'elle do- 
 mine ti*op. C'est le défaut des vins de Rhodes : 
@@ -7164,14 +7164,14 @@ m. i5
 aa6 VOYAGE 
 
 En achevant ces mots , Dinîas se fil appor- 
-ter plusieurs bouteilles d^un vin quHl conservait 
+ter plusieurs bouteilles d'un vin quHl conservait 
 depuis dix ans , qui fut bientôt remplacé par 
 un vin encore plus vieux. 
 
 Nous bûmes alors presque sans interrup- 
 tion. Démocbarés, après avoii' porté difleren- 
 les santés, prit une lyre, et, pendant quHl 
-l^accordait , il nous entretint de Tusage où Ton 
+l'accordait , il nous entretint de Tusage où Ton 
 a toujours été de mêler le chant aux plaisirs 
 de la table. Autrefois, disait-il , tous les con- 
 vives chantaient ensemble et à Tunisson. Dans 
@@ -7213,7 +7213,7 @@ venir quand elle ne peut plus contenir la joie
 qui la pénètre. 
 
 Plusieurs auteurs se sont exercés dans ce 
-genre de poésie ; quelques-uns s*y sont distin- 
+genre de poésie ; quelques-uns s'y sont distin- 
 gués; Alcée etAnacréon Tout rendu célèbre. 
 11 n'exige point d'effort, parce qu'il est en- 
 nemi des prétentions. On peut employer, pour 
@@ -7289,15 +7289,15 @@ par morceaux et confites au vinaigre et û la
 moutarde, des poischiches rôtis, des olives 
 qu'on avait tii'ées de leur saumure. 
 
-■ Petit animal semblabla à la cigale (Alhen. p. 1 33). 
+ Petit animal semblabla à la cigale (Alhen. p. 1 33). 
 
 
 
 a3o VOYAGE 
 
-Ce nouveau service , accompagné d^une 
+Ce nouveau service , accompagné d'une 
 nouvelle provision de vin et de coupes plus 
-grandes que celles dont on s'était servi d^a- 
+grandes que celles dont on s'était servi d'a- 
 bord , annonçait des excès qui furent heureu- 
 sement réprimés par un spectacle inattendu. 
 A l'arrivée de Calliclès , Théotime était sorti 
@@ -7311,7 +7311,7 @@ des libations en T honneur du Bon Génie et de
 Jupiter Sauveur; et après que nous eûmes 
 lavé nos mains dans une eau où Ton avait mêlé 
 des odeurs , nos baladins commencèrent leurs 
-tours. L*im arrangeait sous des cornets un 
+tours. L'im arrangeait sous des cornets un 
 certain nombre de coquilles ou de petites 
 boules , et, sans découvrir son jeu, il les fai- 
 sait pai^îti*e ou disparaître à son gré. Un au- 
@@ -7347,7 +7347,7 @@ De l Education des Athéniens.
 
 
 Les habitans de Mylilène , ayant soumis 
-quelques-uns de leurs alliés qui s^étaient sé- 
+quelques-uns de leurs alliés qui s'étaient sé- 
 parés d'eux , leur défendirent de donner la 
 moindre instruction à leurs enfansi Ils ne trou- 
 vèrent pas de meilleur moyen pour les tenir 
@@ -7370,7 +7370,7 @@ mercenaii'es.
 
 D'ANACHARSIS. >33 
 
-■ Les législateurs n^ont pu s^ expliquer sur 
+ Les législateurs n'ont pu s' expliquer sur 
 ce sujet que par des lois générales : les plù- 
 losophes sont entrés dans de plus grands dé- 
 tails ; ils ont même porté leurs vues sur les 
@@ -7388,7 +7388,7 @@ les quarante premiers jours de sa grossesse , il
 ne lui avait pas été permis de sortir. On lui 
 avait ensuite répété souvent que sa conduite 
 et sa santé pouvant influer sur la constitution 
-de son enfant , elle devait user d*une bonne 
+de son enfant , elle devait user d'une bonne 
 nourriture , et entretenir ^s forces par de lé- 
 gères promenades. 
 
@@ -7408,7 +7408,7 @@ Quand on songe, disent-ils, à la destinée qui
 attend Thomme sur la terre , il feudrait arro- 
 ser de pleurs son berceau. 
 
-Cependant, à la naissance du fils d^Apol- . 
+Cependant, à la naissance du fils d'Apol- . 
 lodore, je vis la tendresse et la joie éclater 
 dans les yeux de tous ses parens ; je vis sus- 
 pendre sur la porte de la maison une couronne 
@@ -7437,7 +7437,7 @@ bes , les lois défendent cette barbarie ; dans
 D'ANACHARSIS. >3<> 
 
 presque toute la Grèce elles Tautorisent ou la 
-tolèrent. Des philosophes l'approuvent; d^au- 
+tolèrent. Des philosophes l'approuvent; d'au- 
 très, contredits à la vérité par des moralistes 
 plus rigides , ajoutent qu^une mère , entourée 
 déjà d'une famille trop nombreuse, est en 
@@ -7540,7 +7540,7 @@ laS VOYAGE
 
 la végétation du coips humain est si forte , que, 
 suivant Topinion de quelques naturalistes , il 
-n^augmente pas du double en hauteur dans les 
+n'augmente pas du double en hauteur dans les 
 vingt aimées suivantes. Il a besoin alors de 
 beaucoup de nourriture , de beaucoup d'exer- 
 cice. La nature T agite par une inquiétude se- 
@@ -7560,9 +7560,9 @@ tendre une main secourable. Je la vis ensuite
 mettre dans ses mains de petits instrumens 
 dont le bruit pouvait l'amuser ou le distraire : 
 circonstance que je ne relèverais pas , si le 
-plus commode de ces instrumens n^ était de 
+plus commode de ces instrumens n' était de 
 l'invention du célèbre philosophe Àrchitas, 
-qui écrivait sur la nature de Tunivers , et s^oc- 
+qui écrivait sur la nature de Tunivers , et s'oc- 
 cupait de Téducatiou des enfaos. 
 
 
@@ -7701,7 +7701,7 @@ partie de la victime , ApoUodore s'avança ; et,
 
 D'ANACHARSIS. i43 
 
-tenant son fUs d^une main , il prit les dieux à 
+tenant son fUs d'une main , il prit les dieux à 
 témoins que cet enfant était né de lui et d'une 
 fenune athénienne en légitime mariage. On 
 recueillit les suffrages, et Tenfant aussitôt fut 
@@ -7767,7 +7767,7 @@ prendre le soii*.
 D'ANACHARSIS. «45 
 
 Parmi les iostituteurs auxquels on confie la 
-jeunesse d^ Athènes, il n'est pas rare de ren- 
+jeunesse d' Athènes, il n'est pas rare de ren- 
 conti*er des hommes d'un mérite distin^é. 
 Tel fut auti-efois Damon , qui donna des le- 
 çons de musique à Socrate , et de politique à 
@@ -7870,7 +7870,7 @@ Philotime , à qui je témoignai ma surprise , la
 dissipa de celte manière : 
 
 Nos premiers législateurs comprirent aisé- 
-ment que c^était par Timagination qu'il fallait 
+ment que c'était par Timagination qu'il fallait 
 parler aux Grecs, et que la vertu se persua- 
 dait mieux par le sentiment que par les pré- 
 ceptes. Ils nous annoncèrent des vérités pa- 
@@ -7971,7 +7971,7 @@ style obéir à tous les mouvemens de votive
 dois partager avec elle. Yoilà ce qui constitue 
 ce rhythme, cette cadence, à laquelle on ne 
 peut donner atteinte sans révplter Toreille; 
-c^est ainsi que des variétés que la nature , les 
+c'est ainsi que des variétés que la nature , les 
 passions et Tart ont mises dans Texercice de 
 ' la voix, il résulte des sons plus ou moins agréa- 
 bles , plus ou moins éclatans , plus ou moins 
@@ -7980,7 +7980,7 @@ rapides.
 Quand Lysis sera plus avancé, je lui mon- 
 trerai que le meilleur moyen de les assortir 
 est de les contraster, parce que le contraste , 
-d^où naît l'équilibre , est dans toute la nature, 
+d'où naît l'équilibre , est dans toute la nature, 
 et principalement dans les arts imitatifis , la 
 première source de Tordre et de la beauté. Je 
 lui montrerai par quel heureux balancement 
@@ -7995,7 +7995,7 @@ nénité ; dant ceux de Xénophon , une «uite
 
 »5a VOYAGE 
 
-d^accords dont la douceur et la mollesse ca- 
+d'accords dont la douceur et la mollesse ca- 
 ractérisent les Grâces qui ^inspi^e^t; dan» 
 ceux d'Homère , une ordonnance toujours sa- 
 vante, toujours variée. Voyez, lorsque ce 
@@ -8034,7 +8034,7 @@ Ces notions , qui u^ont encore été recueil-
 lies dans aucun ouvrage, tous pai'aîti'ont peut- 
 être frivoles. Elles le seraient en efièt, si, for^ 
 ces de plaire aux hommes pour les émouvoir, 
-nous n^étions souvent obligés de préférer le 
+nous n'étions souvent obligés de préférer le 
 style à la pensée , et Tharmonie à l'expres- 
 sion. Mais elles sont nécessaires dans un gou- 
 vernement où le talent de la parole reçoit im 
@@ -8102,7 +8102,7 @@ plus grand ou en plus petit nombre, une cer-
 taine quantité de pommes et de couronnes ; 
 tantôt à se mêler, dans leurs exercices , sui- 
 vant des combinaisons données , de manière 
-que le même occupe chaque place à sou tour ■ . 
+que le même occupe chaque place à sou tour . 
 Apollodore ne voulut pas que son fils connût 
 ni ces prétendues prc^riétés que les Pytha- 
 goriciens attribuent au nombre , ni Inapplica- 
@@ -8113,7 +8113,7 @@ tages , elle augmeute la sagacité de Tesprit ,
 et le prépare à la connaissance de la géomé- 
 trie et de Tastronomie. 
 
-L^sis prit une teinture de ces deux scien- 
+L'sis prit une teinture de ces deux scien- 
 ces. Avec le secours de la première, placé un 
 jour à la tête des armées , il poun-ait plus ai- 
 sément asseoir un camp , presser un siège , 
@@ -8172,7 +8172,7 @@ ment au gymnase du Lycée. Les enfàns com-
 mencent leurs exercices de très bonne Iieure, 
 quelquefois même à Tâge de sept ans; ils les 
 continuent jusqu^ à celui de -vingt. On les ac- 
-coutume d^abord à supporter le froid , Iq 
+coutume d'abord à supporter le froid , Iq 
 cbaud, toutes les intempéries des saisons ; en- 
 suite à pousser des balles de différeates gi*os- 
 seurs , à se les renvoyer mutuellement. Ce 
@@ -8190,10 +8190,10 @@ courant une ou plusieurs fois la carrière du
 
 «St VOYAGE 
 
-•tade, souvent couverts d'armes pesantes. Ce 
-tfaï les occupe le plus , c^est la lutte , le pugi- 
+tade, souvent couverts d'armes pesantes. Ce 
+tfaï les occupe le plus , c'est la lutte , le pugi- 
 hx, et les divei*s combats que je décrirai en 
-parlant des jeux olympiques. Lysis, qui s^y 
+parlant des jeux olympiques. Lysis, qui s'y 
 livrait avec passion, était obligé d'en user 
 sobrement , et d'en corriger les effets par les 
 exercices de Tesprit, auxquels son père le 
@@ -8249,7 +8249,7 @@ sur un cheval , lancer des traits, et se donner
 en spectacle par des tours d'adresse. 
 
 Il prit quelques leçons d'un maître d'armes; 
-il s^instruisit de la tactique ; mais il ne fré- 
+il s'instruisit de la tactique ; mais il ne fré- 
 quenta point ces professeurs ignorais chez 
 
 
@@ -8260,7 +8260,7 @@ qui les jeunes gens Tont apprendre à comman-
 der des armées. 
 
 Ces difFérens exercices avaient presque tous 
-rapport à Tart militaire. Mais s^l devait dé- 
+rapport à Tart militaire. Mais s'l devait dé- 
 fendre sa patrie , il devait aussi Téclairer. La 
 logique , la rhétorique , la morale , rhistoire, 
 le droit civil , la politique , Toccupérent suc- 
@@ -8268,7 +8268,7 @@ cessivement.
 
 Des maîtres mercenaires se chargent de 
 les enseigner , et mettent leurs leçons à très 
-haut prix. On raconte ce trait d^Aristippe. 
+haut prix. On raconte ce trait d'Aristippe. 
 Un Athénien le pria d'achever l'éducation de 
 son fils. Aristippe demanda mille drachmes >. 
 « Mais , répondit le pèse , j'aurais un esclave 
@@ -8284,7 +8284,7 @@ toutes les matières. Quoique leur nombre soit
 diminué , on en voit encore qui , entourés de 
 leurs disciples, font retentir de leurs clameurs 
 
-' Neuf c^u livres.. 
+' Neuf c'u livres.. 
 
 
 
@@ -8370,7 +8370,7 @@ a monde pour témoin. N'espérez pas que des
 « reuse : les bienfaits bien appliqués sont \% 
 « trésor de rhonnéte homme. Quand vous se- 
 « rez revêtu de quelque ehai'ge importante > 
-« n^employez jamais de malhonnêtes geos ; 
+« n'employez jamais de malhonnêtes geos ; 
 « quand vous la quitterez , que ce soit avec 
 « plus de gloire que de richesses. » 
 
@@ -8379,7 +8379,7 @@ rélégance qu'on aperçoit dans tous ceux dl-
 soerate. On en félicita Tauteur ; et quand il 
 fut sorti, Apollodore, adressant la parole à 
 son fils : Je me suis aperçu , lui dit-il , du 
-plaisir que vous a fait cette lecture. Je n^en 
+plaisir que vous a fait cette lecture. Je n'en 
 suis pas surpris ; elle a réveillé en vous des 
 sentimens précieux à voti*e cœur, et Ton aime 
 à retrouver ses anus |MU*tout. Mais aves-vous 
@@ -8399,7 +8399,7 @@ tt sidératiou parmi le peuple. Obéissez à ses
 a lois , et regardez son exemple comme la 
 « première de toutes. » 
 
-Quelle étrange leçon dans la bouche d^un 
+Quelle étrange leçon dans la bouche d'un 
 républicain , reprit Àpollodore ! et comment 
 l'accorder avec le conseil que l'auteur avait 
 donné à Démonicus de détester les flatteurs ? 
@@ -8424,14 +8424,14 @@ danger des préjugés et des -vices est de se dé-
 guiser sous le masque des -vérités et des ver- 
 tus , et qu'il est très difficile de sui-vre la -voix 
 d'un guide fidèle , lorsqu'elle est étouffée par 
-celle d'une foule d^imposteui-s qui marchent à 
+celle d'une foule d'imposteui-s qui marchent à 
 ses côtés et qui imitent ses accens ? 
 
-Je n*ai fait aucim effort jusqu'à présent 
+Je n'ai fait aucim effort jusqu'à présent 
 pour vous affermir dans la -vertu : je me suis 
 contenté de vous en faire pratiquer les actes. 
 Il fallait disposer votre âme , comme on pré- 
-pare une terre avant que d^y jeter la semence 
+pare une terre avant que d'y jeter la semence 
 destinée à Tenrichir. Vous devez aujourd'hui 
 me demander compte des sacrifices que j'ai 
 quelquefois exigés de vous , et vous metti*e en 
@@ -8499,7 +8499,7 @@ sagesse et la science , qui ne s'occupent que
 des choses intellectuelles et invariables ; la 
 prudence , le jugement et Topinion , dont les 
 objets tombent sous les sens et varient sans 
-cesse ; la sagacité , la mémoire , et d^ autres 
+cesse ; la sagacité , la mémoire , et d' autres 
 qualités que je passe sous silence. 
 
 L'intelligence , simple perception deTâme*, 
@@ -8522,14 +8522,14 @@ c de lumièi'es pour prononcer, elle n'a pas
 
 968 VOYAGE 
 
-assez de force pour noua, faire agir , elle n^est 
-plus quW jugement sain. Enfin F opinion s*en- 
+assez de force pour noua, faire agir , elle n'est 
+plus quW jugement sain. Enfin F opinion s'en- 
 veloppe dans ses doutes , et nous entraîne sou- 
 vent dans Terreur. 
 
 De toutes les qualités de rame, la plus 
 éminente est la sagesse ; la plus utile est la 
-prudence. Comme il n*y a rien de si grand 
+prudence. Comme il n'y a rien de si grand 
 dans Tunivers que Tunivers même , les sages, 
 qui remontent à son origine et s'occupent de 
 Tessence incorruptible des êtres , obtiennent 
@@ -8544,7 +8544,7 @@ tique'.
 Vous voyez dans une maison le maître abaïk- 
 donner à un intendant fidèle les minutieux 
 détails de l'administration domestique pour 
-s^occuper d'afïaires plus importantes : ainsi la 
+s'occuper d'afïaires plus importantes : ainsi la 
 sagesse , absorbée dans ses méditations pro- 
 fondes , se repose sur la prudence du soin de 
 régler nos penchans, et de gouverner la par- 
@@ -8555,7 +8555,7 @@ régler nos penchans, et de gouverner la par-
 
 D'ANàCHARSIS. 169 
 
-tic de Tàme où j^ai dit que résident les ver- 
+tic de Tàme où j'ai dit que résident les ver- 
 tus morales. 
 
 Cette partie est à tout moment agitée par 
@@ -8594,7 +8594,7 @@ dans de justes limites.
 
 Alors Aristote nous fit voir un écrit à trois 
 colonnes , où la plupart des vertus étaient pla- 
-cées chacune entre ses deux extrêmes. J^en 
+cées chacune entre ses deux extrêmes. J'en 
 ai conservé cet extrait pour Tinstruction de 
 Lysis : 
 
@@ -8667,7 +8667,7 @@ tuce , qui est un vice du cœur, et de la stupi-
 dité , qui est un défaut de l'esprit. La tempé- 
 rance est opposée à rintempéi*ance , qui est 
 son excès. On a choisi Tinsensibilité pour Tau- 
-tre extrême : C^est, nous dit Aristote, qu'en 
+tre extrême : C'est, nous dit Aristote, qu'en 
 fait de plaisii* on ne pèche jamais par dé^ut , 
 à moins qu'on ne soit insensible. Vous aper- 
 cevez, ajouta-t-il, quelques lacunes dans ce 
@@ -8685,7 +8685,7 @@ moins éloignés sans cesser d'être blâmables.
 On est plus ou moins lâche , plus ou moins 
 prodigue : on ne peut être que d'une seule 
 
-■ Voyei U note n k U fin du volume. 
+ Voyei U note n k U fin du volume. 
 
 
 
@@ -8724,7 +8724,7 @@ toyens. La délibération doit être suivie d'un
 
 D'ANACHÂRSIS. 173 
 
-•hoix volontaire ; s'il ne Tétait pas ,' il ne se* 
+hoix volontaire ; s'il ne Tétait pas ,' il ne se* 
 rait digne que^d'indtdgence ou de pitié. Il Test 
 toutes les fois qu^une force extérieure ne nous 
 contraint pas d'agir malgré nous y et que nous 
@@ -8801,7 +8801,7 @@ ensuite pai' la peine ou le plaisir que vous
 éprouverez. Si cette vertu est encore infor- 
 me , les sacrifices qu'elle demande vous affli- 
 geront ; si elle est entière, ils vous rempliront 
-d^une joie pure : car la vertu a sa volupté. 
+d'une joie pure : car la vertu a sa volupté. 
 
 Les enfans ne sauraient être vertueux ; ils 
 ne peuvent ni connaître ni choisir leur vérita- 
@@ -8826,10 +8826,10 @@ Ne donnez pas ce nom à celui qui est entrai-
 
 i7« tOTAGE 
 
-né par la Teng^ance ; c^est un sanglier qui se 
+né par la Teng^ance ; c'est un sanglier qui se 
 jette sur le fer dont il est blessé. Ne le donnes 
 pas à ceux cpn sont a^tés de passions désor- 
-donnéesy et dont le courage s^enflamme et s^é- 
+donnéesy et dont le courage s'enflamme et s'é- 
 teint avec elle. Quel est donc Thomme coura- 
 geux? -Celui qui, poussé par un motif hon- 
 nête , et guidé par la saine raison , connaît le 
@@ -8838,7 +8838,7 @@ danger, le craint, et s'y précipite.
 Âristote appliqua les mêmes principes à la 
 justice , à la tempérance et aux autres vertus» 
 Il les parcourut toutes en particulier, et les 
-■uivit dans leui*s subdivisions, en fixant re- 
+uivit dans leui*s subdivisions, en fixant re- 
 tendue et les bornes de leur empire; car il 
 BOUS montrait de quelle manière , dans quelle 
 cii*constance , sur quels objets chacune devait 
@@ -8989,7 +8989,7 @@ n'est donc point%dans le iein des honneurs ni
 D'ANACHARSIS. sti 
 
 dans TopiiHon des hommes que nous devons 
-chercher à nous distinguer, c^est devant ce tri- 
+chercher à nous distinguer, c'est devant ce tri- 
 bunal redoutable qui nous jugera sévèrement 
 après notre mort. 
 
@@ -9021,10 +9021,10 @@ pondit Philotime, battirent les Perses et sau-
 aSi VOYAGE 
 
 vèrent la Grèce. — Nous les battrions encore. 
-— J^en doute , lorsqu'aux fêtes de MinerTe je 
-▼oLs notre jeunesse, pouvant à peine soutenir 
+— J'en doute , lorsqu'aux fêtes de MinerTe je 
+voLs notre jeunesse, pouvant à peine soutenir 
 le bouclier , exécuter nos danses guerrières 
-avec tant d^élégance et de mollesse. 
+avec tant d'élégance et de mollesse. 
 
 Philotime lui demanda ensuite ce qu'il pen- 
 sait d'un jeune homme qui , dans ses paroles 
@@ -9043,7 +9043,7 @@ Philotime. Sans rappeler ici nos principes
 sur le respect et la tendresse que nous devons 
 aux auteurs de nos jours, je suppose que vous 
 êtes obligé de voyager en des pays lointains : 
-choisirez-vous un chemin sans savoir s^il est 
+choisirez-vous un chemin sans savoir s'il est 
 praticable , s'il ne traverse pas des déserts 
 immenses, s'il ne conduit pas chez des nations 
 barbares, s'il n'est pas, en certains endroits, 
@@ -9066,7 +9066,7 @@ dans le Lycée cpielques sophistes disserter
 longuement sui* la politique , et il se crut en 
 état d'éclairer les Athéniens. Il blâmait avec 
 chaleur l'administration présente ; il attendait 
-avec la m^e impatience que la plupart de 
+avec la m'e impatience que la plupart de 
 ceux de son âge le moment ou il lui serait per- 
 mis de monter à la tribune. Son père dissipa 
 cette illusion, comme Socrate avait détruit 
@@ -9076,7 +9076,7 @@ Mon fils, lui dit-il, j'apprends que vous
 brûlez du désir de parvenir à la tête du gou- 
 vernement. — J'y pense en effet, répondit 
 Lysis en tremblant. — C'est un beau projet. 
-S'il réussit, vous serez à portée d*étre utile à 
+S'il réussit, vous serez à portée d'étre utile à 
 Tos parens , à vos amis , à votre patrie : votre 
 gloire s'étendra non seulement parmi nous , 
 mais encore dans toute la Grèce , et peut-être, 
@@ -9092,11 +9092,11 @@ les nations barbares.
 A ces mots , le jeune bomme tressaillit de 
 joie. Pour obtenir celte gloire, reprit Apollo- 
 dore , ne faut-il pas rendre des services im- 
-portaus à la république P — • Sans doute. — 
+portaus à la république P — Sans doute. — 
 Quel est donc le premier bienfait qu^eUe re- 
 cevra de vous ? — Lysis se tut pour préparer 
 sa réponse. Après un moment de silence , 
-Apollodore continua : S^il s'agissait de rele- 
+Apollodore continua : S'il s'agissait de rele- 
 ver la maison de votre ami , vous songeiîez 
 d'abord à Tenricbir ; de même vous tacberiez 
 d'augmenter les revenus de l'Etat. — Telle est 
@@ -9185,10 +9185,10 @@ D'ANACHARSIS. 187
 si tous ces détails vous épouvantent , au lieu 
 de vous charger du soin de plus de dix mille 
 familles qui sont dans cette ville, vous devriez 
-d^abord essayer vos forces et mettre l'ordre 
+d'abord essayer vos forces et mettre l'ordre 
 dans la maison de votre oncle , dont les af- 
 faires sont en mauvais état. — Je viendi*ais à 
-bout de les arranger , s^l voulait suivre mes 
+bout de les arranger , s'l voulait suivre mes 
 avis. — Et croyezrvous de bonne foi que tous 
 les Athéniens, votre oncle joint avec eux, se- 
 ront plus faciles à persuader ? Craignez , mon 
@@ -9254,7 +9254,7 @@ dans les places qui sont sur les frontières de
 TAttiquc. 
 
 Agé de vingt ans à son retoui-, il lui restait 
-une foraBalité essentielle à remplir. J^ai dit 
+une foraBalité essentielle à remplir. J'ai dit 
 plus haut que dés son enfance on Tavait ins- 
 crit f en présence de ses parens , dans le re- 
 gistre de la curie à laquelle son père était as- 
@@ -9267,7 +9267,7 @@ distribués en un certain nombre de cantons
 ou de districts qui , par leurs difPérentes i^u- 
 nious , foi-ment les dix tribus. A la tète de 
 chaque district est un démarque , magistrat 
-qui est chargé d^en convoqocir les membres , 
+qui est chargé d'en convoqocir les membres , 
 et de garder le registre qui contient leurs 
 noms. La famille d'ApoUodore était agrégée 
 au canton de Cépbissie , qui fait partie de la 
@@ -9282,7 +9282,7 @@ présenta son fiU , et Taote par lequel il avait
 
 été déjà reconnu dans sa curie. Après les suf- 
 fiages recueillis , on inscrivit Lysis daoa le 
-registre» Mais comme c^est ici le seul monu- 
+registre» Mais comme c'est ici le seul monu- 
 ment qui puisse constater Tâge d'un citoyen , 
 au nom de Lysis , fils d'Apollodore , on joi- 
 gnit celui du premier des archontes , non seu- 
@@ -9335,7 +9335,7 @@ Entretien sur la Musique des Grecs.
 
 
 J'allai ¥oir un jour Philotime daus une 
-petite maison ({u'il avait hors des murs d^A^ 
+petite maison ({u'il avait hors des murs d'A^ 
 thénes, sur la colline de Gynosarge , à trois 
 stades de la porte Mélitide. La situation en 
 était délicieuse. De toutes parts la vue se re- 
@@ -9376,7 +9376,7 @@ avaient cessé d'être en usage. Des livres re-
 latifs à la musique remplissaient plusieurs ta- 
 blettes. Je priai Philotime de m'indiquer ceux 
 qui pourraient m'en apprendre les principes. 
-Il n'en existe point, me répondit-il; nous n*9r 
+Il n'en existe point, me répondit-il; nous n'9r 
 vous qu'un petit nombre d'ouvrages assez su- 
 perficiels sur le genre enharmonique , et un 
 plus grand nombre sur la préférence qu'il faoft 
@@ -9403,24 +9403,24 @@ tions que nous donnons à ce infll : nous rap-
 pliquons indifTéremmeiit à la mélodie , à la me- 
 sure , à la poésie , à la danse , au geste , à la 
 réunion de toutes les sciences , à la connais- 
-sance de presque tous les arts. Ce n^est pas 
+sance de presque tous les arts. Ce n'est pas 
 assez encore : F esprit de comlmiaison, qui 
-depuis environ deux siècles s^est inb'oduit pai^ 
+depuis environ deux siècles s'est inb'oduit pai^ 
 mi nous , et qui nous force à chercher partout 
 des rapprochemens , a voulu soumettre aux 
 lois de l'harmonie les mouvemens des corps 
 célestes et ceux de notre ûme. 
 
-Ecartons ces objets étrangers. Il ne s^agit 
+Ecartons ces objets étrangers. Il ne s'agit 
 ici que de la musique propi'emcnt dite. Je tâ- 
 cherai de vous en expliquer les élémens , si 
 vous me promettez de supporter avec coulage 
-Tennui des détails où je vais m^engager. Je It 
+Tennui des détails où je vais m'engager. Je It 
 promis , et il continua de celte manière : 
 
 
 
-D'ANACHARSIS. •.j5 
+D'ANACHARSIS. .j5 
 
 On distingue , dans la musitpie , le son, les 
 intervalles , les accords, les genres, les mo- 
@@ -9471,7 +9471,7 @@ quaits sonnaient la quarte , et ses deux tiei's
 la quinte. Vous voyez , ajouta Philotime, que 
 le son de la corde totale est au son de ses par- 
 tics dans la même proportion que sa longueur 
-à celle de ces m^cs parties , et qu'ainsi Toc- 
+à celle de ces m'cs parties , et qu'ainsi Toc- 
 tate est dans le rapport de 2 à 1 , ou de 1 à Va » la 
 quain;e dans celui de 4 à 3 , et la quinte de 3 à 2 . 
 
@@ -9529,10 +9529,10 @@ les saisir.
 
 Je demandai à Philotbne si , à Texception 
 de ces sons presque imperceptibles , il poui*- 
-rait successivement tirer d^ un monocorde tous 
+rait successivement tirer d' un monocorde tous 
 ceux dont la gi*andeur est détermmée , et qui 
 fonnent Téchelle du système musical. Il fau- 
-drait pour cet effet , me dit-il , une corde d^unc 
+drait pour cet effet , me dit-il , une corde d'unc 
 longueur dcmesujrée ; mais vous pouvez y sup-- 
 pléer par le calcul. Supposez-en une qui soit 
 divisée en 8192 parties égales, et qui sonne 
@@ -9551,7 +9551,7 @@ soit pour les demi-tons, vous conduirez faci-
 lement votre échelle fort au delà de la portée 
 des voix et des inslrumens , jusqu'à la cin- 
 
-■ Voyez Ia noie p à U fin du volume. 
+ Voyez Ia noie p à U fin du volume. 
 
 
 
@@ -9560,7 +9560,7 @@ D'ANAGHARSIS. ^99
 quiême octave du si, d'où vous éles parti. EUe 
 vous sera donnée par 256 , et Tu^ suivant par 
 243 ; ce qui vous fournira le rapport du demi- 
-lipitty que je n^avais fait que supposer. 
+lipitty que je n'avais fait que supposer. 
 ' ' Philotimc faisait tous ces calculs à mesure ; 
 et quand il les eut terminés : Il suit de là , me 
 dit-il, que dans cette longue échelle, les tons 
@@ -9626,7 +9626,7 @@ D'ANACHARSIS. 3ot
 chant y les sons qui composent un accord ne 
 se font jamais entendre en même temps ? 
 
-Le chant y répondit-il , n*est qu'une suc- 
+Le chant y répondit-il , n'est qu'une suc- 
 cession de sons ; les voix chantent toujours à 
 Tunissouy ou à F octave , qui n'est distinguée 
 de Tunisson que pai*ce qu^elle flatte pl«s To- 
@@ -9647,7 +9647,7 @@ pareille licence.
 Des Genres. 
 
 Vous avez fixé , lui dis-je , la valeur des in-* 
-tervalles ; j*entrevois Tusage qu'on en fait 
+tervalles ; j'entrevois Tusage qu'on en fait 
 dans la mélodie . Je voudrais savoir quel ordre 
 vous leur assignez sur les instrumens. Jetez 
 les yeux , me dit-il , sur ce tétracorde , vous 
@@ -9664,7 +9664,7 @@ que les deux extrêmes , toujours immobiles ,
 sonneill la quarte en montant , mi, la. Les deux 
 cordes , appelées mobiles , parce qu'elles i-e- 
 çoivent difFérens degrés de tension , consti- 
-tuent trois genres d^harmonie \ le diatonique , 
+tuent trois genres d'harmonie \ le diatonique , 
 le chromatique, renharmonique. 
 
 Dans le diatonique , les quatre cordes pro- 
@@ -9725,9 +9725,9 @@ deox extrêmes^ /<»> mien descendant, la, rr
 en montant. 
 
 Dans la suite , le musicien Terpandre , qui 
-▼irait il y a environ trois cents ans , supprima 
+virait il y a environ trois cents ans , supprima 
 la cinquième corde, /{ bémol, etlui en substitua 
-une nouTelie plus haute d^un ton ; il c^tint 
+une nouTelie plus haute d'un ton ; il c'tint 
 cette série de sons , ni, fa, sal, la, ut, re , 
 mi, dont les extrêmes somient l'octave . Ce 
 second heptacorde ne donnant pas deux tétra- 
@@ -9831,7 +9831,7 @@ Toreille ne peut apprécier.
 Des Modes. 
 
 La diversité des modes fait éclore de nou- 
-veaux sons. Elevez ou baissez d^un ton ou 
+veaux sons. Elevez ou baissez d'un ton ou 
 d'un demi-ton les cordes d'une lyre , vous pas- 
 sez dans un autre mode. Les nations qui , dans 
 les siècles reculés , cultivèrent la musique , ne 
@@ -9907,10 +9907,10 @@ que de Tespèce de poésie et de mesure , des
 modulations et des traits de chant qui leur sont 
 afTectés , et qui les distinguent aussi essentiel- 
 lement que la différence des proportions et 
-des omemens distinguent les ordres d^archi- 
+des omemens distinguent les ordres d'archi- 
 tecture. 
 
-La Toix p«at passer d^un mode ou d'un 
+La Toix p«at passer d'un mode ou d'un 
 genre à T autre ; mais ces transitions ne pou- 
 vant se faire sur les instrumens qui ne sont 
 percés ou montés que pour certains genres ou 
@@ -9919,7 +9919,7 @@ moyens. Quelquefois ils ont sous la main plu-
 sieurs flûtes ou plusieurs citliares pour les sub- 
 stituer adroitement Tune à Fautive. Plus sou- 
 vent ils tendent sur une lyre toutes les cordes 
-qu'exige la diversité des genres et des modes ■ . 
+qu'exige la diversité des genres et des modes . 
 
 * Platon dit qu^en bannissant la {rfnpart d«s mod— - 
 
@@ -9964,7 +9964,7 @@ r^ glaive , r^long , précédées de la consonne t,
 expriment les quatl*e sonA de chaque tétra- 
 corde , excepté que Voti retranche le premier 
 de ces monosyllabes lorsqu^on renconti*e un 
-son commun à deux tétracordes. Je m^cxpli- 
+son commun à deux tétracordes. Je m'cxpli- 
 que : si je veux solfier cette séné de sous 
 donnés par les deux premiers tétracordes , sij 
 utj re, mi, fa s sol, la, je dirai, té, la , 
@@ -9972,7 +9972,7 @@ tè, là, ta, le, là, et ainsi de suite.
 
 Des Tïotes. 
 
-J^ai YU quelquefois, repris-je y de la musi- 
+J'ai YU quelquefois, repris-je y de la musi- 
 que ; je n'y démêlais que des lettres tracées 
 horizontalement sur une même ligne , corresr^ 
 pondantes aux syllabes des Hots placés au 
@@ -10016,7 +10016,7 @@ Du Bhythme.
 
 Le rhythme en général est cm mouvement 
 successif et soumis à certaines proportions. 
-Vous le distinguez dans le Vol d*un oiseau , 
+Vous le distinguez dans le Vol d'un oiseau , 
 
 ' Vejr«i U Qo(« r à 1» fin du volamt. 
 
@@ -10025,7 +10025,7 @@ Vous le distinguez dans le Vol d*un oiseau ,
 D'ANACHARSIS. 3iS 
 
 dan» les pulsations des artères , dans les pas 
-dW danseur , dans les périodes d^un dis" 
+dW danseur , dans les périodes d'un dis" 
 cours. En poésie, c'est la durée relative des 
 instans que l'on emploie à prononcer les syl- 
 labes d'un vers ; en musique, la durée relative 
@@ -10127,7 +10127,7 @@ conclures que dans un concert notre oreille
 doit être sans cesse agitée par desraouTemens 
 8u]l»its qui la réveillent et Tétonnent. 
 
-Des lignes placées à la tête d*une pièce de 
+Des lignes placées à la tête d'une pièce de 
 musique en indiquent le rhylhme ; et le cory- 
 phée y du lieu le plus élevé de Torchestre , 
 l'annonce aux musiciens et aux danseura at- 
@@ -10287,7 +10287,7 @@ ser U conquête de cette île; les mœurs des
 D'ANACHAKSIS. 321 
 
 Arcadieus adoucies par la musique , et je ne 
-sais eombien d'auU*es faits qui n^auront point 
+sais eombien d'auU*es faits qui n'auront point 
 échappé à vos recherches. 
 
 Je les connais assez, me dit-il, pour vous 
@@ -10334,7 +10334,7 @@ destinée à conserver l'intégrité des mœurs.
 Mais , depuis qu'elle a fait de si grands pro- 
 grés, elle a perdu Fauguste privilège d'ins- 
 tridre les hommes et de les rendre meilleurs. 
-J^ai entendu plus d'une fois ces plaintes , lui 
+J'ai entendu plus d'une fois ces plaintes , lui 
 dis^c ; jeles ai vu plus souvent traiter de chi- 
 mériques. Les uns gémissent sur la corrup- 
 tion de la musique , les autres se félicitent de 
@@ -10356,10 +10356,10 @@ agréable ?
 
 Vous le comprendrez peut-être , répondit- 
 il, si TOUS comparez T ancienne musique avec 
-celle qui s^est introduite presque de nos jours. 
+celle qui s'est introduite presque de nos jours. 
 Simple dans son oiigine, plus riche et plus 
 variée dans la suite, elle anima successive- 
-ment les vers d^Hésiode , d'Homère, d' Archi- 
+ment les vers d'Hésiode , d'Homère, d' Archi- 
 loque , de Terpaudre, de Simonide et de Pin- 
 dare. Inséparable de la poésie, elle en em- 
 pruntait les charmes, ou plutôt elle lui prétait 
@@ -10370,7 +10370,7 @@ bellir sa compagne.
 toute sa force une image ou im sentiment. 
 Elle excite en nous des émotions d'autant plui 
 vives, qu'elle iàit seule retentir dans nos cœurs 
-la voix de la natui*e. D^où vient que les mal- 
+la voix de la natui*e. D'où vient que les mal- 
 heureux trouvent avec tant de facilité le secret 
 d'attendi'ir et de déchirer nos âmes ? C'est que 
 leui*s accens et leu^s tris sont le mot propre 
@@ -10450,10 +10450,10 @@ nait de grandes leçons de courage, de pru-
 
 3t6 VOYAGE 
 
-dence et d^honneur. Philotime s'interrompit 
+dence et d'honneur. Philotime s'interrompit 
 en cet endroit, pour me faire entendre quel- 
 ques morceaux de cette ancienne musique , et 
-surtout des airs d^un poëte nommé Olympe , 
+surtout des airs d'un poëte nommé Olympe , 
 qui vivait il y a environ neuf siècles. Ils ne 
 roulent que sur un petit nombre de cordes , 
 ajouta-t-il , et cependant ils font en quelque 
@@ -10490,7 +10490,7 @@ mais que des omemens distribués au hasard
 nuisent à F intérêt principal. Comme la dignité 
 tient à Télévation des idées et des sentimens , 
 le poëte qui en porte Tempreinte dans son âme, 
-ne s^abandonnt^ pas à des imitations serriles. 
+ne s'abandonnt^ pas à des imitations serriles. 
 Ses conceptions sont hautes , et sou langage 
 est celui d'un médiateur qui doit pai'ler aux 
 dieux et instruire les hommes. 
@@ -10558,7 +10558,7 @@ prochaine , puisqu'elle acquérait de nouvelles
 i^chesses. Polymneste , tendant ou relâchant 
 à son gré les cordes de la lyre , avait intro- 
 duit des accords inconnus jusqu'à lui. Quel- 
-ques musiciens s* étaient exercés à composer 
+ques musiciens s' étaient exercés à composer 
 poui* la flûte des airs dénués de paroles : bien- 
 tôt après on vit , dans les jeux py thiques , des 
 combats où Ton n'entendait que le scm de ces 
@@ -10567,7 +10567,7 @@ auteurs de cette poésie hardie et turbulente
 connue sous le nom de dithyrambique, tour- 
 mentaient à la fois la langue , la mélodie et le 
 rhythroe , pour les plier à leur fol enthou- 
-siasme. C^>endant l'ancien goût prédominait 
+siasme. C'>endant l'ancien goût prédominait 
 encore. Pindarc, Pratinas, Lamprus, d'au- 
 tres lyriques célèbres, le soutinrent dans sa 
 décadence. Le premier florissait lors de Tex- 
@@ -10580,7 +10580,7 @@ rooin de la révolution préparée par les inno-
 33o VOYAGE 
 
 valions de ses prédécesseurs, favorisée par 
-Fesprit d^indépendance que nous, avaient ins- 
+Fesprit d'indépendance que nous, avaient ins- 
 pu'é nos victoires sur les Perses. Ce qui Tac- 
 céléra le plus , ce fut la passion effrénée que 
 Ton prit tout à coup pour la musique instru- 
@@ -10593,7 +10593,7 @@ La ipusique , jusqu'alors soumise à la poé-
 sie, en secoua le joug avec Vaudace d'un es- 
 clave révolté ; les musiciens ne songeaient plus 
 qu'à se signaler par des découvertes. Plus ils 
-multipliaient les procédés de Fart , plus ils s^é- 
+multipliaient les procédés de Fart , plus ils s'é- 
 cartaient de la nature. La lyi'e et la cithare 
 firent entendre un plus gi*and nombre de sons. 
 On confondit les propriétés des genres , des 
@@ -10631,7 +10631,7 @@ d'entre eux avaient beaucoup d'esprit et de
 grands talens. Je nommerai Ménalippide » Ci- 
 nésias , Phrynis ; Polyidès , si célèbre par sa 
 tragédie d'Iphigénie; Timothée de Milet, qui 
-s^est exercé dans tous les genres de poésie y 
+s'est exercé dans tous les genres de poésie y 
 et qui jouit encore de sa gloire dans un âge 
 très avancé. C'est celui de tous qui a le plus 
 outragé l'ancienne musique. La crainte de pas- 
@@ -10715,7 +10715,7 @@ veautés qui donnent atteinte à la sévérité des
 mŒui*8. 11 faut observer que le décret est à 
 peu prés du temps où les Lacédémoniens reni- 
 ' portèrent à iEgos-Potamos cette célèbre vic- 
-toire qui les rendit mahres d^ Athènes. 
+toire qui les rendit mahres d' Athènes. 
 
 Parmi nous y des ouvriers , des mercenaii*es 
 décident du sort de la musique ; ils remplis- 
@@ -10724,12 +10724,12 @@ sique , et se constituent les arbitres du goût.
 Ck)mme il leur faut des secousses plutôt que 
 des émotions , plus la musique devint hardie , 
 enluminée , fougueuse , plus elle excita leurs 
-transpoils. Des philosophes eurent beau s^é- 
+transpoils. Des philosophes eurent beau s'é- 
 crier qu^adopler de pareilles innovations o''é- 
 tait ébranler les fondemens de FEtat * ; en vain 
 les auteurs dramatiques percèrent de mille 
 traits ceux qui cherchaient à les introduire ; 
-comme ils n^avaient point de décrets à lancer 
+comme ils n'avaient point de décrets à lancer 
 en faveur de Tancienne musique, les charmes 
 de son ennemie ont fini par tout subjuguer. 
 L'une et Tautre ont eu le même soit que la 
@@ -10740,15 +10740,15 @@ L'une et Tautre ont eu le même soit que la
 
 D'ANACHARSIS. 335 
 
-▼eilu et la volupté (juand elles entrent en con- 
+veilu et la volupté (juand elles entrent en con- 
 currence. 
 
 Parlez de bonne foi , dis-je alors à Philo- 
-time ; n^avez-vous pas quelquefois éprouTe la 
+time ; n'avez-vous pas quelquefois éprouTe la 
 séduction générale ? Très souvent , répondit- 
 il. Je conviens que la musique actuelle est SQ- 
 péiieure à Tautre par ses richesses et par ses 
-agrémens ; mais je soutiens qu'elle n^a pas 
+agrémens ; mais je soutiens qu'elle n'a pas 
 d'objet moral. J'estime dans les productions 
 des anciens un poète qui me fait aimer mes 
 devoirs ; j'admire dans celles des modernes un 
@@ -10790,8 +10790,8 @@ ver que y la nourriture étant également saine,
 et le plaisii* également vif, Teffet ultérieur soit 
 nuisible : enfin, si certains alimens propres à 
 flatter le goût ne produisaient ni bien ni mal , 
-le plaisir serait passager et n*aui*ait aucune 
-suite. Il résulte de là que c^est moins par le 
+le plaisir serait passager et n'aui*ait aucune 
+suite. Il résulte de là que c'est moins par le 
 premier effet que par le second qu'il faut dé- 
 cider si nos plaisirs sont utiles, funestes ou 
 indifferens. 
@@ -10813,8 +10813,8 @@ réfléchi sur Timmense pouvoir de T imitât ion ,
 considérez jusqu'à quelle profondeur deux de 
 nos sens, Touîe et la irue , transmettent à no- 
 tre âme les impressions qu'ils i«çoivent ; avec 
-quelle facilité un enfant entouré d^esclaves 
-copie leurs discours et leurs gestes , s^ appro- 
+quelle facilité un enfant entouré d'esclaves 
+copie leurs discours et leurs gestes , s' appro- 
 prie leurs inclinations et leur bassesse. 
 
 Quoique la peinture n'ait pas, k beaucoup 
@@ -10893,7 +10893,7 @@ caractère.
 En ce moment , des chanta mélodieux frap- 
 pcrent nos oreilles. On célébrait ce jour - là 
 une fcte en l'honneur de Thésée. Des chœurs 
-composés de la plus brillante jeimesse d* Athè- 
+composés de la plus brillante jeimesse d' Athè- 
 nes se rendaient au temple de ce héros. Ils 
 rappelaient sa victoire sur le minotaure , son 
 
@@ -10934,8 +10934,8 @@ iixei'aient sans cesse nos regards sur la véri-
 
 D'ANACHARSIS. 34i 
 
-table beauté. L^habitude de la contempler de- 
-viendrait pour nous une sorte d* instinct , et 
+table beauté. L'habitude de la contempler de- 
+viendrait pour nous une sorte d' instinct , et 
 notre âme serait contrainte de diriger ses 
 efforts suivant l'ordre et Thai^monie qui bril-» 
 lent dans ce divin modèle. 
@@ -10978,7 +10978,7 @@ vigueur , sans caractère , ne sont distinguées
 que par les différens degrés de leui* pusilla- 
 nimité. 
 
-•Mais, dis -je à Philotime, puisque Tan- 
+Mais, dis -je à Philotime, puisque Tan- 
 cienne musique a de si grands avantages , et 
 la moderne de si grands agrémens , pourquoi 
 n'a-t-on pas essayé de les concilier ? Je con- 
@@ -11061,7 +11061,7 @@ NOTES.
 
 
 
-Non a (page 5 ). Sur les Président du Sehat d^AtJunes. 
+Non a (page 5 ). Sur les Président du Sehat d'AtJunes. 
 
 Tout ce qui regarde les officiers du sénat et leurs 
 fonctions présente tant de diificuliés , que je me con- 
@@ -11074,12 +11074,12 @@ p. 188) ) Corsini (fast. attic, t. i, dissert. 6).
 Note b ( page 11). Sur les Décrets du Sénat et du 
 Peuple d'Athènes. 
 
-Rien ne s^execulait qu''en vertu des lois et des de'- 
+Rien ne s'execulait qu''en vertu des lois et des de'- 
 crels. Leur différence consistait en ce que les lois obli- 
 geaient tous les citoyens , et les obligeaient pour ton- 
 jours ; au lieu que les décrets , proprement dits , ne 
 regardaient que les particuliers , et notaient que pour 
-un temps. C^esl par un décret qu''oD envoyait des am- 
+un temps. C'esl par un décret qu''oD envoyait des am- 
 bassadeurs , qu^on décernait une couronne à un ci- 
 toyen, etc. Lorsque le décret embrassait tous les temps 
 et tous les particuliers, il devenait une loi. 
@@ -11092,7 +11092,7 @@ Non e (page 48). Sur un Jugement singulier de
 l'Aréopage. 
 
 Au fait que je cite dans le texte on peut en «ijouier 
-un auli-e qui s^est passe' long-temps après , et dans un 
+un auli-e qui s'est passe' long-temps après , et dans un 
 siècle où Athènes avait perdu toute sa gloire , el FArëo- 
 page conservé la sienne. Une femme de Sicyone , ou- 
 trée de ce qu\in second mari, el le fils qu^elle en avait 
@@ -11100,7 +11100,7 @@ eu , venaient de mettre à mort un fils de grande es-
 pérance qui lui restait de son premier époux , prit le 
 parti de les empoisonner. Elle fut traduite devant 
 plusieurs tribunaux , qui n''osèrent ni la condamner 
-ni Pabsoudre. L^affaire fut portée à TAréopage , qui , 
+ni Pabsoudre. L'affaire fut portée à TAréopage , qui , 
 après un long examen , ordonna aux parties de com- 
 paraître dans cent ans. 
 
@@ -11117,7 +11117,7 @@ NoTK e (page 89 ). Prix de diverses Marchandises.
 y Al rapporté dans le texte le prix de quelques co- 
 mestibles , tel qu^il était à Athènes du tem]» de Dé- 
 mosthène. Environ soixante ans auparavant, du temps 
-d^Aristophane , la journée d^ vu manœuvre vala it trois 
+d'Aristophane , la journée d' vu manœuvre vala it trois 
 oboles (neuf sons); un cheval de coufse, douze mines 
 ou mille deux cents drachmes ( mille quatre-vingts li» 
 
@@ -11137,7 +11137,7 @@ torze talens , environ soixante-quinze mille six cents
 livres. Voici quels étaient les principaux effets de cette 
 succession : 
 
-lo Une manufacture d^ëpees où travaillaient trente 
+lo Une manufacture d'ëpees où travaillaient trente 
 esclaves. Deux ou trois qui étaient à la tête valaient 
 chacun cinq à six cents drachmes , environ cinq cents 
 livres ; les autres , au moins trois cents drachmes , 
@@ -11155,7 +11155,7 @@ minet , ou six mille trois cents livres. 5^ Maison ;
 trente mines , ou deux mille sept cents livres. 6<^ Meu- 
 bles , vases , coupes , bijoux dW, robes et toilette de 
 la mère de Demosthène ; cent mines , ou neuf mille 
-livres. 7° De l^argeni prêté ou mis dans le com- 
+livres. 7° De l'argeni prêté ou mis dans le com- 
 merce , etc. 
 
 
@@ -11168,13 +11168,13 @@ par les rois de Ljfdie, et décrites dans Hérodote (lib. i ,
 cap. 1 4, 5o, etc.), et dans Diodore de Sicile ( lib. 1 6, 
 p. 46a). 
 
-Pour réduire le talent d'or en talent d^argent , je 
+Pour réduire le talent d'or en talent d'argent , je 
 prendrai la proportion de un à trme, comme elle était 
-du temps d^He'rodote ; et pour évaluer les lalens d ^ar- 
+du temps d'He'rodote ; et pour évaluer les lalens d ^ar- 
 gent , je suivrai les tables que j'ai donncfes à la fin de 
 cet ouvrage. Elles ont éle dressées pour le talent atiî- 
-que , et elles supposent que le drachme d^argeni pesait 
-•oixante-dix-neuf grains. II est possible que, du temps 
+que , et elles supposent que le drachme d'argeni pesait 
+oixante-dix-neuf grains. II est possible que, du temps 
 de cet historien , elle fût plus forte de deux ou trois 
 grains : il suffit d'en avertir. Voici les offrandes d'or, 
 dont Hérodote nous a conservé le poids : 
@@ -11209,7 +11209,7 @@ Report 19,656,000
 
 Un cratère pesant huit talens et quarante- 
 deux mines , valant cent treize talens 
-six mines d^argent ; de notre monnaie. 6 10,740 
+six mines d'argent ; de notre monnaie. 6 10,740 
 
 A ces oflrandes, Diodore de Sicile ajoute 
 trois cent soixante fioles dW, pesant 
@@ -11229,16 +11229,16 @@ cette discussion me mènerait trop loin.
 Note h (page 1 4 8) . Sur la Vapeur de V Antre de Delphes. 
 
 Cette vapeur était du genre des moufettes : elle ne 
-s^élevait qu^k une certaine hauteur. Il parait qu*on 
+s'élevait qu^k une certaine hauteur. Il parait qu*on 
 avait exhausse' le sol autour du soupirail. Voilà pour- 
 quoi il est dit qu''on descendait à ce soupirail. Le tre'- 
 pied étant ainsi enfonce' , on conçoit comment la va- 
 peur pouvait parvenir à la prêtresse , sans nuire aux 
 assistans. 
 
-Non i ( page soa ). Sur le Plan d^une Maison grecque. 
+Non i ( page soa ). Sur le Plan d'une Maison grecque. 
 
-M. Perrault a dresse' le plan d^une maison grecque, 
+M. Perrault a dresse' le plan d'une maison grecque, 
 diaprés la description que Vilruve en a faite. M. Ga- 
 
 
@@ -11250,27 +11250,27 @@ férable à celui de Perrault. JW publie un troisième,
 i{ue feu M. Mariette avait bien voulu dresser à ma 
 prière, et justifier par le mémoire suivant : 
 
-t J^ai lu , le plus attentivement qu"*!! m''a été pos* 
+t J'ai lu , le plus attentivement qu"*!! m''a été pos* 
 « sible , la traduction qu^a faite Perrault de Tendroit 
 « où Vitruve traite des maisons à Tusage des peuples 
 
-• de Tancienne Grèce. J''ai eu le texte latin sous les 
+ de Tancienne Grèce. J''ai eu le texte latin sous les 
 
-• yeux , et, pour eu dire la vérité, j'ai trouvé que le 
-« traducteur français s^y était permis bien de&libertrâ 
+ yeux , et, pour eu dire la vérité, j'ai trouvé que le 
+« traducteur français s'y était permis bien de&libertrâ 
 < que n''a pas prises , à mon avis, le marquis Galiani, 
 
-• dans la nouvelle traduction italienne du même au- 
+ dans la nouvelle traduction italienne du même au- 
 « teur, dont il vient de faire part au public. Il m'a 
 « paru que son interprétation , et le plan géométral 
 t d'une maison grecque qu'il a figuré et qu'il y a 
 « joint, rendait beaucoup mieux que 41e l'a fait Per- 
 « rault , les idées de Vitruve. Jugez-en vous-même. 
 
-■ De la façon dont s'est exprimé l'auteur latin , la 
+ De la façon dont s'est exprimé l'auteur latin , la 
 « maison d'un Grec était proprement celle que sa 
 
-• femme et son domestique habitaient. EUe n'était ni 
+ femme et son domestique habitaient. EUe n'était ni 
 t trop spacieuse ni trop ornéôf mais elle renfermait 
 « toutes les commodités qu'il était possible de se pro- 
 « curer. Le corps de logis qui y était joint , et qui 
@@ -11288,57 +11288,57 @@ I Comme il n'aurait pas été décent , et qu'on n'au-
 
 NOTES. 35i 
 
-bliqne , n*elant point précédée dWe porche on 
+bliqne , n'elant point précédée dWe porche on 
 atrium, comme dans les maisons qui se conslruisaient 
 k Rome ; et Pantre porte intérieure , toutes deux 
 gardées par difTérens portiers. Le texte ne dit pas , 
 en parlant de leur logement , Ostiarii cellam , m#is 
 Ostiariorum cellas. Pour gagner la seconde porte 
 après avoir franchi la première* on était ohligé de 
-suivre une allée en forme d^arenue assez étroite , 
+suivre une allée en forme d'arenue assez étroite , 
 latitudinis non spatiosa , et à laquelle je suppose une 
 grande longueur \ sans quoi Yilruve nVurait pas 
 regardé comme un voyage le trajet qu^il y avait à 
-faire d^une porte à Taulre : car c^est ainsi qu''il s''ex- 
+faire d'une porte à Taulre : car c'est ainsi qu''il s''ex- 
 prime en parlant de celle avenue , itinerafaciunt. 
-L^on n''aurait pas non plus été dans la nécessité de 
+L'on n''aurait pas non plus été dans la nécessité de 
 multiplier , comme on a vu , les portiers et leurs 
 loges , si les portes eussent été plus voisines. 
-« L^habitation, par celle disposition, se trouvant 
-éloignée de la voie publique, Ton y jouissait d^nne 
+« L'habitation, par celle disposition, se trouvant 
+éloignée de la voie publique, Ton y jouissait d'nne 
 plus grande tranquillité , et Ton avait , à droite et 
 à gauche de Tallée qui y conduisait , des espaces 
-suffisans pour y placer d^un câté les écuries et tout 
+suffisans pour y placer d'un câté les écuries et tout 
 ce qui en dépend ; les remises ou hangards propres 
-••à serrer les chars et autres Toitures , et les mettre à 
+à serrer les chars et autres Toitures , et les mettre à 
 Tabri des injures de Tair^ les gnniers à foin, les 
 lieux nécessaires pour le pansement des chevaux , 
 pour le dire en un mot, ce que nous comprenons 
 sous le nom général de basses ' cours , et que Vitruye 
 appelle simplement equilia. Ni Perrault , ni le mar- 
-quis Galiani , faute d^espace , ne Pont exprimé sur 
-leurs plans) ils se sont contentés d^y marquer la 
+quis Galiani , faute d'espace , ne Pont exprimé sur 
+leurs plans) ils se sont contentés d'y marquer la 
 place d'une écurie , encore si petite, que vous con- 
 
 
 
 35s NOTES. 
 
-■ Tiendrez avec moi de son insuffisance pttur une mai- 
+ Tiendrez avec moi de son insuffisance pttur une mai- 
 « son de celte conséquence. 
 
-c Sur l^aulre cdté de Pallée je poserai, avec Vitruve , 
+c Sur l'aulre cdté de Pallée je poserai, avec Vitruve , 
 
 < les loges des portiers, elj^y placerai encore les beaux 
 
 < vestibules qui donnaient entrée dans celte maison 
 
-< de parade que j^ai annoncée, laquelle couvrira, dans 
+< de parade que j'ai annoncée, laquelle couvrira, dans 
 
-■ mon plan, Tespace de terrain correspondant à celui 
-t qu ^occupent les écuries. Je suis contraint d^arouer 
+ mon plan, Tespace de terrain correspondant à celui 
+t qu ^occupent les écuries. Je suis contraint d'arouer 
 
-< que Vitruve se lait sur ce point ; mais ne semble*t*il 
+< que Vitruve se lait sur ce point ; mais ne semble*t'il 
 a pas Tinsinuer? car il ne quitte point rallée en ques- 
 a tion, sans faire remarquer qu'acné était le centre où 
 c aboutissaient les différentes portes -^ar où Ton arri- 
@@ -11347,42 +11347,42 @@ c aboutissaient les différentes portes -^ar où Ton arri-
 
 I Ce vestibule et les pièces qu''il précédait , se trou- 
 
-■ Tant ainsi sous la clef dé la première porte d'entrée, 
+ Tant ainsi sous la clef dé la première porte d'entrée, 
 « n''avaient pas besoin ^''un portier particulier; aussi 
 
 < ne voit-on pas que Vitruve leur en assigne aucun. 
 
-• Ce quMl n^aurait pas manqué de faire, si le vesti- 
+ Ce quMl n'aurait pas manqué de faire, si le vesti- 
 
-• bule eût été sur la voie publique, et tel que Ta figuré 
+ bule eût été sur la voie publique, et tel que Ta figuré 
 
 < sur son plan le marquis Gallani. 
 
 < Arrivé à la seconde porte , après se Tétre fait ou- 
-t vrir, on passait dans un péristyle ou cloître, n^ayant 
+t vrir, on passait dans un péristyle ou cloître, n'ayant 
 
-• que trois corridors ou portiques , un sur le devant , 
+ que trois corridors ou portiques , un sur le devant , 
 
-• et deux sur les côtés. Le prostas , ou ce que nous 
+ et deux sur les côtés. Le prostas , ou ce que nous 
 I nommons vestibule , pour mieux répondre à nos idées 
 > quoique ce fût une autre cbose chez les anciens , se 
 
 < présentait en face aux personnes qui entraient. Cé- 
 
-• tait un lieu tout ouvert par-devant , d''un tiers moins 
+ tait un lieu tout ouvert par-devant , d''un tiers moins 
 
-• profond que la largeur de sa baie , et flanqué de 
+ profond que la largeur de sa baie , et flanqué de 
 « chaque côté de son ouverture par deux anles ou pi- 
 
 
 
 NOTES. 35a 
 
-■ laslres , servant de supports aux poutres ou poitrail 
+ laslres , servant de supports aux poutres ou poitrail 
 
-■ qui en fermaient carrément par le haut Touverture , 
+ qui en fermaient carrément par le haut Touverture , 
 
-■ comme un linteau ferme celle d''une porte ou d^une 
+ comme un linteau ferme celle d''une porte ou d'une 
 t fenêtre. 
 
 « Quoique Vitruven^en parle point, il devait y avoir 
@@ -11400,9 +11400,9 @@ c je ne crois pourtant pas que l'A Grecs aient jamais fait
 « usage; et d'ailleurs, si c'en eAt eié une , elle aurait 
 « dû, pour remplir sa destination , précéder la pièce 
 
-■ appelée thalamus , et n'en être pas séparée par le 
+ appelée thalamus , et n'en être pas séparée par le 
 
-• prostas , ainsi que Viiruve le dit positivement j et 
+ prostas , ainsi que Viiruve le dit positivement j et 
 « que Perrault l'a observé lui - même , obligé de se 
 t conformer en cela au récit de son auteur. 
 
@@ -11412,7 +11412,7 @@ t conformer en cela au récit de son auteur.
 f Pourquoi , faisant aller ces deux pièces ensemble , 
 « en compose-t-il deux apparlemens pareils, qu'il met 
 
-• l'un à droite et l'autre à gauche du prostas et de la 
+ l'un à droite et l'autre à gauche du prostas et de la 
 « salle de travail ? N'a-t-il pas aperçu que Viiruve ne 
 « ctwipte que deux chambres uniques , une de chaque 
 t eîlé àa prostas ? ce qui est plus simple, et plus dans 
@@ -11428,17 +11428,17 @@ I les mêmes noms, preuve que chacune avait un usage
 « parliovlier qui obligeait de les éloigner Tune de 
 « Taulre. 
 
-c S^il mVtail permis de hasarder un sentiment, jVs- 
+c S'il mVtail permis de hasarder un sentiment, jVs- 
 « limerais que par thalamus Vitruve entend la cham- 
 
-• bre du lit , où couchent le maître et la maîtresse de 
-■ la maison ; et par amphithalamus , la chambre où la 
+ bre du lit , où couchent le maître et la maîtresse de 
+ la maison ; et par amphithalamus , la chambre où la 
 > maîtresse de maison reçoit ses visites , et autour de 
 I laquelle ( amphi, circum) régnent des lits en ma- 
 « nière dVstrades, pour y placer son monde. J''ai dans 
 I ridée que les anciennes maisons des Grecs avaient , 
 
-• quant à la partie de la distribution , beaucoup de 
+ quant à la partie de la distribution , beaucoup de 
 « rapport avec celles qu^habilent aujourd'hui les Turcs, 
 « maîtres du même pays. Vous me verrez bientôt sui- 
 « vre le parallèle dans Un plus grand détail. 
@@ -11448,7 +11448,7 @@ d maison où rien ne doit manquer , une pièce aussi
 « essentiellement nécessaire qu''esl une salle destinée 
 « aux visites. Voudriez*vous que la maîtresse du logis 
 
-• en fi\t privée , tandis que la maison du maître, dont 
+ en fi\t privée , tandis que la maison du maître, dont 
 « il sera question dans un instant , en surabonde? Que 
 t si vous ne me Taccordez pas en cet endroit, où la 
 t placerez- vous ? Déjà les autres pièces de la même 
@@ -11458,21 +11458,21 @@ t placerez- vous ? Déjà les autres pièces de la même
 < ou du péristyle, et qui ont leurs entrées sous les cor- 
 R ridors dudit cloître, sont occupées chacune ii sa des- 
 « tination. Vilruvenous dit que dans une on prenait 
-« journellement le repas, triclinia qtiotidiana , c^est-à- 
+« journellement le repas, triclinia qtiotidiana , c'est-à- 
 « dire, que le mailre du logis y mangeait ordinaire- 
-« ment avec sa femme et ses enfnns iorsquMl n^avait 
+« ment avec sa femme et ses enfnns iorsquMl n'avait 
 
 
 
 NOTES. 365 
 
-• pas compagnie ; dans les antres , les enfans ou les 
+ pas compagnie ; dans les antres , les enfans ou les 
 « domestiques y logeaient et y couchaient , cubicula ; 
-« ou bien elles servaient de garde-meubles , de d^- 
-II penses , d^offices , même de cuisine : car il faut bien 
+« ou bien elles servaient de garde-meubles , de d'- 
+II penses , d'offices , même de cuisine : car il faut bien 
 « qu^il y en ail au moins une dans une maison, et é^est 
 
-• ce que Viiruve comprend sous la dénomination gé- 
+ ce que Viiruve comprend sous la dénomination gé- 
 t nérale de celke famiUaricœ, Voilà pour ce qui re- 
 « garde la maison appelée parles Grecs gfnœconUù , 
 
@@ -11481,23 +11481,23 @@ appartement de la femme.
 « Perrault fait traverser cet e'difice pour arriver 
 « dans un autre plus considérable que le ma^re de la 
 
-■ maison habitait , e» dans lequel , sépare de sa fa- 
+ maison habitait , e» dans lequel , sépare de sa fa- 
 « mille, il vivait avec la splendeur qu''exigeiaent son 
 « état et sa condition. Cette disposition répugne avec 
 > raison au marquis Galiani : et , en eflet , il est dé- 
 K montré que les femmes grecques , reléguées pour 
 a ainsi dire dans la partie la plus reculée de la mai- 
-« sou, n^avaient aucune communication avec les hom- 
+« sou, n'avaient aucune communication avec les hom- 
 
 1 mes de dehors \ et par conséquent le quartier qui 
 
-■ leur était assigné devait être absolument séparé de 
-« celui que fréquentaient les hommes. Il n^était donc 
+ leur était assigné devait être absolument séparé de 
+« celui que fréquentaient les hommes. Il n'était donc 
 
-• pas convenable qu^il fût ouvert et qu^il servît con- 
+ pas convenable qu^il fût ouvert et qu^il servît con- 
 « linuellement de passage à ces derniers. Pour éviter 
 
-■ cet inconvénient, le marquis Galiani , dont j ^adopte 
+ cet inconvénient, le marquis Galiani , dont j ^adopte 
 I le sentiment , a jugé à propos de rejeter sur un des 
 « côtés le bâtiment que Perrault avait placé sur le front 
 « de rhabitation des femmes. 
@@ -11516,50 +11516,50 @@ f les désipiant , emploie les mots domus et peristylia
 « il vient de parler , y étaient adherens. Mais cela ne 
 « paraîtra ni nouveau ni extraordinaire à ceux qui ont 
 « ëlodie et qui connaissent le style peu correct de cet 
-« écrivain , qui ne se piquait pas d^éire un grand 
+« écrivain , qui ne se piquait pas d'éire un grand 
 « grammairien. Cest assez sa coutume de se servir du 
 « pluriel dans une infinile' de cas qui requièrent le 
 c singulier. Ainsi Perrault et le marquis Galiani ont 
 
-• très bien fait de prendre sur cela leur parti , et de 
-■ sVn tenir à un seul corps de bâtiment. J''en fais au- 
+ très bien fait de prendre sur cela leur parti , et de 
+ sVn tenir à un seul corps de bâtiment. J''en fais au- 
 < tant, et ne vois pas quW puisse penser autrement. 
 
 t Le second bâtiment , plus orne que le premier , 
-( n^ëlait proprement , ainsi que je Tai déjà fait obser- 
+( n'ëlait proprement , ainsi que je Tai déjà fait obser- 
 
-• ver , qu^une maison d'apparat et faite pour figurer. 
+ ver , qu^une maison d'apparat et faite pour figurer. 
 I On n'*y rencontrait que des salles d''audience et de 
 I conversation , des galeries ou cabinets de tableaux , 
 I des bibliothèques , des salles de festins ; aucune 
 
-• chambre pour Phabitation. C^ëtait là que le maître 
+ chambre pour Phabitation. C'ëtait là que le maître 
 « de la maison recevait les personnes distinguées qui 
 « le visilaienlf et qu'ail faisait les honneurs de chez lui \ 
-« qu''il conversait avec «es amis , quMl traitait d^af- 
+« qu''il conversait avec «es amis , quMl traitait d'af- 
 «faires, qu''il donnait des festins et des fêles; et 
 « dans toutes ces occasions, surtout dans la dernière 
 
-• ( Vitruve y est formel ) , les femmes ne paraissaient 
+ ( Vitruve y est formel ) , les femmes ne paraissaient 
 « point. 
 
 » Pour arriver à ces différentes pièces , il fallait , 
 « avant tout , traverser de magnifiques vestibules , 
 « vestibulaegregia. Le marquis Galiani, qui les réduit 
 
-• à un seul , range le sien sur la voie publique , sans 
+ à un seul , range le sien sur la voie publique , sans 
 
-• raccompagner d''aucune loge 4e portier^ qui , dans 
+ raccompagner d''aucune loge 4e portier^ qui , dans 
 
 
 
 NOTES. 357 
 
-■ ce cas*lk, y devenait nécessaire. Les miens n^ea an* 
+ ce cas*lk, y devenait nécessaire. Les miens n'ea an* 
 t ront pas besoin : ils sont renfermés sons Ift néma 
 
-■ clef que la première porte de la maison ; et , comm« 
-« j*ai déjà déduit les raisons sur lesquelles je me sais 
+ clef que la première porte de la maison ; et , comm« 
+« j'ai déjà déduit les raisons sur lesquelles je me sais 
 « fondé pour en agir ainsi , je me crois dispensé de 
 
 < les répéter. 
@@ -11569,63 +11569,63 @@ c Chaque pièce avait sa porte qui lui était propre,
 < et qui était ornée , ou , si Ton veut , meublée avec 
 « dignité : Janutu proprias cum dignitaie. Je préfére- 
 
-■ rais, puisquM faut suppléer un mot , celui de meu- 
+ rais, puisquM faut suppléer un mot , celui de meu- 
 
 < blé i par la raison que les portes dans l'intérieur des 
-« maisons, chez les anciens, n^étaient fermées qu'^avec 
-« de simples portières ou morceaux d^éloffes qu^on 
+« maisons, chez les anciens, n'étaient fermées qu'^avec 
+« de simples portières ou morceaux d'éloffes qu^on 
 « levait ou baissait suivant le besoin. Celles-ci avaient 
 
-< leurs issues sous les portiques d^uu péristyle bien 
+< leurs issues sous les portiques d'uu péristyle bien 
 ' autrement étendu que ne Tétait celui de Tautre 
 « maison : il occupait seul presque la moitié du ter- 
 « rain qa^occupait Tédifice entier ; et c''est ce qui fait 
 « que Viiruve , prenant la partie pour le tout , donne 
 
-■ en quelques endroits de sa description, le nom de 
+ en quelques endroits de sa description, le nom de 
 
-■ péristfU à tout Tensemble de Tédifice. Quelquefois 
+ péristfU à tout Tensemble de Tédifice. Quelquefois 
 
-■ ce péristyle avait cela de particulier , que le porti- 
+ ce péristyle avait cela de particulier , que le porti- 
 
-■ que qui regardait le midi , et auquel était appliquée 
+ que qui regardait le midi , et auquel était appliquée 
 c la grande salle des festins , soutenu par de hautes 
-• colonnes , était plus exhaussé que les trois autres 
+ colonnes , était plus exhaussé que les trois autres 
 
-■ portiques du même péristyle. Alors on lui donnait le 
+ portiques du même péristyle. Alors on lui donnait le 
 
 < le nom de portique rhodien. Ces portiques , pour plus 
 
 < de richesse , avaient leurs murailles enduites de stuc, 
 « et leurs plafonds lambrissés de menuiserie. Les hom- 
 
-■ mes s^y promenaient , et pouvaient s^y entretenir et 
-« parler d^affaires , sans crainte d^étre troublés pur 
+ mes s'y promenaient , et pouvaient s'y entretenir et 
+« parler d'affaires , sans crainte d'étre troublés pur 
 
 
 
 359 NOTES, 
 
-rapprocha de» femmes. ■ Cela leur avait fait donner 
+rapprocha de» femmes. Cela leur avait fait donner 
 la nom à^jindroniUdes. 
 
-c Pour vous l'aire prendre une idée asset juste d^un 
+c Pour vous l'aire prendre une idée asset juste d'un 
 semblable péristyle , je vous transporterai pour un 
 moment dans un magnifique cloître de moines , tel 
-qu^il y en a en plusieurs monastères d^Italie. Je le' 
+qu^il y en a en plusieurs monastères d'Italie. Je le' 
 ferai soutenir dans tout son pourtour par un rang 
-do colonnes , j^adosserai aux murailles de grandes 
+do colonnes , j'adosserai aux murailles de grandes 
 pièces qui auront leurs issues sous les portiques du 
-p^istyle^ j^en ouvrirai quelques-unes par devant , 
+p^istyle^ j'en ouvrirai quelques-unes par devant , 
 de toute leur étendue , comme vous avez pu voir 
 plusieurs chapitres de moines. Je ferai de ces pièces 
 ainsi ouvertes, de grandes salles de festins et des 
-salles dWdiences : car c^est ainsi que je les suj^se 
+salles dWdiences : car c'est ainsi que je les suj^se 
 ches les Grecs, et que mVident à les concevoir 
 celles du même genre qui nous sont demeurées dans 
 les Thermes des Romains. Je donnerai à la principale 
 de ces salles de festins , à laquelle je ferai regarder 
-le midi , le plus d^étendue que le terrain me le per» 
+le midi , le plus d'étendue que le terrain me le per» 
 mettra. Je la disposerai de manière qu^on y puisse 
 dresser commodément les quatre tables à manger, 
 à trois lits chacune , qui sont demandées par Vi- 
@@ -11636,7 +11636,7 @@ y donner des spectacles. Voilà , si je ne me trompe,
 un tableau tracé avec assez de fidélité , du superbe 
 péristyle dont Vilruve fait la description. 
 
-« Mais vous n^imaginez pas plus que moi que toutes 
+« Mais vous n'imaginez pas plus que moi que toutes 
 les maisons des Grecs fussent distribuées ni qu''e]les 
 fussent tontes orientées de la même manière que 
 
@@ -11654,10 +11654,10 @@ ou chaque édifice prend nécessairement une tour-
 nure singulière , et où tout propriétaire est contraint 
 de s'^assujettir aux alignemens que lui prescrivent 
 ses voisins ? Ce que Vitruve a donné ne doit donc 
-s''enlendre que de la maison dW grand , d^un Grec 
+s''enlendre que de la maison dW grand , d'un Grec 
 voluptueux que la fortune a favorisé, delicatior et 
 abfortunâ opulentior , ainsi que Vitruve le qualifie \ 
-qui , non content d^avoir édifié pour lui , fait en- 
+qui , non content d'avoir édifié pour lui , fait en- 
 core élever séparément , et dans les dehors de sa 
 maison , deux petits logemens assez commodes pour 
 que les étrangers qu''il y hébergera y trouvent leurs 
@@ -11668,13 +11668,13 @@ tir, sans être obligés de troubler le repos de celui
 qui les loge ; avoir pour cela des portes à eux , et 
 une rue entre leur domicile et celui de leur hâte. 
 « Encore aujpurd''hui , les Turcs se font un devoir 
-d^excrcer ^hospitalité dans des caravansérails^ ou 
+d'excrcer ^hospitalité dans des caravansérails^ ou 
 hôtelleries construites en forme de cloîtres quMIs 
 étabiissevt sur les chemins , et où les voyageurs sont 
 reçus gratuitement : ce que Ton peut regarder comme 
 un reite de ce qui se pratiquait anciennement en 
-Grèce. Quant à ce que j^ai laissé entrevoir de la per- 
-suasion ou j^éiais , que les maisons actuelles des 
+Grèce. Quant à ce que j'ai laissé entrevoir de la per- 
+suasion ou j'éiais , que les maisons actuelles des 
 
 
 
@@ -11683,12 +11683,12 @@ suasion ou j^éiais , que les maisons actuelles des
 Turcs ayaient de la ressemblance, ponrla disposi- 
 tion générale, aven celles des anciens Grecs leur» 
 prédécesseurs , je persiste dans le même sentiment : 
-et j^ajonie que cela ne peut guère être autrement 
+et j'ajonie que cela ne peut guère être autrement 
 dans un pays qui n''est pas , comme le nôtre , sujet 
 au caprice et aux vicissitudes de la mode. Lorsque 
 les Turcs ont envahi la Grèce , ils se sont en même 
 temps emparés des batimens qu^occupaient ceux quMU 
-venaient d^asservir. Ils s''y élablirent. Ils trouvèrent 
+venaient d'asservir. Ils s''y élablirent. Ils trouvèrent 
 des logemens tels quMs pouvaient les désirer, puis- 
 que les femmes y avaient des appartemens particu- 
 liers , et tout à fait séparés du commerce des hom- 
@@ -11707,9 +11707,9 @@ y aboBtissent.
 qu^il avait été tenté de placer la maison du maître 
 au devant de celle des femmes , et non sur le côté , 
 de façon que Ton entrât de la première dans la se- 
-conde. S^il Teùt fait , et il le pouvait , il se serait 
+conde. S'il Teùt fait , et il le pouvait , il se serait 
 conformé à la disposition actuelle des maisons des 
-Turcs ! car c^est sur le devant de Phabitttion que se 
+Turcs ! car c'est sur le devant de Phabitttion que se 
 lient le maître du logis, cVst en cet endroit qu'il 
 met ordre à ses affaires et quM reçoit ses visites. Les 
 
@@ -11717,7 +11717,7 @@ met ordre à ses affaires et quM reçoit ses visites. Les
 
 NOTES. a6i 
 
-■ femmes sont gardées dans un appartement plus re- 
+ femmes sont gardées dans un appartement plus re- 
 t cule , e( inaccessible à tout autre homme qu''k celui 
 « qui a le droit d'y entrer. Quelque resserrées que 
 ( soient les femmes turques , elles reçoivent cependant 
@@ -11729,13 +11729,13 @@ t raille , aulour d'une chamb^ uniquement destinée
 
 < bien à Vamphithalamus des maisons des Grecs , dans 
 
-■ le point de vue que je Vous Tai fait envisager. Je 
+ le point de vue que je Vous Tai fait envisager. Je 
 « vous puis conduire encore , s'il est nécessaire , dans 
 c d'autres chambres où je ferai voir les femmes lur- 
-• ques travaillant avec leurs esclaves à differens ou- 
+ ques travaillant avec leurs esclaves à differens ou- 
 t vrages , moins miles à la vérité que ceux dont s'oc- 
 
-■ cupaient les femmes grecques ; mais cela ne fait rien 
+ cupaient les femmes grecques ; mais cela ne fait rien 
 
 < au parallèle: il ne s'agit que de disposition de cham* 
 t bres et de bâtimens , et je crois l'avoir suttsaminent 
@@ -11766,11 +11766,11 @@ combiner de 6 façons dilîërentes ; 4 , de a 4 façons ;
 pliant la somme des combinaisons données par le 
 nombre suiTam. 
 
-Non k (page 269). Sur la Lettre d*Isocrate à 
+Non k (page 269). Sur la Lettre d'Isocrate à 
 Dimonicus. 
 
 Quelques savans critiques ont prétendu que cette 
-lettre n'c'lait pas dHsocrate ; mais leur opinion n^est 
+lettre n'c'lait pas dHsocrate ; mais leur opinion n'est 
 fonde'e que sur de légères conjectures. Voyez F.abri- 
 cius , et les Mémoires de TAcademie des Belles-Lellres. 
 
@@ -11780,7 +11780,7 @@ Mon / ( page 267 ). Sur le mot Nous , EKniiDEHSiiT,
 
 Il paraît que , dans Porigine , ce mot de'signait la 
 vue. Dans Homère , le mot noâ signifie quelquefois 
-je vois. La même signification s^est conservée dans le 
+je vois. La même signification s'est conservée dans le 
 mot prSnoia , que les Latins ont rendu par provisio , 
 providentia. C'est ce qui fait dire à Aristole que Tintel- 
 ligence , nous , est dans Tâme ce que la vue est dans 
@@ -11798,19 +11798,19 @@ la science des biens qui conviennent à Tbomme.
 
 NOTES. 365 
 
-Noter (page 271 )• Sur la Conformité de plusieurs 
-points de Doctrine entre VEcoh d^ Athènes et celle de 
+Noter (page 271 ) Sur la Conformité de plusieurs 
+points de Doctrine entre VEcoh d' Athènes et celle de 
 Pjrthagore, 
 
 Aristote dit que Platon avait emprunte des Pytha- 
 goriciens une partie de sa doctrine sur les principes. 
-C^est d''après eux aussi qu^Arislote avait compose' cette 
+C'est d''après eux aussi qu^Arislote avait compose' cette 
 échelle ingénieuse qui plaçait chaque vertu entre deux 
 vices , dont Tune pèche par défaut , et Taulre par 
 excès. Voyez ce que dit Théagès. 
 
 Le tableau que je présente dans ce chapitre est 
-composé d^une partie de Téchelle d''Aristote , et de 
+composé d'une partie de Téchelle d''Aristote , et de 
 quelques définitions répandues dans ses traités de mo- 
 rale , Tun adressé à Nicomaqtfe , le second appelé les 
 grandes Morales , le troisième adressé a Eudcme. Une 
@@ -11843,10 +11843,10 @@ NoTB p (page âgé ). Sur la Corde nommée i>eosla.m-
 
 BAHOMÎtlIX. 
 
-J^ai choisi pour premier degré' de cette cfchelle le ft, 
+J'ai choisi pour premier degré' de cette cfchelle le ft, 
 et non la prcslambanomène la , comme ont fait les 
-écrivains postérieurs à l^epoque de ces entretiens. Le 
-silence de Platon , d^Arisiote et d^Arislozëne , me 
+écrivains postérieurs à l'epoque de ces entretiens. Le 
+silence de Platon , d'Arisiote et d'Arislozëne , me 
 persuade que , de leur temps , la proslambanomëne 
 nVtait pas encore introduite dans le système musical. 
 
@@ -11854,11 +11854,11 @@ Non q (page 3o5V Sur le nombre des Tètraeordes
 introduits dans la Ljre, 
 
 Aristoiène parle des cinq tètraeordes qui formaient 
-de son temps le grand système des Grecs. Il m^a paru 
-que , du temps de Platon et d^Arisiote , ce système 
+de son temps le grand système des Grecs. Il m'a paru 
+que , du temps de Platon et d'Arisiote , ce système 
 était moins étendu ; mais comme Aristoxène e'iait dis- 
-ciple d^Aristoie , j''ai cru pouvoir avancer que cette 
-multiplicité de tètraeordes commençait à s^nirodutre 
+ciple d'Aristoie , j''ai cru pouvoir avancer que cette 
+multiplicité de tètraeordes commençait à s'nirodutre 
 du temps de ce dernier. 
 
 NoTB r (page 3 1 s). Sur le nombre des Notes de Vaneiennm 
@@ -11868,7 +11868,7 @@ M. Burette prétend que les anciens avaient seise
 cent vingt notes , tant pour la tablature des voix que 
 pour celle des instrumens. 11 ajoute quVprès quelques 
 années , on pouvait à peine chanter ou solfier aur tous 
-les tons et dans tous les genres , en s^accompagnanl àt 
+les tons et dans tous les genres , en s'accompagnanl àt 
 
 
 
@@ -11889,7 +11889,7 @@ trois genres , avait des noies diiîérentes. Il faut donc
 multiplier encore 54o par 3 , ce qui donne en effet 
 i6ao. 
 
-M. Burette ne s^st pas rappelé que , dans une lyre 
+M. Burette ne s'st pas rappelé que , dans une lyre 
 de 1 8 cordes , 8 de ces cordes étaient stables , et par 
 conséquent afleclées des mêmes signes , sur quelque 
 genre qu^on voulîil monter la lyre. 
@@ -11899,15 +11899,15 @@ trois genres de chaque mode montaient au nombre de
 33 pour les voix , et autant pour les inslrumens , en 
 tout 66. Multiplions à présent le nombre des notes par 
 celui des modes ; c'*est-k-dire 66 par 1 5 ; au lieu de 
-i6ao notes que supposait M. Burette, nous n^en au- 
+i6ao notes que supposait M. Burette, nous n'en au- 
 rons que 990 , dont 496 pour les voix , et autant pour 
 les instrumens. 
 
-Malgré cette réduction , on sera d^abord effrayé de 
+Malgré cette réduction , on sera d'abord effrayé de 
 celte quantité de signes autrefois employés dans la mu- 
 sique , et Ton ne se souviendra pas que nous en avons 
 un très grand nombre nous-mêmes , puisque nos clefs , 
-nos dièses et nos bémols changent la valeur d^une note 
+nos dièses et nos bémols changent la valeur d'une note 
 posée sur chaque ligne et dans chaque intervalle. Le 
 
 
@@ -11917,7 +11917,7 @@ posée sur chaque ligne et dans chaque intervalle. Le
 Grecs en avaient plus que noiu : leur tablature exi- 
 geait donc plus d'étude que la n6ire. Mais je suis bien 
 éloigne' de croire , avec M. Burette , qu'*il fall&t des 
-années entières pour s^y familiariser. 
+années entières pour s'y familiariser. 
 
 Non s (page 3 a 5). Sur les Hearmonies dorienne et 
 phrygienne. 
@@ -11927,8 +11927,8 @@ rharmonie phrygienne. Suivant Platon, plus tran*
 quille que la dorienne, elle inspirait la modération , 
 ei convenait à un homme qui invoque les dieux. Sui- 
 vant Ârisiole , elle était turhulenie et propre à Tea- 
-thousiasme. 11 cite les airs d^Olympe, qui remplis- 
-saient Tâme d^une fureur divine. Cependant Olympe 
+thousiasme. 11 cite les airs d'Olympe, qui remplis- 
+saient Tâme d'une fureur divine. Cependant Olympe 
 avait composé sur ce mode un nome pour la sage Mi- 
 nerve. Hyagnis , plus ancien qu*01ympe , auteur de 
 plusieurs hymnes sacrés , y avait employé Tharmonie 
@@ -11939,7 +11939,7 @@ son origine.
 
 Plularqne dit que les musiciens de son temps 
 feraient de vains efforts pour imiter la manière 
-d^Olympe. Le célèbre Tarlini s^ezprime dans les 
+d'Olympe. Le célèbre Tarlini s'ezprime dans les 
 mêmes termes , lorsqu''il parle des anciens chants 
 d'église : Bisogna , dit«il , confessar certamente esser- 
 vene qualeheduna (cantUena) talmente piena di gravita, 
@@ -11963,17 +11963,17 @@ les plus sacres du corps politique. On commença par
 varier les chants consacres au culte des dieux \ on 
 finit par se jouer des sermens faits en leur présence. A 
 Taspecl de la corruption générale , quelques philoso- 
-phes ne craignirent pas d^avancer que , dans un Etat 
+phes ne craignirent pas d'avancer que , dans un Etat 
 qui se conduit encore plus par les mœurs que par les 
 lois , les moindres innovations sont dangereuses , 
 parce quMles en entraînent bientôt de plus grandes: 
-aussi n^est-ce pas à la musique seule qu'*ils ordonnè- 
+aussi n'est-ce pas à la musique seule qu'*ils ordonnè- 
 rent de ne pas toucher \ la défense devait sVtendre 
 aux jeux , aux spectacles , aux exercices du gym- 
 nase , etc. Au reste , ces idées avaient été empruntées 
 des Egyptiens. Ce peuple , ou plutôt ceux qui le gou- 
 vernaient , jaloux de maintenir leur autorité, ne con- 
-çurent pas d^aulre moyen , pour réprimer Tinquiélude 
+çurent pas d'aulre moyen , pour réprimer Tinquiélude 
 des esprits , que de les arrêter dans leurs premiers 
 écarts ; de là ces lois qui défendaient aux artistes de 
 prendre le moindre essor, et les obligeaient à copier 
@@ -11988,17 +11988,17 @@ Voici une remarque de Tartini : « La musique nVst
 
 368 NOTES. 
 
-■ qae sa partie matérielle , absolument dépouillée de 
+ qae sa partie matérielle , absolument dépouillée de 
 
-• Tespril dont elle e'iait autrefois animée : en secouant 
+ Tespril dont elle e'iait autrefois animée : en secouant 
 
-• les règles qui dirigeaient son action sur un seul 
+ les règles qui dirigeaient son action sur un seul 
 
-■ point , elle ne l^a portée que sur des généralités. SI 
+ point , elle ne l'a portée que sur des généralités. SI 
 
-■ elle me donne des impressions de joie et de dou- 
+ elle me donne des impressions de joie et de dou- 
 I leur, elles sont vagues et incertaines. Or reffet de 
-« Tart n^est entier que lorsqu^il est particulier et indi- 
+« Tart n'est entier que lorsqu^il est particulier et indi- 
 « Tidnel. » 
 
 
