@@ -9420,7 +9420,7 @@ promis , et il continua de celte manière :
 
 
 
-D'ANACHARSIS. .j5 
+D'ANACHARSIS. 195 
 
 On distingue , dans la musitpie , le son, les 
 intervalles , les accords, les genres, les mo- 
@@ -11338,7 +11338,7 @@ c Sur l'aulre cdté de Pallée je poserai, avec Vitruve ,
  mon plan, Tespace de terrain correspondant à celui 
 t qu ^occupent les écuries. Je suis contraint d'arouer 
 
-< que Vitruve se lait sur ce point ; mais ne semble*t'il 
+< que Vitruve se lait sur ce point ; mais ne semble-t-il 
 a pas Tinsinuer? car il ne quitte point rallée en ques- 
 a tion, sans faire remarquer qu'acné était le centre où 
 c aboutissaient les différentes portes -^ar où Ton arri- 
