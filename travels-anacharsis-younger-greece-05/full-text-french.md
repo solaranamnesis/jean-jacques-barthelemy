@@ -12,13 +12,13 @@ AVANT  JÉSUS-CHRIST.
 
 CHAPITRE  LIX. 
 
-Voyage  de  l'Attique.  Agriculture. Mines  de  Sunium.  Discours 
-de  Platon  sur  la  formation  du  monde. 
+Voyage  de  l'Attique.  Agriculture. Mines  de  Sunium.  Discours
+de  Platon  sur  la  formation  du  monde.
 
 
 J'avais  souvent  passé  des  saisons  entières  en  dif- 
 férentes maisons  de  campagne.  J'avais  souvent  tra- 
-versé l'Attique.  Je  rassemble  ici  les  singularités  qui 
+versé l'Attique.  Je  rassemble  ici  les  singularités  qui
 m'ont  frappé  dans  mes  courses. 
 
 Les  champs  se  trouvent  séparés  les  uns  des  au- 
@@ -1239,7 +1239,7 @@ lib.  7,  cap.  7.  — '  Demosth.  ibid.  p.  988.  Suid.  et  Harpocr.  in
 lante,  dont  on  a  tiré,  pour  la  première  fois  dans 
 ces  derniers  temps ,  le  cinabre  artificiel  '  '^. 
 
-On  est  frappé,  quand  on  voyage  dans  l'Attique, 
+On  est  frappé,  quand  on  voyage  dans  l'Attique,
 du  contraste  que  présentent  les  deux  classes  d'ou- 
 vriers qui  travaillent  à  la  terre.  Les  uns,  sans  crainte 
 et  sans  dangers,  recueillent  sur  sa  surface  le  blé, 
@@ -1722,7 +1722,7 @@ celui  que  je  m'étais  d'abord  proposé.
 Dieu  n'a  pu  faire  et  n'a  fait  que  le  meilleur  des 
 mondes  possibles^,  parcequ'il  travaillait  sur  une 
 
-'Plat.  in Tim.  t.  3,  p.  71.  —  Md.  ibid.  —  '  Id.  ibid.  p.  3o  et  56. 
+'Plat.  in Tim.  t.  3,  p.  71.  —  Md.  ibid.  —  '  Id.  ibid.  p.  3o  et  56.
 Senec.  epist.  65. 
 
 5.  L 
@@ -4267,7 +4267,7 @@ lères ,  quatre  mille  soldats  étrangers  armés  à  la  lé-
 gère, et  cent  cinquante  chevaux'^,  sous  la  conduite 
 de  Gharidème,  qui  ne  surpasse  Charès  qu'en  scélé- 
 i^atesse.  Après  avoir  ravagé  la  contrée  voisine ,  il 
-est  entré  dans  la  ville,  où  tous  les  jours  il  se  signale 
+est  entré  dans  la  ville,  où  tous  les  jours  il  se  signale
 par  son  intempérance  et  ses  débauches  ^ 
 
 Quoique  bien  des  gens  soutiennent  ici  que  cette 
@@ -9626,7 +9626,7 @@ toute  l'Italie,  soixante  mille  hommes  se  rendirent
 toyens, les  autres  pour  être  distribués  dans  l'inté- 
 rieur de  l'île  ^. 
 
-'Plut.  in Timol.  t.  i,p.  260 et 253. — ^Id.  ib.  p.  247.Diod.  lib.  16, 
+'Plut.  in Timol.  t.  i,p.  260 et 253. — ^Id.  ib.  p.  247.Diod.  lib.  16,
 p.  472.  —  ^  Plut,  ibiil.  Diod.  ibid.  p.  47^;  lib.  19,  p.  652. 
 
 
@@ -9973,7 +9973,7 @@ stinct que  par  réflexion  ;  c'est  enfin  d'avoir  conçu
 que  tout  ce  que  la  nature  et  l'art  présentent  à  nos 
 yeux  n'est  qu'une  suite  immense  de  faits,  tenant 
 tous  à  une  chaîne  commune ,  souvent  trop  sembla- 
-bles pour n'être  pas  facilement  confondus,  et trop  dif- 
+bles pour n'être  pas  facilement  confondus,  et trop  dif-
 férents pour  ne  devoir  pas  être  distingués.  De  là  le 
 parti  qu'il  a  pris  d'assurer  sa  marche  par  le  doute  ^ , 
 
