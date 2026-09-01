@@ -2,12 +2,12 @@ CHAPITRE XXVIII.
 
 Suite des Mœurs des Athéniens. 
 
-J'ai dit plus haut * qu^en certaines heures 
+J'ai dit plus haut * qu'en certaines heures 
 de la journée les Athéniens s'assemblaient 
 dans la place publique ou dans les bouti- 
 ques dont elle est entourée. Je m'y ren- 
-dais soUTent, soit pour apprendre quelque 
-nouvelle , soit pour étudier le cai^actère de ce 
+dais souvent, soit pour apprendre quelque 
+nouvelle , soit pour étudier le caractère de ce 
 peuple. 
 
 J'y rencontrai un jour un des principaux 
@@ -15,22 +15,22 @@ de la ville qui se promenait à grands pas. Sa
 
 ' Voyez le chapitre XX de cet oQTrage. 
 
-anité ne pouvait être égalée que par sa. haine 
-conti'c la démocratie ; de tous les vers d'Ho- 
-mère il n aTait retenu qoe cette sentence ? 
+vanité ne pouvait être égalée que par sa haine 
+contre la démocratie ; de tous les vers d'Ho- 
+mère il n'avait retenu que cette sentence : 
 Rien n'est si dangereux que d'avoir tant de 
 chefs. 
 
-II Tenait àe receToir une légère insulte « 
-Non , disait-il en iureur, il faut que cet homme 
+Il venait de recevoir une légère insulte. « 
+Non , disait-il en fureur, il faut que cet homme 
 ou moi abandonnions la ville ; car aussi bien 
 n'y a-t-il plus moyen d'y tenir. Si je siège à 
 quelque tribunal, j'y suis accablé par la foule 
 des plaideurs , ou par les cris des avocats. A 
 l'assemblée générale, un homme de néant, 
-sale et mal vctu , a l'insolence de se placer au- 
-près de moi. Nos oraleui^ sont vendus à ce 
-peuple, qui tous les jours met à la tcte de ses 
+sale et mal vêtu , a l'insolence de se placer au- 
+près de moi. Nos orateurs sont vendus à ce 
+peuple, qui tous les jours met à la tête de ses 
 affaires des gens que je ne voudrais pas met- 
 tre à la tête des miennes. Dernièrement il était 
 question d'élire un général : je me lève ; je 
@@ -38,24 +38,24 @@ parle des emplois que j'ai remplis à l'armée,
 je montre mes blessures ; et l'on choisit un 
 homme sans expérience et sans talens. C'est 
 Thésée qui, en établissant l'égalité , est l'au- 
-teui* de tous ces maux. Homère avait bien pkis 
-de raison : Rien n'est si dangereux que d'avoîi* 
+auteur de tous ces maux. Homère avait bien plus 
+de raison : Rien n'est si dangereux que d'avoir 
 tant de chefs. En disant cela , il repoussait fiè- 
 rement ceux qu'il trouvait sur ses pas, refu- 
 
 sait le salut presque à tout le monde ; et s'il 
-permettait à quelqu'un de ses oliens de Tabor- 
+permettait à quelqu'un de ses clients de l'abor- 
 der , c'était pour lui rappeler hautement les 
 services qu'il lui avait rendus. 
 
-Dans un moment , un de ses ands s^approcha 
-de lui. Eli bien ! s'écria-t-il, dira-t-on encore 
+Dans un moment , un de ses amis s'approcha 
+de lui. Eh bien ! s'écria-t-il, dira-t-on encore 
 que je suis un esprit chagrin , que j'ai de l'hu- 
 meur ? Je viens de gagner mon procès , tout 
-d'une voix à la vérité ; nuis mon avocat n'a- 
+d'une voix à la vérité ; mais mon avocat n'a- 
 vait-il pas oublié dans son plaidoyer les meil- 
 leurs moyens de ma cause ? Ma femme accou- 
-cha hier d'im fils ; et l'on m'en félicite , comme 
+cha hier d'un fils ; et l'on m'en félicite , comme 
 si cette augmentation de famille n'apportait 
 pas une diminution réelle dans mon bien ! 
 Un de mes amis, après les plus tendres solli- 
@@ -67,10 +67,10 @@ doute cet homme a quelque vice caché. Je ne
 sais quel poison secret se mêle toujours à mon 
 bonheur. 
 
-Je laissai cet honmie déplorer ses infortu- 
+Je laissai cet homme déplorer ses infortu- 
 nes , et je parcourus les différens cercles que 
-je voyais autour de la place. Ils étaient com-» 
-posés de geos de tout âge et de tout état. 
+je voyais autour de la place. Ils étaient com- 
+posés de gens de tout âge et de tout état. 
 
 Des tentes les garantissaient des ardeurs du 
 
@@ -79,66 +79,66 @@ soleil.
 Je m'assis auprès d'un riche Athénien nom- 
 mé Philandre. Son parasite Criton cherchait 
 à l'intéresser par des flatteries outrées, à l'é- 
-gayer par des traits de méchanceté. 11 imposait 
+gayer par des traits de méchanceté. Il imposait 
 silence , il applaudissait avec transport quand 
-Philandre parlait , et mettait un pan de sa rohe 
-sur sa houche pour ne pas éclater quand il 
+Philandre parlait , et mettait un pan de sa robe 
+sur sa bouche pour ne pas éclater quand il 
 échappait à Philandre quelque fade plaisante- 
 rie. Voyez , lui disait-il, comme tout le monde 
 a les yeux fixés sur tous : hier, dans le porti- 
-que , on ne tarissait point sur yos louanges : 
-il fut question du plus liorméte homme de la 
-irille ; nous étions plus de trente ; tous les suf- 
+que , on ne tarissait point sur vos louanges : 
+il fut question du plus honnête homme de la 
+ville ; nous étions plus de trente ; tous les suf- 
 frages se réunirent en votre faveur. Cet hom- 
-me , dit alors Philandre , que je vois là-has , 
+me , dit alors Philandre , que je vois là-bas , 
 vêtu d'une robe si brillante , et suivi de trois 
-esclaves , n'est-ce pas ApoUodore , fils de Pa- 
+esclaves , n'est-ce pas Apollodore , fils de Pa- 
 sion , ce riche banquier ? C'est lui - même , 
 répondit le parasite. Son faste est révoltant , 
 et il ne se souvient plus que son père avait été 
 esclave. Et cet autre, reprit Philandre , qui 
 marche après lui la tête levée ? — Son père 
 s'appelait d'abord Sosie , répondit Criton ; et, 
-comme il avait été à l'année^ il se fit nommer 
+comme il avait été à l'armée, il se fit nommer 
 
 Sosistrate '. 11 fut ensuite inscrit au nombre 
 des citoyens. Sa mère est de Thrace, et sans 
-doute d'une illustre oi^gine ; car les femmes 
+doute d'une illustre origine ; car les femmes 
 qui viennent de ce pays éloigné ont autant de 
 prétentions à la naissance que de facilité dans 
 les mœurs. Le fils est un fripon , moins cepen- 
 dant qu'Hermogène, Corax et Thersite, qui 
 causent ensemble à quatre pas de nous. Le 
 premier est si avare que, même en hiver, sa 
-femme ne peut se baigner qu'à Teau froide ; 
+femme ne peut se baigner qu'à l'eau froide ; 
 le second si variable , qu'il représente vingt 
-honunes dans un même jour ; le troisième si 
+hommes dans un même jour ; le troisième si 
 vain , qu'il n'a jamais eu de complice dans les 
 louanges qu'il se donne , ni de rival dans 
-Tamour qu'il a pour lui-mcme. 
+l'amour qu'il a pour lui-même. 
 
 Pendant que je me tournais pour voir une 
 partie de dés , un homme vint à moi d'un air 
 empressé : Savez-vous la nouvelle? me dit-il. 
-— - Non, répondis-je. — Quoi ! vous l'igno- 
+— Non, répondis-je. — Quoi ! vous l'igno- 
 rez? Je suis ravi de vous l'apprendre. Je la 
 tiens de Nicératès , qui arrive de Macédoine. 
 Le roi Philippe a été battu par les Illyriens ; 
 il est prisonnier ; il est mort. — Comment ! 
 
-' Sosie est le nom d^un esclave ; Sosistrate celui 
-d''un homme libre. Stratia , signifie armée. 
+' Sosie est le nom d'un esclave ; Sosistrate celui 
+d'un homme libre. Stratia , signifie armée. 
 
 
-est-il possible ? ^- Rien n^est si certain. Je 
+est-il possible ? — Rien n'est si certain. Je 
 viens de rencontrer deux de nos archontes ; 
-j'ai TU la joie peinte sur leurs visages» Ce- 
+j'ai vu la joie peinte sur leurs visages. Ce- 
 pendant n'en dites rien, et surtout ne me citez 
 pas. Il me quitte aussitôt pour communiquer 
 ce secret à tout le monde. 
 
 Cet homme passe sa vie à forger des nou- 
-velles f me dit alors un gros Athénien qui était 
+velles , me dit alors un gros Athénien qui était 
 assis auprès de moi. Il ne s'occupe que de 
 choses qui ne le touchent point. Pour moi , 
 mon intérieur me suffît. J'ai une femme que 
@@ -148,56 +148,56 @@ j'étais prié chez un de mes amis ; et il me fit
 la description du repas. Je me retirai chez 
 moi assez content; mais j'ai fait cette nuit un 
 rêve qui m'inquiète : il me raconta son rêve . 
-Ensuite il me dit pesamment que la ville fom-- 
+Ensuite il me dit pesamment que la ville four- 
 millait d'étrangers ; que les hommes d'aujour- 
 d'hui ne valaient pas ceux d'autrefois ; que les 
 denrées étaient à bas prix : qu'on pourrait es- 
 pérer une bonne récolte, s'il venait à pleuvoir. 
 Après m' avoir demandé le quantième du mois, 
-il se le .leva pour aller souper avec sa fenmie. 
-£h quoi l me dit un Athénien qui survint 
+il se leva pour aller souper avec sa femme. 
+Eh quoi ! me dit un Athénien qui survint 
 tout à coup , et que je cherchais depuis long- 
 
-temps , vous avez la patience d'écouter cet cnr 
-miyeux personnage ? Que ne Êûsiez-vous com- 
+temps , vous avez la patience d'écouter cet en- 
+nuyeux personnage ? Que ne fussiez-vous com- 
 me Aristote ? Un grand parleur s'empara de 
 lui , et le fatiguait par des récits étranges. Eh 
 bien ! lui disait-il , n'étes-vous pas étonné P 
 Ce qui m'étonne, répondit Aristote, c'est 
 qu'on ait des oreilles pour vous entendre quand 
-on a des pieds pour vous échapper. J^ lui dis 
-alors que j'avais une afi^re à lui communi- 
+on a des pieds pour vous échapper. Je lui dis 
+alors que j'avais une affaire à lui communi- 
 quer, et je voulus la lui expliquer. Mais lui , 
 de m' arrêter à chaque mot. Oui> je sais de 
 quoi il s'agit ; je pourrais vous le raconter au 
 long; continuez, n'omettez aucune circons- 
 tance ; fort bien ; vous y êtes ; c'est cela même. 
 Voyez combien il était nécessaire d'en confé- 
-rer ensen^le! A la fin, je l'aveilis qu'il ne 
-cessait de m'intcrrompre. Je le sais, répon- 
+rer ensemble ! A la fin, je l'avertis qu'il ne 
+cessait de m'interrompre. Je le sais, répon- 
 dit-il ; mais j'ai un extrême besoin de parler. 
 Cependant je ne ressemble ' point à l'homme 
 qui vient de vous quitter. Il parle sans ré- 
 flexion , et je crois être à Fabri de ce repro- 
 che : témoin le discours que je fis dernière- 
-ment à l'assemblée : vous u'y étiez pas ; je 
-▼ais vous le réciter. A ces mots , je voulus pro- 
+ment à l'assemblée : vous n'y étiez pas ; je 
+vais vous le réciter. A ces mots , je voulus pro- 
 fiter du conseil d'Aristote : mais il me suivit, 
-toujours parlant , toujours déclamaut. 
+toujours parlant , toujours déclamant. 
 
-Je me jetai au milieu d^im groupe formé 
-autour d^un devin qui se plaignait de Tincré- 
-dulité des Athéniens. 11 s'écriait : Lorsque 
-dans Tasiemblée générale je parle des choses 
-divines , et que je vous dévoile Pavenir, vous 
+Je me jetai au milieu d'un groupe formé 
+autour d'un devin qui se plaignait de l'incré- 
+dulité des Athéniens. Il s'écriait : Lorsque 
+dans l'assemblée générale je parle des choses 
+divines , et que je vous dévoile l'avenir, vous 
 vous moquez de moi comme d'un fou ; cepen- 
-dant révénement a toujours justifié mes pré- 
+dant l'événement a toujours justifié mes pré- 
 dictions. Mais vous portez envie à ceux qui 
 ont des lumières supérieures aux vôtres. 
 
 Il allait continuer, lorsque nous vîmes pa- 
-raître Diogéne. Il arrivait de Lacédémone. 
-a D'où venez-vous? lui demanda quelqu'un. 
+raître Diogène. Il arrivait de Lacédémone. 
+« D'où venez-vous? lui demanda quelqu'un. 
 « — De l'appartement des hommes à celui 
 « des femmes , » répondit-il. « Y avait-il beau- 
 « coup de monde aux jeux olympiques ? lui dit 
@@ -213,66 +213,66 @@ question : « Comment puis-je me venger de
 o Diogéne , lui dit un troisième , on vous donne 
 « bien des ridicules. — Mais je ne les reçois 
 
-« pas. 9 Un étranger, né à Mynde , Toulut sa- 
+« pas. » Un étranger, né à Mynde , voulut sa- 
 voir comment il avait trouvé cette ville. « J'ai 
-«conseillé aux habitans, répondil-il, d'eu 
+« conseillé aux habitans, répondit-il, d'en 
 « fermer les portes, de peur qu'elle ne s'en- 
-«fuie. » C'est qu'en effet cette ville, qui est 
-très petite, a de u>ès grandes {>ortes. Le pa- 
+« fuie. » C'est qu'en effet cette ville, qui est 
+très petite, a de très grandes portes. Le pa- 
 rasite Criton , étant monté sur une chaise , lui 
 demanda pourquoi on l'appelait chien. — 
 « Parce que je caresse ceux qui me donnent 
 « de quoi vivre , que j'aboie contre ceux dont 
 «j'essuie des refus, et que je mords les mé- 
-« chans. — Et quel est , reprit le parasite , Ta- 
+« chans. — Et quel est , reprit le parasite , l'a- 
 « nimal le plus dangereux ? — Parmi les ani- 
 « maux sauvages , le calomniateur ; parmi les 
 « domestiques, le flatteur. » 
 
-A. ces mots , les assistans firent des éclats 
+À ces mots , les assistans firent des éclats 
 de l'ire ; le parasite disparut , et les attaques 
 continuèrent avec plus de chaleur. « Diogène, 
 «d'où étes-vous? lui dit quelqu'un. Je suis 
 « citoyen de l'univers, répondit-il. Eh ! non, 
 « reprit un autre, il est de Sinope ; les habi> 
 « tans l'ont condamné à sortir de leur ville. — 
-« Et moi je les ai condamnés a y rester. » Un 
+« Et moi je les ai condamnés à y rester. » Un 
 jeune homme d'une jolie figure s' étant avancé, 
 se servit d'une expression dont l'indécence fit 
 rougir un de ses amis de même âge que lui. 
 
-Diogène dit au second : « Courage , mou en- 
-« faut ! Toilà les couleurs de la Tortu. » Et s^a- 
-« dressant au premier : « N'avez«-vous pas de 
+Diogène dit au second : « Courage , mon en- 
+« fant ! Voilà les couleurs de la vertu. » Et s'a- 
+« dressant au premier : « N'avez-vous pas de 
 « honte, lui dit-il , de tirer une lame de plomb 
 « d'un fourreau d'ivoire ?» Le jeune homme 
-en ^reur lui ayant appliqué un soufflet : « Eh 
-« bien \ reprit-il sans s'émouvoir, vous m'ap- 
-a prenez une chose ; c'est que j'ai besoin d'un 
-«casque. Quel fruit, lui demanda-t-on tout 
-« de suite , avez-vous retiré de votre philoso* 
-a phie ? — Vous le voyez , d'être préparé à 
-tt tous les événemens. » 
+en fureur lui ayant appliqué un soufflet : « Eh 
+« bien ! reprit-il sans s'émouvoir, vous m'ap- 
+« prenez une chose ; c'est que j'ai besoin d'un 
+« casque. Quel fruit, lui demanda-t-on tout 
+« de suite , avez-vous retiré de votre philoso- 
+« phie ? — Vous le voyez , d'être préparé à 
+« tous les événemens. » 
 
 Dans ce moment, Diogéne, sans vouloir 
-quitter sa place , recevait sur sa tête de Teau 
-qui tombaitdu haut d'une maison : comme quel- 
-ques-uns des assistaus paraissaient le plaindre , 
+quitter sa place , recevait sur sa tête de l'eau 
+qui tombait du haut d'une maison : comme quel- 
+ques-uns des assistants paraissaient le plaindre , 
 Platon, qui passait par hasard , leur dit : « Vou- 
-a lez-vous que votre pitié lui soit utile ? faites 
+« lez-vous que votre pitié lui soit utile ? faites 
 « semblant de ne le pas voir. » 
 
 Je trouvai un jour au portique de Jupiter 
 quelques Athéniens qui agitaient des questions 
 de philosophie . Non, disait tristement un vieux 
 disciple d'Heraclite, je ne puis contempler 
-la nature sans un secret efiroi. Les êtres in- 
+la nature sans un secret effroi. Les êtres in- 
 sensibles ne sont que dans un état de guerre 
 ou de ruine; ceux qui vivent dans les airs. 
 
-dans les eaux et suf la terre , n'ont reçu la 
-lbi*ce ou la ruse que pour se poursuivre et se 
-détruire. J'égorge et je dévore moi-même Ta- 
+dans les eaux et sur la terre , n'ont reçu la 
+force ou la ruse que pour se poursuivre et se 
+détruire. J'égorge et je dévore moi-même l'a- 
 nimal que j'ai nourri de mes mains , en atten- 
 dant que de vils insectes me dévorent à leur 
 tour. 
@@ -282,9 +282,9 @@ rians , dit un jeune partisan de Démocrite. Le
 flux et le reflux des générations ne m'afflige 
 pas plus que la succession périodique des flots 
 de la mer ou des feuilles des arbres. Qu'im- 
-porte que t^ individus paraissent ou dispa- 
+porte que les individus paraissent ou dispa- 
 raissent ? La terre est une scène qui change à 
-tous momens de décoration. Ne se couvi*e- 
+tous momens de décoration. Ne se couvre- 
 t-elle pas tous les ans de nouvelles fleurs , de 
 nouveaux fruits ? Les atomes dont je suis com- 
 posé, après s'être séparés, se réuniront un 
@@ -292,15 +292,15 @@ jour, et je revivrai sous une autre forme.
 
 Hélas ! dit un troisième , le degré d'amour 
 ou de haine , de joie ou de tristesse dont nous 
-sommes afïèctés, n'influe que trop sur nos ju- 
+sommes affectés, n'influe que trop sur nos ju- 
 gemens. Malade , je ne vois dans la nature 
 qu'un système de destruction ; en santé, qu'un 
 système de reproduction. 
 
-EUe est l'un et l'autre , répondit im quatriè- 
+Elle est l'un et l'autre , répondit un quatriè- 
 me. Quand l'univers sortit du chaos , les êtres 
 
-intelligcns d^ent se flatter que la sagesse su- 
+intelligens durent se flatter que la sagesse su- 
 prême daignerait leur dévoiler le motif de leur 
 existence ; mais elle renferma son secret dans 
 son sein , et , adressant la parole aux causes 
@@ -311,226 +311,226 @@ jamais la destinée du monde.
 Je ne sais pas , reprit le premier, si c'est 
 pour se jouer, ou pour un dessein sérieux , 
 que les dieux nous ont formés ; mais je sais 
-que le plus grand des malheurs est de naître y 
+que le plus grand des malheurs est de naître ; 
 le plus grand des bonheurs de mourir. La vie, 
 disait Pindare , n'est que le rêve d'une om- 
 bre : image sublime, et qui d'un seul trait 
-peint tout le néant de Thomme. La vie, disait 
-Socrate , ne doit être que la méditation de ia 
-mort : paradoxe étrange-, de supposer qu'on 
+peint tout le néant de l'homme. La vie, disait 
+Socrate , ne doit être que la méditation de la 
+mort : paradoxe étrange, de supposer qu'on 
 nous oblige de vivre pour nous apprendre à 
 mourir. 
 
-L'homme naît , vit et meurt dans im même 
+L'homme naît , vit et meurt dans un même 
 instant ; et dans cet instant si fugitif, quelle 
 complication de souffrances ! Son entrée dans 
 la vie s'annonce par des cris et par des pleurs : 
 dans Tenfance et dans l'adolescence , des maî- 
 tres qui le tyrannisent , des devoirs qui l'acca- 
-blent : vient eiisuite une succession effrayante 
+blent : vient ensuite une succession effrayante 
 
-de ti*aTaux pénibles, de soins dévorans, de 
+de travaux pénibles, de soins dévorans, de 
 chagrins amers , de combats de toute espèce ; 
 et tout cela se termine par une vieillesse qui 
 le fait mépriser, et un tombeau qui le fait ou- 
 blier. 
 
-Vous n'avez qu a Tétudier.'Ses vertus ne 
-sont que T échange de ses vices ; il ne se sous- 
-ti*ait à Tun que pour obéir à T autre. S^il né- 
-glige son expérience , c^est un enfant qui com- 
+Vous n'avez qu'à l'étudier. Ses vertus ne 
+sont que l'échange de ses vices ; il ne se sous- 
+trait à l'un que pour obéir à l'autre. S'il né- 
+glige son expérience , c'est un enfant qui com- 
 mence tous les jours à naître ; s'il la consulte , 
 c'est un vieillard qui se plaint d'avoir trop 
 vécu. 
 
 Il avait par dessus les animaux deux insignes 
-avantages , la prévoyance et Tespérance. Qu'a 
+avantages , la prévoyance et l'espérance. Qu'a 
 fait la nature ? Elle les a cruellement empoi- 
-sonnés pai' la crainte. 
+sonnés par la crainte. 
 
-Quel vide dans tout ce qu'il fait I que de 
-Tariétés et d'inconséquences dans ses penchans 
+Quel vide dans tout ce qu'il fait ! que de 
+variétés et d'inconséquences dans ses penchans 
 et dans ses projets ! Je vous le demande : qu'est- 
 ce que l'homme ? 
 
 Je vais vous le dire , répondit un jeune 
-étourdi qui entra dans ce moment. 11 tira de 
+étourdi qui entra dans ce moment. Il tira de 
 dessous sa robe une petite figure de bois ou de 
-carton, dorit les membres obéissaient à des 
-fils qu'il tendait et relâchait à sou gré. Ces 
-fil« , dit-il , sont les passions qui nous entrai- 
+carton, dont les membres obéissaient à des 
+fils qu'il tendait et relâchait à son gré. Ces 
+fils , dit-il , sont les passions qui nous entrai- 
 
-nent tantôt d'un côté et tantôt de Tautre ; Toilà 
+nent tantôt d'un côté et tantôt de l'autre ; voilà 
 
 tout ce que j'en sais. Et il sortit. 
 
-Noire Tie, disait un disciple de Platon, est 
+Notre vie, disait un disciple de Platon, est 
 tout à la fois une comédie et une tragédie : 
 sous le premier aspect , elle ne pouvait avoir 
-d'aut|*e nœud que notre folie ; sous le second, 
-d'autre dcnoument que la mort ; et comme elle 
+d'autre nœud que notre folie ; sous le second, 
+d'autre dénoument que la mort ; et comme elle 
 participe de la nature de ces deux drames, 
 elle est mêlée, de plaisirs et de douleurs. 
 
 La conversation variait sans cesse. L'un 
-niait l'existence du mouvement ; Tauti^e , celle 
-des ohjets £ui nous entourent. Tout , au dehors 
+niait l'existence du mouvement ; l'autre , celle 
+des objets qui nous entourent. Tout , au dehors 
 de nous , disait-on , n'est que prestige et men- 
 songe; au dedans, qu'erreur et illusion. Nos 
 sens , nos passions , notre raison nous égarent; 
 des sciences , ou plutôt de vaines opinions , 
 nous arrachent au repos de l'ignorance pour 
-nous livrer au tourment de Tincertitude ; et 
-les plaisirs de T esprit ont des retoui*s mille 
+nous livrer au tourment de l'incertitude ; et 
+les plaisirs de l'esprit ont des retours mille 
 fois plus amers que ceux des sens. 
 
 J'osai prendre la parole. Les hommes , dis- 
-je , s'éclah^ent de plus en plus. N'est-il pas à 
+je , s'éclairent de plus en plus. N'est-il pas à 
 présumer qu'après avoir épuisé toutes les er- 
 reurs , ils découvriront enfin le secret de ces 
 mystères qui les tourmentent ? Et savez- vous 
-ce qui ai'rive? me répondit-on. Quand œ se- 
+ce qui arrive? me répondit-on. Quand ce se- 
 
-eret esc sur le point d^étre enleyé , la nature 
-est tout à coup atUupiée d'une épouvantable 
-maladie. Un déluge , un incendie détruit le» 
-nations, avec les monumcns de leur intelli- 
-gence et de leui- vanité. Ces fléaux teniblea 
-ont souvent boideversé notre globe ; le flam- 
+cret est sur le point d'être enlevé , la nature 
+est tout à coup attaquée d'une épouvantable 
+maladie. Un déluge , un incendie détruit les 
+nations, avec les monumens de leur intelli- 
+gence et de leur vanité. Ces fléaux terribles 
+ont souvent bouleversé notre globe ; le flam- 
 beau des sciences s'est plus d'une fois éteint 
-et raUumé^. A chaque révolution, quelques 
+et rallumé. À chaque révolution, quelques 
 individus épargnés par hasard renouent le fil 
 des générations ; et voilà une nouvelle race de 
 malheureux , laborieusement occupée , pen- 
-dant une longue suile de siècles , à se former 
+dant une longue suite de siècles , à se former 
 en société , à se donner des lois, à inventer les 
-arts et à pei*fectionner ses connaissances, jus- 
-qu'à ce qu'une autre catastrophe Tengloutisse 
-dans Tabime de Toubli. 
+arts et à perfectionner ses connaissances, jus- 
+qu'à ce qu'une autre catastrophe l'engloutisse 
+dans l'abîme de l'oubli. 
 
-Il n'était pas en mon pouvoir de soutehir 
+Il n'était pas en mon pouvoir de soutenir 
 plus long-temps une conversation si étrange et 
 si nouvelle pour moi. Je sortis avec précipi- 
 tation du portique; et, sans savoir où porter 
 mes pas , je me rendis sur les bords de l'Ilis- 
 sus. Les pensées les plus tristes, les sentimens 
 les plus douloureux agitaient mon âme avec 
-violence. Celait donc pour acquérir des lu- 
+violence. C'était donc pour acquérir des lu- 
 mières si odieuses que j'avais quitté mon pays 
-•t nés pai*ens ! Tous les efibrts de Tesprit hu- 
+et mes parens ! Tous les efforts de l'esprit hu- 
 
 
 
 i6 VOYAGE 
 
-raaia ne servent donc qu'à montrer que nous 
-sommes les plus miséi*ables des êtres l Mais 
+main ne servent donc qu'à montrer que nous 
+sommes les plus misérables des êtres ! Mais 
 d'où vient qu'ils existent, d'où vient qu'ils pé- 
 rissent ces êtres ? Que signifient ces change- 
 mens périodiques qu'on amène éteinellement 
 sur le théâtre du monde ? A qui destine-t-on 
 un spectacle si terrible ? est-ce aux dieux , qui 
-n'en ont aucun besoin? est-ce aux honmies> 
+n'en ont aucun besoin? est-ce aux hommes, 
 qui en sont les victimes? Et moi-même, sur 
 ce théâtre , pourquoi m'a-t-on forcé de pren- 
 dre un rôle ? pourquoi me tirer du néant sans 
 mon aveu? et me rendre malheureux sans me 
 demander si je consentais à l'être ? J'interroge 
-les cieux, la terre, l'univers entier. Que }K>ur- 
-raicnt-îLs répondre? ils exécutent en silence 
+les cieux, la terre, l'univers entier. Que pour- 
+raient-ils répondre? ils exécutent en silence 
 des ordres dont ils ignorent les motifs. J'in- 
 terroge les sages. Les cruels ! ils m'ont ré- 
-pondu. Ils m'ont appris à me coimnaître ; ils 
-mont dépouillé de tous les droits que j'avais à 
+pondu. Ils m'ont appris à me connaître ; ils 
+m'ont dépouillé de tous les droits que j'avais à 
 mon estime ; et déjà je suis injuste envers les 
-dieux, et bientôt })eut-étre je serai barbai>e 
+dieux, et bientôt peut-être je serai barbare 
 envers les hommes. 
 
 Jusqu'à quel point d'activité et d'exaltation 
 se porte une imagination fortement ébranlée! 
-D 'un coup d'œil j'avais parcouru toutes les con- 
-séquences de ces fatales opinions. Les moiii- 
+D'un coup d'œil j'avais parcouru toutes les con- 
+séquences de ces fatales opinions. Les moin- 
 
 
 
 I^'\?^ACHARS1S. 17 
 
-ili'es apparences étaient deyenuss pour moi des 
-t éalitês ; Jes moindres cniintes, des supplices. 
-'Me.A idées, semblables àdefrfantômcseffi'ayau», 
-se poussaient et se repoussaient dans mcm es- 
-prit comme les flots d^une mer agitée par une 
-hon'ible tempête. 
+ dres apparences étaient devenues pour moi des 
+ réalités ; les moindres craintes, des supplices. 
+ Mes idées, semblables à des fantômes effrayans, 
+se poussaient et se repoussaient dans mon es- 
+prit comme les flots d'une mer agitée par une 
+horrible tempête. 
 
-Au milieu de cet orage, je m^étaîs jeté, sans 
-m'en apercevoir, au pied d*un platane, sous 
-lequel Soerate venait quriipiefois s'entretenir 
+Au milieu de cet orage, je m'étais jeté, sans 
+m'en apercevoir, au pied d'un platane, sous 
+lequel Socrate venait quelquefois s'entretenir 
 avec ses disciples. Le souvenir de cet homme 
 si sage et si heureux ne servit qu'à augmenter 
-mon délirCé Je l'invoquais à haute voix , j'ar- 
-rosais de mes pleurs le beu où il s'était assis, 
-lorsque j'aperçus au loin Phocus , fils dePho> 
-cion , et Ctésippe , fils de Chabrîas , accom- 
+mon délire. Je l'invoquais à haute voix , j'ar- 
+rosais de mes pleurs le lieu où il s'était assis, 
+lorsque j'aperçus au loin Phocus , fils de Pho- 
+cion , et Ctésippe , fils de Chabrias , accom- 
 pagnés de quelques jeunes gens avec qui j'a- 
 vais des liaisons. Je n'eus que le temps de re- 
-prendre l'usage de mes sens : ils s'approcfaè- 
-i*ent, et me forcèrent de les suivre. 
+prendre l'usage de mes sens : ils s'approchè- 
+rent, et me forcèrent de les suivre. 
 
 Nous allâmes à la place publique : on nous 
-montra des épigrammes et des chansons conti*e 
-ceux qui étaient à la télé des affaires , et l'on 
-décida que le meilleur des gouvememens était 
+montra des épigrammes et des chansons contre 
+ceux qui étaient à la tête des affaires , et l'on 
+décida que le meilleur des gouvernemens était 
 celui de Lacédémone. Nous nous rendîmes au 
 théâtre ; on y jouait des pièces nouvelles que 
 nous sifflâmes , et qui réussirent. Nous mon- 
 
 
 
-tâmes à cheval. Au retour, àp'^s nous être 
-baignés , nous soupâmes avec des ^anteuses 
-et des joueuses de flûte. J'oubliai IcpCftique, 
-le platane et Socr^te ; je m'abandonnai sans 
+tâmes à cheval. Au retour, après nous être 
+baignés , nous soupâmes avec des chanteuses 
+et des joueuses de flûte. J'oubliai le portique, 
+le platane et Socrate ; je m'abandonnai sans 
 réserve au plaisir et à la licence. Nous passâ- 
-mes une partie de la nuit à boire , et Tautre 
-moitié à courir les rues |xmr insulter les pas- 
+mes une partie de la nuit à boire , et l'autre 
+moitié à courir les rues pour insulter les pas- 
 sans. 
 
 A mon réveil, la paix régnait dans mon âme, 
-et je reconnus aisément le principe des tei'reurs 
-qui m'avaient agité la veÛle; N'étant pas en- 
-core agueiTi contre les incertitudes du savcÂr, 
+et je reconnus aisément le principe des terreurs 
+qui m'avaient agité la veille. N'étant pas en- 
+core aguerri contre les incertitudes du savoir, 
 ma peur avait été celle d'un enfant qui se 
 trouve pour la première fois dans les ténèbres. 
 Je résolus dès ce moment de fixer mes idées 
-à regard des opinions qu on avait traitées dans 
-le portique, de fréquenter la^bibliothèque d'un 
+à l'égard des opinions qu'on avait traitées dans 
+le portique, de fréquenter la bibliothèque d'un 
 Athénien de mes amis , et de profiter de cette 
-occasion pour connaître en détail les difFéren«- 
+occasion pour connaître en détail les différen- 
 tes branches de la littérature grecque. 
 
 
 
-D'ANAGHARSIS. 19 
+D'ANACHARSIS. 19 
 
 
 
-CHAPITRE x:?;:ix. ■ 
+CHAPITRE XXIX. 
 
-Bibliothèque étvn Athénien, Classe de 
+Bibliothèque d'un Athénien. Classe de 
 Philosophie. 
 
-PisisTBATE S* était fait, il y a deux siècles, 
-une bibliothèque qu'il a^ait rendue publique , 
-et qui fut ensuite enlevée par Xeroès et trans- 
+Pisistrate s'était fait, il y a deux siècles, 
+une bibliothèque qu'il avait rendue publique , 
+et qui fut ensuite enlevée par Xerxès et trans- 
 portée en Perse. De mon temps, plusieurs 
 Athéniens avaient des collections de livres. La 
-plus considérable appartenait» Euclide. Il l'a- 
-vait reçue de ses pèi*es : il méritait de la pos- 
+plus considérable appartenait à Euclide. Il l'a- 
+vait reçue de ses pères : il méritait de la pos- 
 séder, puisqu'il en connaissait le prix. 
 
-En y entrant , je frîssonnai d'étonnemeut et 
+En y entrant , je frissonnai d'étonnement et 
 de plaisir. Je me trouvais au milieu des plus 
-beaux génies de la Grèce. Us vivaient , ils res- 
+beaux génies de la Grèce. Ils vivaient , ils res- 
 piraient dans leurs ouvrages , rangés autour 
 de moi. Leur silence même augmentait mon 
 respect : l'assemblée de tous les souverains de 
