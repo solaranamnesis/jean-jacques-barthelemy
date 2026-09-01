@@ -455,9 +455,9 @@ séquences de ces fatales opinions. Les moin-
 
 I^'\?^ACHARS1S. 17 
 
- dres apparences étaient devenues pour moi des 
- réalités ; les moindres craintes, des supplices. 
- Mes idées, semblables à des fantômes effrayans, 
+dres apparences étaient devenues pour moi des 
+réalités ; les moindres craintes, des supplices. 
+Mes idées, semblables à des fantômes effrayans, 
 se poussaient et se repoussaient dans mon es- 
 prit comme les flots d'une mer agitée par une 
 horrible tempête. 
