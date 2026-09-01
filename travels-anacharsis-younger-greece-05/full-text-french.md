@@ -9627,7 +9627,7 @@ toyens, les  autres  pour  être  distribués  dans  l'inté-
 rieur de  l'île  ^. 
 
 'Plut.  in Timol.  t.  i,p.  260 et 253. — ^Id.  ib.  p.  247.Diod.  lib.  16,
-p.  472.  —  ^  Plut,  ibiil.  Diod.  ibid.  p.  47^;  lib.  19,  p.  652. 
+p.  472.  —  ^  Plut,  ibid.  Diod.  ibid.  p.  47^;  lib.  19,  p.  652.
 
 
 278  VOYAGE    DANACHAKSIS. 
