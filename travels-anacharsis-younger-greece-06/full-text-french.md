@@ -9,7 +9,7 @@ Histoire  du  théâtre  des  Grecs.
 
 
 Vers  ce  temps-là  je  terminai  mes  recherches  sur 
-l'art  dramatique.  vSon  origine  et  ses  progrès  ont  par- 
+l'art  dramatique.  Son  origine  et  ses  progrès  ont  par- 
 tagé les  écrivains,  et  élevé  des  prétentions  parmi 
 quelques  peuples  de  la  Grèce  '.  En  compilant,  au- 
 tant qu'il  m'est  possible,  l'esprit  de  cette  nation 
@@ -21,13 +21,10 @@ Athéniens,  et  je  les  ai  préférées.    .
 p.  654. 
 
 
-:^^;] 
+<!-- Illustration non transcrite. -->
 
 
-^^oiJi»S63 
-
-
-2  VOYAGE   DANACHARSIS. 
+2  VOYAGE   D'ANACHARSIS. 
 
 C'est  dans  le  sein  des  plaisirs  tumultueux  et  dans 
 l'égarement  de  l'ivresse  que  se  forma  le  plus  ré- 
@@ -54,9 +51,9 @@ que  les  habitants  de  la  campagne  rendaient  à  la
 même  divinité;  elle  y  régnait  surtout ,  lorsqu'ils  re- 
 cueillaient les  fruits  de  ses  bienfaits.  Des  vendan- 
 geurs barbouillés  de  lie,  ivres  de  joie  et  de  vin, 
-s'élançaient  sur  leurs  chariots,  s  attaquaient  sur  les 
+s'élançaient  sur  leurs  chariots,  s'attaquaient  sur  les 
 chemins  par  des  impromptus  grossiers,  se  ven- 
-geaient de  leurs  voisins  en  les  couvrant  de  ridicides , 
+geaient de  leurs  voisins  en  les  couvrant  de  ridicules , 
 
 ■  Atlicn.  lib.  2,  cap.  3,  p.  4°.  —  '  Plut,  de  cupid.  divit.  t.  2, 
 p.   527.  —  '  Jd.  ibid. 
@@ -69,7 +66,7 @@ Parmi  les  poètes  qui  florissaient  alors,  les  uns
 chantaient  les  actions  et  les  aventures  des  dieux  et 
 des  héros  ^;  les  autres  attaquaient  avec  malignité 
 les  vices  et  les  ridicules  des  personnes.  Les  premiers 
-prenaient  Homère  pour  modèle;  l^s  seconds  s'au- 
+prenaient  Homère  pour  modèle;  les  seconds  s'au- 
 torisaient et  abusaient  de  son  exemple.  Homère, 
 le  plus  tragique  des  poètes^,  le  modèle  de  tous 
 ceux  qui  l'ont  suivi,  avait,  dans  l'Iliade  et  l'Odyssée, 
@@ -85,7 +82,7 @@ hasardèrent  des  essais  informes,  qu'on  a  depuis
 appelés  indifféremment  tragédies  ou  comédies, 
 parcequ'ils  réunissaient  à-la-fois  les  caractères  de 
 ces  deux  drames  ^  Les  auteurs  de  ces  ébauches  ne 
-se  sont  distingués  par  aucune  découverte  ;  ils  f  or- 
+se  sont  distingués  par  aucune  découverte  ;  ils  for- 
 
 '  Schol.  Aristoph.  in  nub.  v.  agS;  id.  in  prolcgom.  Aiistoph. 
 p.  xij.  Donat.  fragm.  de  comœd.  et  tragœd.  Buleng.  de  theatr. 
@@ -95,7 +92,7 @@ de  rep.  lib.  10,  p.  698  et  607;  id.  in  Tbeœt.  t.  i ,  p.  i52.  —
 t.  i5,  p.  260.  Prid.  in  marm.  Oxon.  p.  420. 
 
 
-4  VOYAGE   DANACHARSIS. 
+4  VOYAGE   D'ANACHARSIS. 
 
 ment  seulement,  dans  l'histoire  de  l'art,  une  suite 
 de  noms  qu'il  est  inutile  de  rappeler  à  la  lumière, 
@@ -105,7 +102,7 @@ On  connaissait  déjà  le  besoin  et  le  pouvoir  de
 l'intérêt  théâtral  :  les  hymnes  en  l'honneur  de  Bac- 
 chus,  en  peignant  ses  courses  rapides  et  ses  bril- 
 lantes conquêtes,  devenaient  imitatifs';  et,  dans  les 
-combats  des  jeux  pytliiques,  on  venait,  par  une  loi 
+combats  des  jeux  pythiques,  on  venait,  par  une  loi 
 expresse,  d'ordonner  aux  joueurs  de  flûte  qui  en- 
 traient en  lice  de  représenter  successivement  les 
 circonstances  qui  avaient  précédé,  accompagné,  et 
@@ -167,16 +164,16 @@ p.  654. — ^  Id.  de  poet.  cap.  5,  p.  656. — ^  Poli.  lib.  4,  cap- 
 Diog.  Laert.  lib.  i,  §.  59. 
 
 
-6  VOYAGE   DANACHARSIS. 
+6  VOYAGE   D'ANACHARSIS. 
 
 taient  exercés  dans  les  dithyrambes  et  dans  la  satire 
 licencieuse,  frappés  des  formes  heureuses  dont  ces 
 f^enres  commençaient  à  se  revêtir,  consacrèrent 
 leurs  talents  à  la  tragédie  et  à  la  comédie  '.  Bientôt 
 on  varia  les  sujets  du  premier  de  ces  poèmes.  Ceux 
-qui  ne  jugent  de  leurs  plaisirs  que  d'après  Thabi- 
+qui  ne  jugent  de  leurs  plaisirs  que  d'après  l'habi- 
 tude  s'écriaient  que  ces  sujets  étaient  étrangers  au 
-culte  de  Bacchus';  les  autres  accoifrurent  avec  plus 
+culte  de  Bacchus';  les  autres  accoururent  avec  plus 
 d'empressement  aux  nouvelles  pièces. 
 
 Phrynichus,  disciple  de  Thespis,  préféra  l'es- 
@@ -238,7 +235,7 @@ toph.  ibid.  V.  1062.  —  ^  Aristot.  de  rhet.  lib.  2,  cap.  8,  t.  2,
 p.  559. 
 
 
-8  VOYAGE    DANACHARSIS. 
+8  VOYAGE    D'ANACHARSIS. 
 
 tragédies'  ;  et  dans  la  suite,  à  1  exemple  de  Sopho- 
 cle, qui  venait  d'entrer  dans  la  carrière  du  théâtre, 
@@ -446,7 +443,7 @@ contr.  Theb.  —  ^  Aristoph.  in  ran.  v.  io53.  Plut,  syrapos.  lib.  7,
 cap.   10,  t.  2  ,  p.  71 5. 
 
 
-l4  VOYAGE    UAINACHARSIS. 
+l4  VOYAGE    D'ANACHARSIS. 
 
 «  bains,  dit  un  courrier  qu'Etéocle  avait  envoyé  au- 
 «  devant  de  l'armée  des  Argiens ,  l'ennemi  approche , 
@@ -587,7 +584,7 @@ p.  68.  —  'Vit.  ^schyl.  —  '  Poil.  lib.  4,  cap  i5,  §.  iiu.  —
 ti.  2 
 
 
-l8  VOYAGE   DAIN  ACHARSIS. 
+l8  VOYAGE   D'ANACHARSIS. 
 
 perfectionné  l'art  du  geste.  Dans  la  représentation 
 des  Sept  Chefs  devant  Thébes,  il  mit  tant  de  vérité 
@@ -796,7 +793,7 @@ cap.  r3.  —  ^  Euripid.  in  Melan.  ap  Atlien.  lib.  i4i  P-  61 3.  —
 ^  yElian.  ibid.  lib.  2 ,  cap.  1 3. 
 
 
-24  VOYAGE   DANACHARSIS. 
+24  VOYAGE   D'ANACHARSIS. 
 
 de  crimes,  et,  à  cette  occasion,  il  s  était  déchaîné 
 plus  d'une  fois  contre  les  femmes  en  général'.  On 
@@ -932,7 +929,7 @@ défauts  à  Eschyle:  la  hauteur  excessive  des  idées,
 p.  055.  Suid.  in  So^oxx.  Schol.  m  vit.  Sophocl. 
 
 
-28  VOYAGE    DANACHARSIS. 
+28  VOYAGE    D'ANACHARSIS. 
 
 l'appareil  gigantesque  des  expressions,  la  pénible 
 disposition  des  plans;  et  ces  défauts,  il  se  flattait 
@@ -1003,7 +1000,7 @@ V.  919.  Schol.  ibid.  ;  id.  in  ran.  v.  866  et  logS;  id.  ibid.  ;  id
 Acharn.  v.  41 1  ;  ifl  ibid 
 
 
-3o  VOYAGE    DANACHARSIS. 
+3o  VOYAGE    D'ANACHARSIS. 
 
 de  celle  de  Sophocle,  soulevèrent  d'abord  les  esprits: 
 on  disait  qu'on  ne  devrait,  sous  aucun  prétexte, 
@@ -1144,7 +1141,7 @@ t.  2,  p.  585.  Longin.  de  subi.  cap.  39,  p.  217.
 6.  3 
 
 
-34  VOYAGE   DANACHARSIS. 
+34  VOYAGE   D'ANACHARSIS. 
 
 élégant  et  clair,  presque  toujours  harmonieux,  cou- 
 lant ,  et  si  flexible  qu'il  paraît  se  prêter  sans  efforts 
@@ -1354,7 +1351,7 @@ uns  de  ceux  dont  les  succès  ou  les  vains  efforts
 p.  66a. 
 
 
-4o  VOYAGE   DANACHARSIS. 
+4o  VOYAGE   D'ANACHARSIS. 
 
 peuvent  éclaircir  l'histoire  de  l'art,  et  instruire 
 ceux  qui  le  cultivent. 
@@ -1493,7 +1490,7 @@ p.  654-  Dioraed.  de  orat.  lib.  3 ,  p.  485.  —  '  Aristot.  ibid.  cap
 Horat.  lib.  2,  epist.  i,  v.  58. 
 
 
-44  VOYAGE   DANACHARSIS. 
+44  VOYAGE   D'ANACHARSIS. 
 
 Epicharme  établit  une  action ,  en  lia  toutes  les  par- 
 ties, la  traita  dans  une  juste  étendue,  et  la  conduisit 
@@ -1566,7 +1563,7 @@ tin, ap.  Athen.  lib.  9,  p.  374.  Aristoph.  ibid.  lib.  14,  p-  653.  —
 p.  368. 
 
 
-46  VOYAGE   DANACHARSIS. 
+46  VOYAGE   D'ANACHARSIS. 
 
 Abeilles,  les  Grenouilles,  les  Nuées  ' ,  les  Chèvres  % 
 les  Lois  ^,  les  Peintres'^,  les  Pythagoriciens^,  les  Déser- 
@@ -1636,7 +1633,7 @@ jet dans  sa  généralité,  s'abstinrent  de  toute  injure
 tin.  ibid.  p.  267. 
 
 
-48  VOYAGE   DANACHARSIS. 
+48  VOYAGE   D'ANACHARSIS. 
 
 personnelle  ;  mais  d'autres  furent  assez  perfides 
 pour  confondre  les  défauts  avec  les  vices,  et  le  mé- 
@@ -1855,7 +1852,7 @@ prit et  du  cœur,  et  il  ne  manquait  plus  qu'un  génie
 p.  653.  —  '  Id.  ibid.  cap.  i,  p.  653.  Theophr.  cliaract.  cap.  6. 
 
 
-54  VOYAGE   DANACHARSIS. 
+54  VOYAGE   D'ANACHARSIS. 
 
 qui  mît  à  profit  les  erreurs  des  anciens,  et  les  ob- 
 servations des  modernes". 
@@ -2047,7 +2044,7 @@ Euripid.  p.  74.  —  '  Id.  Hippol.  Euripid.  p.  216.  —  *  iElian.  va
 hist.  lib.  2,  cap.  8. 
 
 
-6o  VOYAGE    DANACHARSIS. 
+6o  VOYAGE    D'ANACHARSIS. 
 
 sive  des  gouttes  d  eau  qui  s'échappaient  d'un  in- 
 strument nommé  clepsydre  ' .  Quoi  qu'il  en  soit , 
@@ -2341,7 +2338,7 @@ quatre  cents  livres.
 5. 
 
 
-68  VOYAGE   DANACHARSIS. 
+68  VOYAGE   D'ANACHARSIS. 
 
 elles  les  appellent  pour  concourir  à  l'ornement  de 
 leurs  fêtes,  et  s'ils  manquent  aux  engagements  qu'ils 
@@ -2414,7 +2411,7 @@ la  note  III  à  la  fin  du  volume.  —  ''  Aristot.  de  poet.  cap.  6, 
 p.  656.  Plut.  ibid.  p.  1 1 37. 
 
 
-•yO  VOYAGE   DANACHARSIS. 
+•yO  VOYAGE   D'ANACHARSIS. 
 
 Par  rapport  au  chant,  toutes  les  lois  étaient  autre- 
 fois de  rigueur;  aujourd'hui  on  viole  impunément 
@@ -2482,7 +2479,7 @@ cap.  I,  t.  2,  p.  583.  —  ^  Plat,  de  leg.  lib.  7,1.  2 ,  p.  816. �
 t.  I,  p.  85i;  id.  in  x  rhct.  vit.  t.  2,  p.  845. 
 
 
-72  VOYAGE    DANACHARSIS. 
+72  VOYAGE    D'ANACHARSIS. 
 
 leçons  des  philosophes  '.  On  cite  encore  les  noms 
 des  poètes  et  des  musiciens  qui  l'ont  enrichi  de  nou- 
@@ -2550,7 +2547,7 @@ Duport.  ibid.  p.  3o5.  —  ^Aristoph.  in  nub.  v.  S/fO.  —  ''Athcn.
 lib.  i4,  cap.  7,  p.  63o. 
 
 
-^4  VOYAGE   DANACHARSIS. 
+^4  VOYAGE   D'ANACHARSIS. 
 
 Dès  que  les  Grecs  eurent  connu  le  prix  de  la  danse 
 imitçitive,  ils  y  prirent  tant  de  goût,  que  les  auteurs, 
@@ -2619,7 +2616,7 @@ mosth.de  fais.  leg.  p.  295  et  34i-  — ^  Athen.  lib.  i,  cap.  i7,p  2
 cap    18,  p.  21.  Vita  Aristoph.  p.  xiij. 
 
 
-imm  VOYAGE    DANACHARSIS. 
+imm  VOYAGE    D'ANACHARSIS. 
 
 J'ai  vu  d'excellents  acteurs;  j'ai  vu  Théodore  au 
 commencement  de  sa  carrière,  et  Polus  à  la  fin  de 
@@ -2898,7 +2895,7 @@ suppl.
 6. 
 
 
-84  VOYAGE   DANACHARSIS. 
+84  VOYAGE   D'ANACHARSIS. 
 
 leurs  amis  et  de  leurs  chiens,  chantent  des  hymnes 
 en  riionneur  de  Diane  '  ;  c'est  un  char  sur  lequel 
@@ -3059,7 +3056,7 @@ Quels  nouveaux  éclats  de  tonnerre
 Maître  des  dieux,  exaucez-nous. 
 
 
-88  VOYAGE    DANACHARSIS. 
+88  VOYAGE    D'ANACHARSIS. 
 
 Si  notre  pitié  secourable 
 
@@ -3135,7 +3132,7 @@ p.  341  et  383. —  ^  Hcsycb.  Suid.  et  Ilarpocr.  in  Qm^U.  —  *  Liba
 argum.  olynth.  i.  Ulpian.  in  olyntb.  i,  p.  i4- 
 
 
-go  VOYAGE   DANACHARSIS. 
+go  VOYAGE   D'ANACHARSIS. 
 
 lité.  Mais  le  décret  a  toujours  subsisté  ' ,  quoique 
 les  suites  en  soient  devenues  funestes  à  l'état.  Péri- 
@@ -3266,7 +3263,7 @@ semblée. Théodecte  se  rendit  à  nos  instances,  mais
 d'Aristote,  que  nous  l'éclairerions  de  nos  lumières, 
 
 
-94  VOYAGE  DANACHARSIS. 
+94  VOYAGE  D'ANACHARSIS. 
 
 et  qu'on  ne  discuterait  que  les  articles  les  plus  es- 
 sentiels. Malg^ré  cette  dernière  précaution,  nous  fû- 
@@ -3839,7 +3836,7 @@ Col.  V.  270,  538,  et  SyS.  —  ^Id.  in  OEdip.  tyr.  v.  812.  — "^  A
 tot.  de  mor.  lib.  3,  cap.  i,  2,  3 ,  t.  2,  p.  28,  etc. 
 
 
-IIO  VOYAGE   DANACHARSIS. 
+IIO  VOYAGE   D'ANACHARSIS. 
 
 momentané  d'une  passion  suffit  pour  nous  entraîner 
 dans  l'abîme. 
@@ -3912,7 +3909,7 @@ sulter leurs  ministres.  De  pareils  crimes  devaient
 '  .Esrliyl.  in  Prom.  v.  5i3. 
 
 
-II?,  VOYAGE   DANACHARSIS. 
+II?,  VOYAGE   D'ANACHARSIS. 
 
 suite ,  et  ne  vînt  aux  pieds  des  autels  se  soumettre  à 
 des  cérémonies  destinées  à  le  purifier.  Les  prêtres  ne 
@@ -3984,7 +3981,7 @@ lianier.  mythol.  t.  3,  p.  73,
 G.  8 
 
 
-Il4  VOYAGE   DANACHARSIS. 
+Il4  VOYAGE   D'ANACHARSIS. 
 
 A  cette  idée  outrageante  pour  la  divinité  on  en 
 substitua  dans  la  suite  une  autre  qui  ne  l'était  pas 
@@ -4057,7 +4054,7 @@ id.  in  Electr  v.  1  238.
 Il6  VOYAGE   d'aINACHARSIS. 
 
 et  de  la  sœur;  parceque  d'ailleurs  tout  s'embellit 
-sous  la  plume  d'Eschyle,  de  vSophocle,  et  d'Euri- 
+sous  la  plume  d'Eschyle,  de  Sophocle,  et  d'Euri- 
 pide. 
 
 Aujourd'hui  que  la  saine  philosophie  nous  défend 
@@ -4113,7 +4110,7 @@ d'Homère,  en  plus  grand  nombre  dans  un  recueil
 intitulé  Cycle  épique ,  où  différents  auteurs  ont  ras- 
 semblé les  anciennes  traditions  des  Grecs  ' . 
 
-Outre  cette  source,  dans  laquelle  vSophocle  a 
+Outre  cette  source,  dans  laquelle  Sophocle  a 
 puisé  presque  tous  ses  sujets,  on  en  a  quelquefois 
 tiré  de  l'histoire  moderne:  d'autres  fois  on  a  pris 
 la  liberté  d'en  inventer.  Eschyle  mit  sur  la  scène  la 
@@ -4124,7 +4121,7 @@ prise  de  Milet^:  Agathon  donna  une  pièce  où  tout
 —  ^Herodot.  lib.  6,  cap.  21. 
 
 
-Il8  VOYAGE   DANACHARSIS. 
+Il8  VOYAGE   D'ANACHARSIS. 
 
 est  feint  '  ;  Euripide ,  une  autre  où  tout  est  allé- 
 gorique ^ 
@@ -4336,7 +4333,7 @@ elle  se  trouvait  dans  le  Térée  de  Sophocle.  Cette  pièce  est  perdue
 —  ^  Aristot.  ibid.  t.  2,  p.  665. 
 
 
-J  24  VOYAGE   DANACHARSIS. 
+J  24  VOYAGE   D'ANACHARSIS. 
 
 duer,  que,  d'un  seul  caractère,  il  en  résulte  plu- 
 sieurs qui  n'ont  de  commun  que  les  traits  princi- 
@@ -4410,7 +4407,7 @@ pièces  perdaient  une  partie  de  leur  intérêt  à  une
 '  Aristot.  de  poet.  cap.  1 3 ,  t.  2  ,  p.  662. 
 
 
-120  VOYAGE   DANACHARSIS. 
+120  VOYAGE   D'ANACHARSIS. 
 
 seconde  représentation,  mais  que  cette  perte  était 
 infiniment  plus  sensible  pour  celles  qui  se  termi- 
@@ -4479,7 +4476,7 @@ p.  666.  —  ^  Id.  ibid.  cap.  17,  p.  665;  cap.  i8,  p.  666.  —
 discours,  p.  74. 
 
 
-128  VOYAGE   DANACHARSIS. 
+128  VOYAGE   D'ANACHARSIS. 
 
 si  bien  liées  entre  elles,  qu'une  seule  étant  retran- 
 chée ou  transposée,  le  tout  soit  détruit  ou  changé  '  : 
@@ -4550,7 +4547,7 @@ V.  141 9.
 6. 
 
 
-l3o  VOYAGE   DANACHARSIS. 
+l3o  VOYAGE   D'ANACHARSIS. 
 
 des  torrents  de  larmes,  ils  éclatent  par  des  coups 
 de  tonnerre. 
@@ -4622,7 +4619,7 @@ jets ultérieurs  ^
 t.  2 ,  p.  667,  cap.  i5,  p.  663, 
 
 
-l32  VOYAGE   DANACHARSIS. 
+l32  VOYAGE   D'ANACHARSIS. 
 
 Les  mœurs  caractérisent  celui  qui  agit  '  :  elles 
 doivent  être  bonnes.  Loin  de  charger  le  défaut, 
@@ -4645,7 +4642,7 @@ Voulez-vous  leur  donner  du  relief  et  de  l'éclat,
 faites-les  contraster  entre  elles.  Voyez  combien , 
 dans  Euripide,  le  caractère  de  Polynice  devient 
 intéressant  par  celui  d'Etéocle  son  frère^;  et  dans 
-vSophocle,  le  caractère  d'Electre  par  celui  de  Ghry- 
+Sophocle,  le  caractère  d'Electre  par  celui  de  Ghry- 
 sothémis  sa  sœur  ^. 
 
 Nous  devons,  comme  les  orateurs,  remplir  nos 
@@ -4692,7 +4689,7 @@ le  trône  de  Thébes.  Etéocle  refusait  d'en  descen-
 dre, et  pour  le  porter  à  ce  sacrifice,  la  reine  lui  re- 
 
 
-l34  VOYAGE    DANACHARSIS. 
+l34  VOYAGE    D'ANACHARSIS. 
 
 présente,  entre  autres  choses,  que  Tégalité  établit 
 autrefois  les  poids  et  les  mesures,  et  a  réglé  de 
@@ -4972,7 +4969,7 @@ gnificence. D'un  côté,  on  détruirait  l'égalité  qui  doit
 t.  2,  p.  655. 
 
 
-l42  VOYAGE   DANACHARSIS. 
+l42  VOYAGE   D'ANACHARSIS. 
 
 régner  entre  les  citoyens;  de  l'autre,  on  se  priverait 
 des  sommes  d'argent  que  les  étrangers  versent  dans 
@@ -5045,7 +5042,7 @@ diatrib.  in  Euripid.  cap.  23  ,  p.  iSo.  —  ^Euinpid.  in  Helen.  et  i
 Hcracl. 
 
 
-l44  VOYAGE   DANACHARSIS. 
+l44  VOYAGE   D'ANACHARSIS. 
 
 modèles;  nous  entretenons  leur  vanité,  pour  leur 
 inspirer  de  Tlionneur.  Il  n'est  point  de  sujet  qui  ne 
@@ -5472,7 +5469,7 @@ donner  à  la  nouvelle  ville  :  il  désigne  la  ville  des  oiseaux  dans 
 région  des  nues. 
 
 
-l56  VOYAGE   DANACHARSIS. 
+l56  VOYAGE   D'ANACHARSIS. 
 
 LE  POÈTE. 
 
@@ -5570,7 +5567,7 @@ Prenez  et  lisez.  «  Si  vous  exécutez  mes  ordres ,
 (  Schol.  Aristoph.  in  av.  v.  96g.  ) 
 
 
-l58  VOYAGE   DANACHARSIS. 
+l58  VOYAGE   D'ANACHARSIS. 
 
 «  VOUS  serez  au-dessus  des  mortels,  comme  un  aigle 
 <(  est  au-dessus  des  oiseaux.  » 
@@ -5824,7 +5821,7 @@ pas;  car  ses  fréquentes  reparties  réussissaient  sou-
 vent. Il  passait  sa  vie  à  voyager  dans  les  différents 
 
 
-VOYAGE   DANACHARSIS.  l65 
+VOYAGE   D'ANACHARSIS.  l65 
 
 cantons  de  la  Grèce'.  Il  venait  alors  de  la  ville 
 dVEnos  en  Thrace.  Nous  lui  demandâmes  comment 
@@ -5859,7 +5856,7 @@ Alhen.  lib.  i,  p.  29  et32.  —  ''Theopomp.  ibid.  lib.  1,  cap.  20,
 p.  26. — '  Athen.  ibid.  p.  25. 
 
 
-l66  VOYAGE   DANACHARSIS. 
+l66  VOYAGE   D'ANACHARSIS. 
 
 des  principaux  de  l'île,  on  agita  la  fameuse  ques- 
 tion de  la  patrie  d'Homère  :  quantité  de  peuples 
@@ -5929,7 +5926,7 @@ inodyss.  lib.  3, p.  1462, lin.  35.  —  ''Hcracl.  l'ont,  ap.  AtLtn.  lib
 cap.  5,  p.  624.  —  'Dicaearch.  stat.  Grœc.  ap.  gcogr.  min.  t.  2, p.  21. 
 
 
-l68  VOYAGE   DANACHARSIS. 
+l68  VOYAGE   D'ANACHARSIS. 
 
 bre.  Le  dorieii,  qu'on  parle  à  Lacédémone,  en  Ar- 
 golide,  en  Crête,  en  Sicile,  etc.,  forme  dans  tous 
@@ -6554,7 +6551,7 @@ cap.  5 ,  t.  2,  p.  726.  Luciari.  in  amor.  §.  i3,  t.  2,  p.  4ii-  �
 'Diod.  eclog.  ex  lib.   26,  p.  88'î. 
 
 
-l86  VOYAGE   DANACHARSIS. 
+l86  VOYAGE   D'ANACHARSIS. 
 
 «du  jugement  de  Paris'.  »  Un  troisième:  «lia 
 «  déesse  daigna  autrefois  se  montrer  sans  voile  aux 
@@ -6915,7 +6912,7 @@ découverte,  reçurent  leurs  noms  des  animaux,  des
 in  Pdf. 
 
 
-VOYAGE   DANACHARSIS.  197 
+VOYAGE   D'ANACHARSIS.  197 
 
 arbres,  des  plantes,  et  des  fleurs  qui  s'y  tiouvaient 
 en  abondance.  On  disait  :  levais  au  pays  des  cailles, 
@@ -7091,7 +7088,7 @@ lyb.  lib.  5,  p.  428;  id.  excerpt.  légat,  p.  924.  Diod.  lib.  20,  p.
 Hirt.  de  bell.  Alex.  cap.  i5.  —  ''Diod.  ibid.  p.  809. 
 
 
-202  VOYAGE   DANACHARSIS. 
+202  VOYAGE   D'ANACHARSIS. 
 
 sein  de  l'opulence''.  Leurs  mœurs  ont  quelquefois 
 reçu  de  fortes  atteintes;  mais  ils  sont  tellement  at- 
@@ -7445,7 +7442,7 @@ ihid.  p.  475.  —  <^Onze  lieues  buit  cent  cinquante  toises.
 .4. 
 
 
-2  12  VOYAGE    DANACHARSIS. 
+2  12  VOYAGE    D'ANACHARSIS. 
 
 tent  successivement  d'abondantes  moissons  de  blé, 
 de  vin,  d'huile,  de  miel,  et  de  fruits  de  toute  espèce  ' . 
@@ -7656,7 +7653,7 @@ lib.  9,  cap.  40,  p.  795.  —  Md.  lib.  2  ,  cap.  3i,  p.  i85.  —  '
 lib.  3,  cap.  3,  p.  211. 
 
 
-2l8  VOYAGE    DANACHARSIS. 
+2l8  VOYAGE    D'ANACHARSIS. 
 
 dans  les  maximes  et  dans  les  usages  d'un  peuple, 
 les  débris  de  son  ancienne  sagesse.  Les  Cretois  ne 
@@ -7935,7 +7932,7 @@ bell.  Ictt.  t.  6,  p.  280.
 G.  I  "i 
 
 
-226  VOYAGE   DANACHARSIS. 
+226  VOYAGE   D'ANACHARSIS. 
 
 lopper  sa  pensée,  lorsqu'un  effroi  mortel  s'empara 
 de  lui.  Le  vent  soufflait  avec  violence;  notre  pilote 
@@ -8209,7 +8206,7 @@ décent.  §.  12,  t.  1,  p.  5g.  —  '  Id.  in  jasjur.  §.  a,  t  1,
 p.  43. 
 
 
-234  VOYAGE   DANACHARSIS. 
+234  VOYAGE   D'ANACHARSIS. 
 
 les  qualités  de  l'esprit  et  du  cœur'.  En  effet,  si 
 Fou  n'était  assuré  de  sa  discrétion  et  de  sa  sagesse, 
@@ -8464,7 +8461,7 @@ phos,  etc.
 6  16 
 
 
-242  VOYAGE    DANACHARSIS. 
+242  VOYAGE    D'ANACHARSIS. 
 
 Le  prêtre  en  convint.  Nous  lui  demandâmes  ce 
 que  signifiaient  deux  paons  de  bronze  placés  aux 
@@ -8672,7 +8669,7 @@ lib  35 ,  t.  2 ,  p.  7 1 1 .  —  ^  Herodot.  lib.  3 ,  cap.  26.  —  " 
 vingt-quatre  mille  livres. 
 
 
-248  VOYAGE    DANACHARSIS. 
+248  VOYAGE    D'ANACHARSIS. 
 
 Jimon  un  grand  cratère  de  bronze  qui  subsiste  en- 
 core. Les  bords  en  sont  ornés  de  têtes  de  gryphons. 
@@ -8813,7 +8810,7 @@ a  p.  Athen.  lib.  12,  cap.  10,  p.  54o.  —  *Athen.  lib.  12,  cap.  13
 p.  54.'>.  —  ^Erasni.  adag.  in  flor.  Sam.  chil.  2,  cent.  9 ,  p.  553. 
 
 
-252  VOYAGE   DANACHARSIS. 
+252  VOYAGE   D'ANACHARSIS. 
 
 On  dit  aussi  que  les  découvertes  des  Samiennes 
 passèrent  insensiblement  chez  les  autres  Grecs,  et 
@@ -8881,7 +8878,7 @@ cap.  4o,  etc.  Strab.  lib.  14,  p.  637.  Plin.  lib.  33,  cap.  i,  t.  2,
 p.  6o5  ;  lib.  37,  cap.  i,  p.  764.  Pausan.  lib.  8,  cap.  i4,  p.  629. 
 
 
-254  VOYAGE    DANACHARSIS. 
+254  VOYAGE    D'ANACHARSIS. 
 
 Les  craintes  d'Amasis  furent  enfin  réalisées.  Pen- 
 dant que  Polycrate  méditait  la  conquête  de  Flonie 
@@ -9225,7 +9222,7 @@ Liician.  pro  laps.  §.  5,  t.  1,  p.  729.  Diog.  Laeit.  lib.  8,  §.  6
 "Id.  ibid.  §.  7. 
 
 
-264  VOYAGE   DANACHARSIS. 
+264  VOYAGE   D'ANACHARSIS. 
 
 iont  chargé  sa  règle  de  plusieurs  nouvelles  prati- 
 ques. Vous  entendez  dire ,  et  l'on  dira  encore  plus 
@@ -9653,7 +9650,7 @@ ibid.  Porph.  vit.  Pyth.  p.  25.
 18. 
 
 
-2-6  VOYAGE    DANACHARSIS. 
+2-6  VOYAGE    D'ANACHARSIS. 
 
 méditation  des  choses  célestes;  les  autres  culti- 
 vaient les  sciences ,  et  surtout  la  géométrie  et  l'as- 
@@ -9864,7 +9861,7 @@ de  orat.  lib.  9,  cap.  4,  p-  SSg.  Jambl.  ibid.  cap.  25,  p.  q5. —
 p.  586. 
 
 
-iSl  VOYAGE   DANACHARSIS. 
+iSl  VOYAGE   D'ANACHARSIS. 
 
 intime  avec  les  dieux,  la  plus  parfaite  union  avec 
 les  hommes.  Leur  principale  obligation  était  de 
@@ -9934,7 +9931,7 @@ cap.  3o,  p.  i45;  cap.  33,  p.  187.  —'Plut,  de  f rat.  amor.  t.  2,
 p.  488. 
 
 
-284  VOYAGE   DANACHARSIS. 
+284  VOYAGE   D'ANACHARSIS. 
 
 Oublions  notre  colère,  et  soyez  le  juge  de  notre 
 différent.  J'y  consens  volontiers,  reprit  le  dernier; 
@@ -10080,7 +10077,7 @@ Plut,  de  vilios.  pud.  t.  2 ,  p.  532.  —  ^  Diog.  Laert.  lib.  8,
 §.   m.  Jambl.  vit.  Pyth.  cap.  28,  p.  i3i. 
 
 
-288  VOYAGE    DANACHARSIS. 
+288  VOYAGE    D'ANACHARSIS. 
 
 quelques  unes  tenant  à  des  vérités  d'un  ordre  supé- 
 rieur, toutes  prescrites  pour  nous  exercer  à  la  pa- 
@@ -10292,7 +10289,7 @@ l'orient  des  couleurs  inconnues  aux  mortels.  Cha-
 que instant  ajoute  un  nouveau  trait  aux  beautés 
 
 
-•).94  VOYAGE    DANACHARSIS. 
+•).94  VOYAGE    D'ANACHARSIS. 
 
 de  la  nature;  à  chaque  instant,  le  grand  ouvrage 
 du  développement  des  êtres  avance  vers  sa  per- 
@@ -10916,7 +10913,7 @@ ibid.  Whcl.  ibid.  —  *  Plin.  lib.  11,  cap.  3;,  t.  1,  p.  61 5.  Str
 lib.  10,  p.  487.  Tournef.  ibid.  p.  280. 
 
 
-312  VOYAGE   DANACHARSIS. 
+312  VOYAGE   D'ANACHARSIS. 
 
 OnJ^reproche  aux  Myconiens  d'être  avares  et  pa- 
 rasites '  :  on  les  blâmerait  moins,  si,  dans  une  for- 
@@ -11126,7 +11123,7 @@ Des  courages  si  mâles  étaient  capables  de  tout
 lib.  4-1  Lap.  37.  Stenh.  ibid.  Val.  Max.  lib.  2  ,  cap.  6,  n"  8. 
 
 
-3l8  VOYAGE    DANACHARSIS. 
+3l8  VOYAGE    D'ANACHARSIS. 
 
 oser  pour  conserver  leur  indépendance.  Un  jour 
 qu'assiégés  par  les  Athéniens  ils  étaient  près  de  se 
@@ -11469,7 +11466,7 @@ p.  3.  —  "Plin.  lib.  4^  t.  i,  cap.  12.  Tournef.  ibid.  p.  2o3.  —
 p.  487. 
 
 
-328  VOYAGE   DANACHARSIS. 
+328  VOYAGE   D'ANACHARSIS. 
 
 de  fatales  divisions'.  De  tous  les  peuples  distinp^ués 
 parleur  sagesse,  celui  de  Paros  lui  parut  le  plus 
@@ -11606,7 +11603,7 @@ praepar.  evang.  lib.  5,  cap.  Sa  et  33.  Julian.  iraper.  fragm.  p.  3oo
 Synes.  de  insonin.  p.  i58. 
 
 
-332  VOYAGE   DANACHARSIS. 
+332  VOYAGE   D'ANACHARSIS. 
 
 d'en  contempler  à  loisir  toutes  les  horreurs,  et  l'in- 
 solence de  les  exposer  aux  yeux  de  l'univers. 
@@ -11677,7 +11674,7 @@ n°  I .  —  ^  Pind.  olymp.  9 ,  v.  i .  —  ^  Plut,  de  sera  num.  vi
 p.  56o.  OEnom.  ap.  Euseb.  praepar.  evaug.  lib.  5,  cap.  33 ,  p.  228. 
 
 
-334  VOYAGE    DANACHARSIS. 
+334  VOYAGE    D'ANACHARSIS. 
 
 «  avez  porté  vos  mains  sur  le  favori  des  muses,  y 
 Calloiidas  remontra  qu'il  s'était  contenu  dans  les 
@@ -11886,7 +11883,7 @@ Steph.  in  2i^v.  —  '  Tournef.  voyag.  t.  i,  p.  i^5.  — ^  Tliiicytl.
 lib.  5,  cap.  84.  —  ^  Itl   ibid   cap.  85,  etc. 
 
 
-34o  VOYAGE   DANACHARSIS. 
+34o  VOYAGE   D'ANACHARSIS. 
 
 tous  ceux  qui  étaient  en  état  de  porter  les  armes  '  ; 
 les  autres  gémirent  dans  les  fers,  jusqu'à  ce  que 
@@ -11955,7 +11952,7 @@ Schol.  ibid.  Suid.  ibid.  Joseph,  in  Appion.  lib.  2  ,  t.  2  ,  p.  493
 —  7  Athen.  lib.  1 3 ,  cap.  9 ,  p.  6 1 1 . 
 
 
-342  VOYAGE    DANACHARSIS. 
+342  VOYAGE    D'ANACHARSIS. 
 
 une  couronne  autour  de  Délos,je  ne  dois  vous 
 parler  ni  des  écueils  semés  dans  leurs  intervalles, 
@@ -12024,7 +12021,7 @@ fumée  couvrirent  le  faîte  du  temple,  et  s'élevèrent
 '  Spanh.  in  hymn    in  Del.  p.  488. 
 
 
-344  VOYAGE   DANACHARSIS. 
+344  VOYAGE   D'ANACHARSIS. 
 
 dans  les  airs.  La  fête  commence,  nous  dit  Philoclès, 
 1  encens  brûle  sur  l'autel.  Aussitôt  dans  la  ville,  dans 
@@ -12163,7 +12160,7 @@ presque  toute  choisie  parmi  les  plus  anciennes  fa-
 dix-huit  toises. 
 
 
-348  VOYAGE   DANACHARSIS. 
+348  VOYAGE   D'ANACHARSIS. 
 
 milles  de  la  république".  Elle  était  composée  de 
 plusieurs  citoyens  qui  prenaient  le  titre  de  Théores"; 
@@ -12694,7 +12691,7 @@ Cette  danse  finie ,  Leucippe  alluma  le  flambeau
 Suid.  in  Ecfw^ov. 
 
 
-364      '^      VOYAGE   DANACHARSIS. 
+364      '^      VOYAGE   D'ANACHARSIS. 
 
 nuptial  ',  et  conduisit  sa  fille  à  l'appartement  qu'on 
 lui  avait  destiné.  Plusieurs  symboles  retracèrent 
@@ -12873,7 +12870,7 @@ dans  le  superflu.  (In  Cat.  t.  i,  p,  346,  e.)
 6.  24 
 
 
-370  VOYAGE   DANACHARSIS. 
+370  VOYAGE   D'ANACHARSIS. 
 
 Et  en  quoi  consiste-t-elle  donc?  s'écria  lun  de 
 nous  avec  impatience  ;  et  quel  est  le  sort  des  mor- 
@@ -12941,7 +12938,7 @@ pendre quelquefois  nos  murmures;  mais  la  cause
 24. 
 
 
-372  VOYAGE   DANACHARSIS. 
+372  VOYAGE   D'ANACHARSIS. 
 
 en  subsisterait  toujours;  car  enfin  il  y  a  de  la  dou- 
 leur sur  la  terre.  Elle  consume  les  jours  de  la  plu- 
@@ -13010,7 +13007,7 @@ crime  de  nous  en  faire  un  mystère.
 '  Epicharm.  ap.  Xenoph.  memor.  lib.  2,  p.  737. 
 
 
-.-)74  VOYAGE   DANACHARSIS. 
+.-)74  VOYAGE   D'ANACHARSIS. 
 
 Vous  me  rappelez,  répondit  Philoclès,  les  pre- 
 mières années  de  ma  vie.  Je  le  regrette  encore ,  ce 
@@ -13279,7 +13276,7 @@ les  mers  pour  découvrir  le  bonheur  ;  il  peut  exister
 dans  tous  les  états ,  dans  tous  les  temps ,  dans  tous 
 
 
-382  VOYAGE    DANACHARSIS. 
+382  VOYAGE    D'ANACHARSIS. 
 
 les  lieux ,  dans  vous ,  autour  de  vous ,  partout  où 
 Ton  aime. 
@@ -13422,7 +13419,7 @@ p.  931.  —  ^Ajj.  Stob.  serm.  77,  p.  454,  etc.  —  +Jtl.  ibid.
 6.  o.n 
 
 
-386  VOYAGE    DANACHARSIS. 
+386  VOYAGE    D'ANACHARSIS. 
 
 la  nature  attache  aux  penchants  qui  sont  nécessai- 
 res à  notre  bonheur. 
@@ -13561,7 +13558,7 @@ font  aux  mœurs  :  guerre  d'autant  plus  funeste  que
 la  patrie  n'a  par  elle-même  aucun  moyen  de  l'évi- 
 
 
-390  VOYAGE   DANACHARSIS. 
+390  VOYAGE   D'ANACHARSIS. 
 
 ter  ou  de  la  soutenir.  Permettez  qu'à  l'exemple  de 
 Socrate  je  mette  dans  sa  bouche  le  discours  qu'elle 
@@ -13631,7 +13628,7 @@ les  armes,  qu'il  est  sur  vos  frontières,  qu'il  est  à
 'Plat,  (le  rep.  lil).  1,  t.  2,  p.  334- 
 
 
-392  VOYAGE   DANACHARSIS. 
+392  VOYAGE   D'ANACHARSIS. 
 
 VOS  portes.  Ce  n'est  pas  là  qu'il  se  trouve  aujour- 
 d'hui: il  est  au  milieu  de  vous,  dans  le  sénat,  dans 
@@ -13700,7 +13697,7 @@ sence des  ingrats  ;  ils  fuiront  la  vôtre,  ou  plutôt  ils  la
 '  Menandr.  Carcin.  et  Periand.  ap.  Stob.  serm.  38,  p.  222  et  225. 
 
 
-394  VOYAGE   DANACHARSIS. 
+394  VOYAGE   D'ANACHARSIS. 
 
 rechercheront,  si  le  bienfait  qu'ils  ont  reçu  de  vous 
 fut  accompagné  et  suivi  de  l'estime  et  de  l'intérêt  : 
