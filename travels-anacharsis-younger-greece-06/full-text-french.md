@@ -8741,7 +8741,7 @@ d'Egypte  qui  firent  construire  les  pyramides.  (Aristot.  ibid.  )  —
 in  Lys.  t.  i,  p.  437. 
 
 
-;':)0  A-OYAGE    DANACHARSIS. 
+;':)0  A-OYAGE    D'ANACHARSIS.
 
 Ses  richesses  le  mirent  en  état  d'armer  cent  ga- 
 lères, qui  lui  assurèrent  l'empire  de  la  mer,  et  lui 
@@ -9504,7 +9504,7 @@ cap.  21,  p.  84. — 3Porph.  de  abstin.  lib.  3,  p.  263. —  ^Apul.
 ap.  Bruck.  t.  i,  p.  633. 
 
 
-2'-]'l  YOVAGE    DANACHARSIS. 
+2'-]'l  YOVAGE    D'ANACHARSIS.
 
 à  la  cour  des  tyrans  sans  les  flatter,  et  les  obligea 
 de  descendre  du  trône  sans  regret;  et  qu'à  l'aspect 
@@ -13488,7 +13488,7 @@ lante les  soins  du  ménage';  elle  la  chérit  mainte-
 '  Xenoph.  mcmor.  lib.  5  ,  p.  B.'jo. 
 
 
-388  A?OYAGE  DANACHARSIS. 
+388  A?OYAGE  D'ANACHARSIS.
 
 nant,  parcequ'elle  l'a  reçue  de  ma  main:  tant  il  est 
 doux  de  dépendre  de  ce  qu'on  aime,  de  se  laisser 
