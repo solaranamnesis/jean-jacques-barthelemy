@@ -42,59 +42,19 @@ A l'âge de douze ans, mon père me plaça an collége de l'Oratoire, à Marseil
 
 Un jour il nous demanda la description d'une tempête en vers français : chacun de nous apporta la sienne, et le lendemain elles furent lues au petit comité ; il parut content de la mienne. Un mois après, il donna publiquement un exercice littéraire dans une grande salle du collége. J'étais trop timide pour y prendre un rôle ; j'allai me placer dans un coin de la salle, où bientôt se réunit la meilleure compagnie de Marseille en hommes et en femmes. Tout à coup je vis tout le monde se lever ; c'était à l'arrivée de M. de La Visclède, secrétaire perpétuel de l'Académie de Marseille, établie depuis quelques années : il jouissait d'une haute considération. Le P. Raynaud, son ami, alla au devant de lui, et le fit placer au premier rang. J'avais alors quinze ans. Dans cette nombreuse compagnie se trouvaient les plus jolies femmes de la ville, très bien parées ; mais je ne voyais, que M. de La Visclède, et mon cœur palpitait en le voyant.
 
-Un moment après, le voilà qui se lève, ainsi que
-le P. Raynaud, qui, après avoir jeté les yeux de tous celés, me découvre dans mon coin, et me fait
-signe d''approcher. Je baisse la tète, je me raccourcis, et veux me cacher derrière quelques-uns
-de mes camarades qui me trahissent. Enfin, le P. Raynaud m^ayant appelé à très haute voix, je crus
-entendre mon arrêt de mort. Tous les regards étaient tournés vers moi \ je fus obligé de traverser
-la salle dans toute sa longueur, sur des bancs' étroits et très rapprochés, tombant à chaque pas ,
-à droite, à gauche, par devant, par derrièreaccrochant robes, mantelels, coiffures, etc. Après
-une course longue et désastreuse, j ''arrive enfin auprès de M. de La Visclède, qui, me prenant
-par la main, me présente à rassemblée et tui parle de la description d^une tempête que
-j''avaisremiseauP. Raynaud : de là reloge le plus pompueux de mes prétendus talens. J^n élais
-d'hantant plus décoacerlé, que cette description je Tavais prise presque touie entière dans riliade
-de La Molle. Enfin M. de La Visclède se tut } et Ton jugera de mon état par ma réponse, que je
-prononçai d^une voix trembla n le : « Monsieur -Mon- « sienr.... j"'ai Thonneur d'^eire.... voire
-très humble • et très obéissant serviteur, Barihelemy. » Je me retirai tout honteux, pt au
-désespoir d^avoir tant de génie. • M. de La Visclède, que j^eus occasion de connaître par la suite
-, jaloux du progrès des lettres, s^inléressait vivement aux jeunes gens qui monlraient quelques
-dispositions ; mais il était si bon et si facile, qu^il ne pouvait leur inspirer que de la
-présomption. Je mVuis, de moi-même, destiné à Tétat ecclésiastique \ mais comme Tévéque de
-Marseille, M. de Belzunce, refusait d'y admettre ceux qui étudiaient à TOratoire, je fis mes
-cours de philosophie et de théologie chez les Jésuites. Dans le premier de ces cours, le professeur
-, voulant nous donner ime idée du cube, après s'^étre bien tourmenté sans réussir, prit son bonnet
-à trois cornes, et nous dit : Voilà un cube. Dans le second, le professeur du matin, pendant
-trois ans entiers, et pendant deux heures tous les jours, écumait et gesticulait comme un
-énergumène, pour nous prouver que les cinq propositions étaient dans Jansénius. Je mVtais
-heureusement fait un plan d''élude qui me rendait indifférent aux bêtises et aux fureurs de mes
-nouveaux rc^ns. Avant de quitter POraloire, j^avais prié un de mes camarades de me communiquer les
-cahiers de philosophie qu^on y dictait •, c''éiail le système de Descartes, qui déplaisait fort aux
-jésuites : je transcrivais et étudiais en secret ces cahiers. Je m^appliquais en même temps aux
-langues anciennes, et surtout au grec, pour me faciliter IVtude de Thébreu, dont je disposai les
-racines dans des vers techniques, plus mauvais encore que ceux des racines grecques d« Port- Royal.
-Je comptrais ensuite le texte hébreu a^ec le samaritain, ainsi ({u^avec les versions chaideeone et
-syriaque. Je m'occupais de lliistoire de l'^Eglise, et en particulier de celle des premiers siècles.
-Ces travaux altirërent Pattenlion du professeur charge' de nous donner, toutes les après*midi, des
-leçons sur la Bible, les Conciles et les Pères. C^elait un homme de mérite ; son suffrage me flalU
-\ et, pour le justifier, je conçus le iH*ojel d^une thèse que je voulais soutenir sous sa
-présidence, el qui devait embrasser les principales questions sur les livres de TEcriture sainte,
-stv rbisioireella discipline de TEglise. Elles étaient en grand nombre \ chaque article devait être
-le résultat d^une foule de discussions, et demandait un examen approfondi. Dix vigoureux
-bénédictins n^auraient pas osé se charger de celle immense entreprise *, mais j V- Uis jeune ,
-ignorant, insatiable de travail. Mon professeur craignil sans doule de me décourager en
-m^avertissant que le plan éuit trop vaste; je me précipitai dans le chaos, el m^y enfonçai si bien
-, que jVn tombai dangereusement malade. Duns Télat de langueur où je me trouvai pendant long-lemps ,
-je ne désirais le retour de mes forces que pour en abuser encore. * Dès qu^elles me furent rendues ,
-j''enirai au séminaire de Marseille, dirigé par les Lazarisles, où je trouvai encore un professeur
-de théologie qui élail -Mset, raisonnable, et, tous les matins, ii rinq heure», un* médilation
-qui ne rétait pat toujours : elle était tirée d*nn ouTrage composé par Beuvelet. Le lendemain de mon
-arrivée, on nous lut lenievenl et par phrases détachées, le chapitre où ce Beuvelet compare
-TEglise à un vaisseau : le pape est le capitaine, les évéques sont les lieulenans; venaient ensuite
-les prêtres, les diacres, etc. 11 l'allaii réfléchir sérieusement pendant une demi-heure sur ce
-parallèle t sans attendre la fin du chapitre, je trouvai que dans ce vaisseau mystérieux je ne
-pouvais être qu^un mousse. Je le dis à mon voisin, qui le dit au sien, et tout à coup le silence
-fut interrompu par un rire général, dont le supérieur voulut savoir la cause : il eut aussi le bon
-esprit d''en rire. JWais beaucoup de loisir au séminaire ; j Vludiai la langue arabe, j^en
+Un moment après, le voilà qui se lève, ainsi que le P. Raynaud, qui, après avoir jeté les yeux de tous côtés, me découvre dans mon coin, et me fait signe d'approcher. Je baisse la tête, je me raccourcis, et veux me cacher derrière quelques-uns de mes camarades qui me trahissent. Enfin, le P. Raynaud m'ayant appelé à très haute voix, je crus entendre mon arrêt de mort. Tous les regards étaient tournés vers moi ; je fus obligé de traverser la salle dans toute sa longueur, sur des bancs étroits et très rapprochés, tombant à chaque pas, à droite, à gauche, par devant, par derrière ; accrochant robes, mantelets, coiffures, etc. Après une course longue et désastreuse, j'arrive enfin auprès de M. de La Visclède, qui, me prenant par la main, me présente à l'assemblée, et lui parle de la description d'une tempête que j'avais remise au P. Raynaud : de là l'éloge le plus pompueux de mes prétendus talens. J'en étais d'autant plus déconcerté, que cette description je l'avais prise presque toute entière dans l'Iliade de La Motte. Enfin M. de La Visclède se tut ; et l'on jugera de mon état par ma réponse, que je prononçai d'une voix tremblante : « Monsieur ... Monsieur ... j'ai l'honneur d'être ... votre très humble et très obéissant serviteur, Barthelemy. » Je me retirai tout honteux, et au désespoir d'avoir tant de génie.
+
+M. de La Visclède, que j'eus occasion de connaître par la suite, jaloux du progrès des lettres, s'intéressait vivement aux jeunes gens qui montraient quelques dispositions ; mais il était si bon et si facile, qu'il ne pouvait leur inspirer que de la présomption.
+
+Je m'étais, de moi-même, destiné à l'état ecclésiastique ; mais comme l'évèque de Marseille, M. de Belzunce, refusait d'y admettre ceux qui étudiaient à l'Oratoire, je fis mes cours de philosophie et de théologie chez les Jésuites. Dans le premier de ces cours, le professeur, voulant nous donner une idée du cube, après s'être bien tourmenté sans réussir, prit son bonnet à trois cornes, et nous dit : Voilà un cube. Dans le second, le professeur du matin, pendant trois ans entiers, et pendant deux heures tous les jours, écumait et gesticulait comme un énergumène, pour nous prouver que les cinq propositions étaient dans Jansénius.
+
+Je m'étais heureusement fait un plan d'étude qui me rendait indifférent aux bêtises et aux fureurs de mes nouveaux régens. Avant de quitter l'Oratoire, j'avais prié un de mes camarades de me communiquer les cahiers de philosophie qu'on y dictait ; c'était le système de Descartes, qui déplaisait fort aux jésuites : je transcrivais et étudiais en secret ces cahiers. Je m'appliquais en même temps aux langues anciennes, et surtout au grec, pour me faciliter l'étude de l'hébreu, dont je disposai les racines dans des vers techniques, plus mauvais encore que ceux des racines grecques de Port-Royal. Je comparais ensuite le texte hébreu avec le samaritain, ainsi qu'avec les versions chaldéenne et syriaque. Je m'occupais de l'histoire de l'Eglise, et en particulier de celle des premiers siècles.
+
+Ces travaux attirèrent l'attention du professeur chargé de nous donner, toutes les après-midi, des leçons sur la Bible, les Conciles et les Pères. C'était un homme de mérite ; son suffrage me flatta ; et, pour le justifier, je conçus le projet d'une thèse que je voulais soutenir sous sa présidence, et qui devait embrasser les principales questions sur les livres de l'Ecriture sainte, sur l'histoire et la discipline de l'Eglise. Elles étaient en grand nombre ; chaque article devait être le résultat d'une foule de discussions, et demandait un examen approfondi. Dix vigoureux bénédictins n'auraient pas osé se charger de cette immense entreprise ; mais j'étais jeune, ignorant, insatiable de travail. Mon professeur craignit sans doute de me décourager en m'avertissant que le plan était trop vaste ; je me précipitai dans le chaos, et m'y enfonçai si bien, que j'en tombai dangereusement malade. Dans l'état de langueur où je me trouvai pendant long-lemps, je ne désirais le retour de mes forces que pour en abuser encore.
+
+Dès qu'elles me furent rendues, j'entrai au séminaire de Marseille, dirigé par les Lazaristes, où je trouvai encore un professeur de théologie qui était assez raisonnable, et, tous les matins, à cinq heures, une méditation qui ne l'était pas toujours : elle était tirée d'un ouvrage composé par Beuvelet. Le lendemain de mon arrivée, on nous lut lentement et par phrases détachées, le chapitre où ce Beuvelet compare l'Eglise à un vaisseau : le pape est le capitaine, les évèques sont les lieutenans ; venaient ensuite les prêtres, les diacres, etc. Il fallait réfléchir sérieusement pendant une demi-heure sur ce parallèle : sans attendre la fin du chapitre, je trouvai que dans ce vaisseau mystérieux je ne pouvais être qu'un mousse. Je le dis à mon voisin, qui le dit au sien, et tout à coup le silence fut interrompu par un rire général, dont le supérieur voulut savoir la cause : il eut aussi le bon esprit d'en rire.
+
+J'avais beaucoup de loisir au séminaire ; j Vludiai la langue arabe, j^en
 recueillis toutes les racines dans Fimmense dictionnaire de Golius, et je composai des vers
 techniques détestables que j'eus beaucoup de peine à retenir, et que j^oubliai bientôt après. Pour
 joindre la pratique à la théorie, j^avais fait connaissance avec un jeune maronite, élevé à Rome
