@@ -54,81 +54,23 @@ Ces travaux attirèrent l'attention du professeur chargé de nous donner, toutes
 
 Dès qu'elles me furent rendues, j'entrai au séminaire de Marseille, dirigé par les Lazaristes, où je trouvai encore un professeur de théologie qui était assez raisonnable, et, tous les matins, à cinq heures, une méditation qui ne l'était pas toujours : elle était tirée d'un ouvrage composé par Beuvelet. Le lendemain de mon arrivée, on nous lut lentement et par phrases détachées, le chapitre où ce Beuvelet compare l'Eglise à un vaisseau : le pape est le capitaine, les évèques sont les lieutenans ; venaient ensuite les prêtres, les diacres, etc. Il fallait réfléchir sérieusement pendant une demi-heure sur ce parallèle : sans attendre la fin du chapitre, je trouvai que dans ce vaisseau mystérieux je ne pouvais être qu'un mousse. Je le dis à mon voisin, qui le dit au sien, et tout à coup le silence fut interrompu par un rire général, dont le supérieur voulut savoir la cause : il eut aussi le bon esprit d'en rire.
 
-J'avais beaucoup de loisir au séminaire ; j Vludiai la langue arabe, j^en
-recueillis toutes les racines dans Fimmense dictionnaire de Golius, et je composai des vers
-techniques détestables que j'eus beaucoup de peine à retenir, et que j^oubliai bientôt après. Pour
-joindre la pratique à la théorie, j^avais fait connaissance avec un jeune maronite, élevé à Rome
-au collège de la Propagande, et établi à Marseille auprès. d^un de ses oncles qui faisait le
-commerce du Levant. Il venait tous les jours chez moi, et nous parlions arabe. Un jour il me dit
-que je rendrais un vrai service à plusieurs maronites, arméniens et autres catholiques arabes, qui
-n'^entendaienl pas assea le français, si je voulais leur annoncer la parole de Dieu en leur langue.
-U avait quelques fermont arabes, dVn JMuiie predi» catevr «ie ia Propagande ; nous choisîmes le
-moins ab* surbe de tous, je Tappris par cœur. Mes auditeurs, au nombre de quarante enriron, dans
-une saile du seminaire, trouvèrent un accent étranger dans ma prononcialiOQ, mais furent
-d^ailleurs si rontens, qu^ils me demandèrent avec instance un second sermon. Jconsentis, et le
-lendemain quelques*uns d^entre eux vinrent me prier de les entendre à confesse ; mais je leur
-repondis que je n^entendais pas la langue des péchés arabes. Ce n''étai(*là qu^nne scène de folie ;
-en voici une qui peut servir de leçon contre le charlatanisme de Pérudition. Mon maître avait
-dressé, pour mon usage, quelques dialogues arabes, qui contenaient, par demandes et par réponses ,
-des complimens, des questions, eldillctens sujets de conservation, par exemple : Bonjour ,
-monsieur \ comment vous poriez-vous ? — Fort bien, à vous servir, il y a long-temps que je ne vous
-ai vu. — J^ai été à la campagne, etc. Un jour on vint m'avertir qu'ion me demandait à la porte du
-séminaire. Je descends, et me vois entouré de dix ou douze des principaux n^ocians de Marseille,
-ils amenaient avec eux un espèce de mendiant qui était venu les trouver à la Loge (k la Bourse) : il
-' leur avait raconté qu''il était juif de naissance; qn^on Pavait élevé à la dignité de rabbin ;
-mais que, pénétré de* verilés de l'ETangile, il «'Aait fait chr^Uen ; qn^il e'uit instruit des
-langues orientales, et que, pour s^en convaincre, on pouvait le mettre aux prises avec quelque
-savant. Ces messieurs ajoutèrent avec politesse qu^ils n^avaient pas hésité à me Tamener. Je fus
-tellement efTrayé, qu'il m'en prit la sueur froide. Je cherch'ais à leur prouver qu'on n'apprend pas
-ces lan* gués pour les parler, lorsque cet homme commença tout à coup l'attaque avec une intrépidité
-qui me confondit d'ahord. Je m'aperçus, heureusement, qu'il récitait en he'breu le premier psaume de
-David, que je savais par cœur. Je lui laissai dire le premier verset, et je ripostai par un de mes
-dialogues arabes. Nous continuâmes, lui par le deuxième verset du psaume, moi par la suite du
-dialogue. La conversation devint plus animée ; nous parlions tous deux à la fois et avec la même
-rapidité. Je l'attendais à la fin du dernier verset : il se tut en efTet : mais pour m'assurer
-l'honneur de la victoire, j'ajoutai encore une ou deux phrases, et je dis à ces messieurs que cet
-homme méritait, par ses connaissances et par ses malheurs, d'intéresser leur charité. Pour lui ,
-il leur dit dans un mauvais baragouin qu'il avait voyagé en Espagne, en Portugal, en Allemagne ,
-en Italie, en Turquie, et qu'il n'avait jamais vu un si habile homme que ce jeune abbé. J'avais
-alors vingt-un ans. Cette aventure fit du bruit à Marseille : j'avais cependant cherche à prévenir
-Péclat, car je Tavais racontée fidèlement à mes amis ; mais Ton ne Tonlnt pas me croire, et Ton
-8''en tint an merveilleux. Je finis mon séminaire, et quoique pénétré des sentimens de la religion
-, peut-élre même parce que j'en étais pénétré, je Q^eus pas la moindre idée d ^entrer dans le
-ministère ecclésiastique. Mon évéqne aurait pu tirer quelque parti de mon ardeur pour le iravail ,
-par Tun de ces petits bénéfices simples dont il pouvait disposer f mais il savait quej^avais lu S.
-Paul et lesPP. jansénistes de la primitive Eglise, tels que S. Auguttin et S. Prosper : il savait
-aussi que je voyais rarement deux jésuites dont il était flanqué, et qui le faisaient penser et
-vouloir : d^un c6té, le P. Fabre, qui savait ài peine lire, mais qui savait le distraire jHir des
-contes plaîsans \ de Tautre, le P. Maire, qui le tenait en activité contre les évéques
-jansénistes, contre les parlemens, contre les ennemis des jésuites, et par conséquent de TEglise.
-Il réunissait toutes les grandes charges : théologal de IVvéque, intendant et maître d^hâlel de la
-maison, premier grand-vicaire et adminislraleur*général du diocèse son antichambre, toujours
-remplie de curés et de vicaires, ressemblait à celle d^un minisire d^Etat ou d^un lieutenant de
-police. 11 était d^aiUeurs sec, impérieux, très insolent, et, avec une l^;ère teinture de
-littérature, se croyait le plus habile homme du monde. Je le rencontrais quelquefois par hasard. Un
-joar il se laissa pénétrer, et me dit que les académies perdraient la religion : ce mot ne m'est
-jamais sorti de la tête. A Tabri du P. Maire et de tout événement désastreux, maître de mon temps
-et de mes action»n^ayant que des désirs que je pouvais satisfaire, mes jours tranquilles coulaient
-dans des jouissances qui ne me laissaient aucun regret. Je passais une partie de Tannée à Aubagne,
-dans le sein d''une famille que j'^adorais, dans une petite société de gens ircs'aimables, où nous
-faisions, soit à la ville, soit à la campagne, des lectures et des concerts. J^allais par
-intervalles à Marseille revoir quelques membres de PAcadémie avec lesquels j''avais des relations \
-de ce nombre était M. TabbéFournier, chanoine de Saint-Victor, aussi distingué par ses vertus que
-par ses connaissances dans Thistoire du moyen âge. Il avait fourni beaucoup de notes instructives au
-Gallia christiana, et au supplément que Pabbé Carpentier a donné du dictionnaire de Ducange. Tel
-était encore M. Cary, qui sVtait appliqué avec succès à Télude des monumens antiques : il avait un
-beau cabinet de. médailles, et une précieuse collection de livres assortis à son goût : entre
-autres ouvrages nous lui devons THistoire par médailles des rois de Thrace et du Bosphore. Des
-connaissances en tout genre, dirigées par un esprit excellent, et embellies par des moeurs douces
-, rendaient son commerce aussi afrëable qn^instractif. Je Taimais beaucoup \ et lorsque son souvenir
-me rappelle tant d^autres perles encore plus sensiblet, je ne ▼ois dans la vie ((u^une carrière
-partout couverte de ronces qui nous arrachent successivement nos vélemens, et nous laissent à la
-fin nus et couverts de blessures. Quelquefois, après avoir passé toute une journée à m^entretenir
-avec mon ami de divers sujets de liltérature, j ^allais passer la nuit chez les minimes, où le
-père Sigaloux y correspondant de PAcadémie des sciences, faisait des observations astronomiques
-auxquelles il daignait m^associer : car, puisque je fais ici ma confession générale, je dois
-compter parmi les égaremens de ma jeunesse le temps que j^ai perdu à Tétude des mathématiques, et de
-Tastronomie en particulier. Je m^accuse aussi d'*avôir fait, dans le même temps, beaucoup de vers
+J'avais beaucoup de loisir au séminaire ; j'étudiai la langue arabe, j'en recueillis toutes les racines dans l'immense dictionnaire de Golius, et je composai des vers techniques détestables que j'eus beaucoup de peine à retenir, et que j'oubliai bientôt après. Pour joindre la pratique à la théorie, j'avais fait connaissance avec un jeune maronite, élevé à Rome au collége de la Propagande, et établi à Marseille auprès d'un de ses oncles qui faisait le commerce du Levant. Il venait tous les jours chez moi, et nous parlions arabe. Un jour il me dit que je rendrais un vrai service à plusieurs maronites, arméniens et autres catholiques arabes, qui n'entendaient pas assez le français, si je voulais leur annoncer la parole de Dieu en leur langue. Il avait quelques sermons arabes, d'un jésuite prédicateur de la Propagande ; nous choisîmes le moins absurbe de tous, je l'appris par cœur. Mes auditeurs, au nombre de quarante environ, dans une salle du séminaire, trouvèrent un accent étranger dans ma prononciation, mais furent d'ailleurs si contens, qu'ils me demandèrent avec instance un second sermon. J'y consentis, et le lendemain quelques-uns d'entre eux vinrent me prier de les entendre à confesse ; mais je leur répondis que je n'entendais pas la langue des péchés arabes.
+
+Ce n'était-là qu'une scène de folie ; en voici une qui peut servir de leçon contre le charlatanisme de l'érudition. Mon maître avait dressé, pour mon usage, quelques dialogues arabes, qui contenaient, par demandes et par réponses, des complimens, des questions, et différens sujets de conservation, par exemple : Bonjour, monsieur ; comment vous portez-vous ? --- Fort bien, à vous servir. Il y a long-temps que je ne vous ai vu. --- J'ai été à la campagne, etc.
+
+Un jour on vint m'avertir qu'on me demandait à la porte du séminaire. Je descends, et me vois entouré de dix ou douze des principaux négocians de Marseille. Ils amenaient avec eux un espèce de mendiant qui était venu les trouver à la Loge (à la Bourse) : il leur avait raconté qu'il était juif de naissance ; qu'on l'avait élevé à la dignité de rabbin ; mais que, pénétré des verités de l'Evangile, il s'était fait chrétien ; qu'il était instruit des langues orientales, et que, pour s'en convaincre, on pouvait le mettre aux prises avec quelque savant. Ces messieurs ajoutèrent avec politesse qu'ils n'avaient pas hésité à me l'amener. Je fus tellement effrayé, qu'il m'en prit la sueur froide. Je cherchais à leur prouver qu'on n'apprend pas ces langues pour les parler, lorsque cet homme commença tout à coup l'attaque avec une intrépidité qui me confondit d'abord. Je m'aperçus, heureusement, qu'il récitait en hébreu le premier psaume de David, que je savais par cœur. Je lui laissai dire le premier verset, et je ripostai par un de mes dialogues arabes. Nous continuâmes, lui par le deuxième verset du psaume, moi par la suite du dialogue. La conversation devint plus animée ; nous parlions tous deux à la fois et avec la même rapidité. Je l'attendais à la fin du dernier verset : il se tut en effet : mais pour m'assurer l'honneur de la victoire, j'ajoutai encore une ou deux phrases, et je dis à ces messieurs que cet homme méritait, par ses connaissances et par ses malheurs, d'intéresser leur charité. Pour lui, il leur dit dans un mauvais baragouin qu'il avait voyagé en Espagne, en Portugal, en Allemagne, en Italie, en Turquie, et qu'il n'avait jamais vu un si habile homme que ce jeune abbé. J'avais alors vingt-un ans.
+
+Cette aventure fit du bruit à Marseille : j'avais cependant cherche à prévenir l'éclat, car je l'avais racontée fidèlement à mes amis ; mais l'on ne voulut pas me croire, et l'on s'en tint an merveilleux.
+
+Je finis mon séminaire, et quoique pénétré des sentimens de la religion, peut-être même parce que j'en étais pénétré, je n'eus pas la moindre idée d'entrer dans le ministère ecclésiastique. Mon évèque aurait pu tirer quelque parti de mon ardeur pour le travail, par l'un de ces petits bénéfices simples dont il pouvait disposer ; mais il savait que j'avais lu S. Paul et les PP. jansénistes de la primitive Eglise, tels que S. Augustin et S. Prosper : il savait aussi que je voyais rarement deux jésuites dont il était flanqué, et qui le faisaient penser et vouloir : d'un côté, le P. Fabre, qui savait à peine lire, mais qui savait le distraire par des contes plaisans ; de l'autre, le P. Maire, qui le tenait en activité contre les évèques jansénistes, contre les parlemens, contre les ennemis des jésuites, et par conséquent de l'Eglise. Il réunissait toutes les grandes charges : théologal de l'évèque, intendant et maître d'hôtel de la maison, premier grand-vicaire et administrateur-général du diocèse ; son antichambre, toujours remplie de curés et de vicaires, ressemblait à celle d'un ministre d'Etat ou d'un lieutenant de police. Il était d'ailleurs sec, impérieux, très insolent, et, avec une légère teinture de littérature, se croyait le plus habile homme du monde. Je le rencontrais quelquefois par hasard. Un jour il se laissa pénétrer, et me dit que les académies perdraient la religion : ce mot ne m'est jamais sorti de la tête.
+
+A l'abri du P. Maire et de tout événement désastreux, maître de mon temps et de mes actions, n'ayant que des désirs que je pouvais satisfaire, mes jours tranquilles coulaient dans des jouissances qui ne me laissaient aucun regret.
+
+Je passais une partie de l'année à Aubagne, dans le sein d'une famille que j'adorais, dans une petite société de gens très aimables, où nous faisions, soit à la ville, soit à la campagne, des lectures et des concerts. J'allais par intervalles à Marseille revoir quelques membres de l'Académie avec lesquels j'avais des relations ; de ce nombre était M. l'abbé Fournier, chanoine de Saint-Victor, aussi distingué par ses vertus que par ses connaissances dans l'histoire du moyen âge. Il avait fourni beaucoup de notes instructives au _Gallia christiana_, et au supplément que l'abbé Carpentier a donné du dictionnaire de Ducange. Tel était encore M. Cary, qui s'était appliqué avec succès à l'étude des monumens antiques : il avait un beau cabinet de médailles, et une précieuse collection de livres assortis à son goût : entre autres ouvrages nous lui devons l'Histoire par médailles des rois de Thrace et du Bosphore. Des connaissances en tout genre, dirigées par un esprit excellent, et embellies par des mœurs douces, rendaient son commerce aussi agréable qu'instructif. Je l'aimais beaucoup ; et lorsque son souvenir me rappelle tant d'autres pertes encore plus sensibles, je ne vois dans la vie qu'une carrière partout couverte de ronces qui nous arrachent successivement nos vêtemens, et nous laissent à la fin nus et couverts de blessures.
+
+Quelquefois, après avoir passé toute une journée à m'entretenir avec mon ami de divers sujets de littérature, j'allais passer la nuit chez les minimes, où le père Sigaloux, correspondant de l'Académie des sciences, faisait des observations astronomiques auxquelles il daignait m'associer : car, puisque je fais ici ma confession générale, je dois compter parmi les égaremens de ma jeunesse le temps que j'ai perdu à l'étude des mathématiques, et de l'astronomie en particulier.
+
+Je m^accuse aussi d'*avôir fait, dans le même temps, beaucoup de vers
 détestables, quoique je connusse les bons modèles \ et plusieurs dissertations de critique ,
 quoique privé des livres nécessaires. Enfin, dans je ne sais quelle année, les religieuses
 d^Aubagne me proposèrent, vers la fin du carnaval, de leur prêcher les dominicales du carême j''y
@@ -3775,7 +3717,7 @@ Laikctifmdelliémistocle
 fondée sur Tameur du peuple, et conclut à la peine de Textl. Leb ti'ibns étaient assemblée», et
 deraiflot domer leu&'s suffiràges par écrit. Aristide assisnit au jugement. Un citoyen obsenr, assis
 à ses-c tés t le pria d'insc|rire le- nom de Tacousé sur . une petite coquille, qu'il lui présenta.
-uYous a-t-il fait quelque tort ?» répondit Aristide. — «Non, dit ceLinofMmu; mais je suis eranrji Il
+uYous a-t-il fait quelque tort ?» répondit Aristide. --- «Non, dit ceLinofMmu; mais je suis eranrji Il
 de r entendre partout nommer le Juste . » Aristide écrivit son nom, fiit condamné, et sortit de la
 ville en formant des vœux pour sa patrie. Son exil suivit de prés la mort de Darius. Ce prince
 menaçait à la fois et la Gréée qui avait refusé de sabir le joug des Perses, et l'Egypte qui venait
@@ -3845,7 +3787,7 @@ présenteront au combat. » Le roi se mit à rire ; et, api*es avoir comparé se
 Lacédémoniens : « Ne voyez-vous pas, ajouta-t-il, que la plu- « part de mes soldats prendi*aient
 la fuite, s^ils a n'étaient retenuspar les menaces et les coups? « Gomme ime pareille crainte ne
 saurait agir « sur ces Spartiates qu'on nous peint si libres « et si indépendans, il est visible
-qu'ils u'afa ironteront point une mort certaine. Et qui « poun*ait les y contraindre ? — La loi ,
+qu'ils u'afa ironteront point une mort certaine. Et qui « poun*ait les y contraindre ? --- La loi ,
 ré- « pliqua Démai*ate ; cette loi qui a plus de pou- « voir sur eux que vous n'en avez sur vos su-
 « jets ; cette loi qui leur dit : « Voilà vos en- « nemis ; il ne s'agit pas de les compter, il faut
 « les vaincre ou périr l » Les rires de Xercés redoublèrent à ces mots : il donna ses ordres, et
@@ -3920,7 +3862,7 @@ uait que les Lacédémoniens ont été dépouil-
 
 IHTHODUCTION. 193 « lés par Gélcm et par les Syracusains de Tlioii* « néar de commander les années!
 Non, jamais « Spaiie ne vous cédera cette prérogative. Si « vous voulez secotirir la Grèce, c*est
-de nous « que vous prendrez Tordre ; si vous prétendez « le donner, gardez vos soldats. — Syagnis, «
+de nous « que vous prendrez Tordre ; si vous prétendez « le donner, gardez vos soldats. --- Syagnis, «
 répondit tranquillement le roi, je me sou- « viens que les liens de Thospitalité nous unist sent ;
 souvenez-vous, de votre côté, que les « paroles outrageantes ne servent qu^à aigrir « les esprits.
 La fierté de votre réponse ne me « fei*a pas sortir des bornes de la modération ; « et quoique, par
@@ -3986,7 +3928,7 @@ cents Spartiates qui régalaient en courage, et dont il connaissait les seqtimen
 
 •9» . v lui ayant représenté quW si petit nombre de soldats ne pouvait lui sufiire : «
 Ils sont bien «peu, répondit-il, pour aiTeter Tennemi ; « mais ils ne sont que trop pour Tc^et
-qu'ails « se piHposent. — Et quel est donc cet objet ? « demandèrent les épbores. — Notre deToii «
+qu'ails « se piHposent. --- Et quel est donc cet objet ? « demandèrent les épbores. --- Notre deToii «
 répliqua- t-il, est de défendre le passag^e ; « notre résolution, d'y périr. Trois cents lic- «
 times suffisent à riionneui* de Sparte. Elle « serait perdue sans ressource, si elle me con- «
 fiait tous ses guerriers ; car je ne présume « pas quW seul d'entre eux osât prendre la « fuite. » .
@@ -5065,7 +5007,7 @@ Platée, Tkémistocle annonça publiquement (pi'il avait formé un projet import
 ne pouvait être assuré que par le secret le plus impénétrable. Le peuple répondit : « QuAristide en
 « soit le dépositaire ; noi» nous en rapportons ■ a à lui. » Thémistocle tira ce dernier à l'écart,
 « et lui dit : « La flotte de nos alliés séjourne a sans défiance dans le port de Pagase ; je proa
-posedelabioder ; et nous sommes les maîtres o de la Grece. » — «Athéniens, dit alors Aris- « tide ,
+posedelabioder ; et nous sommes les maîtres o de la Grece. » --- «Athéniens, dit alors Aris- « tide ,
 rien de si utile cpie le projet de Thé- «mistocle; mais rien de si injuste.» Nous n'en voulons point
 , s'écria tout d'une voix l'assemblée. Quelques années après, les Samiens proposèrent aux Athéniens
 de violer un article du traité qu'on avait fait avec les alliés. Le peuple demanda l'avis
@@ -5232,16 +5174,16 @@ PIN DES IfOTES.
 TABLE DES MATIÈRES CONTENUES DANS CE PREMIER VOLUME.
 
 At» DE l'Editeur Page ▼ MÉMOIRES SUR Là VIE ET SUR QUELQUES-UNS DES OUVRAGES DE J. J. BARTHELEMY.
-Premier Mémoire « Second Mémoire. — Cabinet des Médailles S"] Troisième Mémoire. — Sur Anacharsis 69
+Premier Mémoire « Second Mémoire. --- Cabinet des Médailles S"] Troisième Mémoire. --- Sur Anacharsis 69
 VOYAGE D'ANACHARSIS. Avertissement de TAuleur 9 Ordre chronologique du Voyage d'Anacharsis.. 99
  AU VOYAGE DE LA GRECE. Eut sauvage de la Grèce io3 Arrivée des colonies orientales io4
-Inachus et Phoronée o5 PnEMikRE Partie. — Cécrops «07 Argonautes • '* Hercule i»9
+Inachus et Phoronée o5 PnEMikRE Partie. --- Cécrops «07 Argonautes • '* Hercule i»9
 
 39) TABLE DES MATIERES. Thesee ; Page lai Première guerre de Thèbes i35 Seconde guerre de Thëbes ,
 ou guerre des Epigones i38 Guerre de Troie, i4o Retour des Héraelides. i5o Réflexions sur les
 siècles héroïques 1 53 Etablissement des Ioniens dans PAsie mineure. 1 76 Homère 179 Sbcomdb PAariE
-193 SectionI".— SièfcledeSolon 194 Dracon...« 196 Epiménide 19S Législation de Solon aoi Pisistrate
-a3i Illlflexions sur la l^islation de Solon 34a Sect. H*. — Siècle deThémistocle et d^Aristide. 3 5a
+193 SectionI".--- SièfcledeSolon 194 Dracon...« 196 Epiménide 19S Législation de Solon aoi Pisistrate
+a3i Illlflexions sur la l^islation de Solon 34a Sect. H*. --- Siècle deThémistocle et d^Aristide. 3 5a
 Bauille de Marathon 371 Thémislocle et Aristide aSo Combat des Thermopyles 399 Combat de Salamine
 3i6 Bauille de Platée 34o Reflexions sur le siècle de Thémislocle et d'Aristide A ^73 Notes 38i FIN
 DE Là TABLE.
